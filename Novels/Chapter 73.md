@@ -48,7 +48,7 @@ Esdel, against the wall, saw her go very slightly still.
 
 “Your Highness is mistaken. It is an honor to—”
 
-“I hate it too,” said Prince Ardbert. He picked up a small round fruit from the bowl between them and turned it in his fingers. “Three hundred people telling me what I already know, in words that mean nothing, while the food goes cold.” He glanced up. “I spent last spring in the famine villages in the south. We ate millet and turnip, and everyone said exactly what they meant, and I have never in my life been so happy.” He set the fruit down. “I thought you might understand that. Having come from the front.”
+“I hate it too,” said Prince Ardbert. He picked up a small round fruit from the bowl between them and turned it in his fingers. “Three hundred people telling me what I already know, in words that mean nothing, while the food goes cold.” He glanced up. “I spent three months last year in the famine villages. We ate millet and turnip, and everyone said exactly what they meant, and I have never in my life been so happy.” He set the fruit down. “I thought you might understand that. Having come from the front.”
 
 Xueyao looked at him for a long moment.
 
