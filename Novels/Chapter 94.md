@@ -6,7 +6,7 @@ Halden read it standing in the mud in his shirtsleeves, with a mug of coffee goi
 
 He got to the last one, and stopped.
 
-He stood there a long time. Rain dripped off the edge of the tent roof onto his bald head. He did not seem to notice.
+He stood there a long time. Rain dripped off the edge of the tent roof onto his grey head. He did not seem to notice.
 
 Benn found him there a quarter of an hour later, still standing in the mud, still holding the cold mug.
 
@@ -84,7 +84,7 @@ He sat up.
 
 Loryn did not hear the rest.
 
-He was remembering a morning, almost a year ago. A road from the Eastern Post, and a red sunrise, and a tall quiet man with a medical satchel riding behind him on his horse. *Esdel, right? Name’s Loryn. I’ll be your escort.* And then the plain, and the fire, and the Titan falling out of the sky toward them, and the man flying off the horse into the smoke. And Loryn searching for him afterward, for hours, through the burning field, with his arm broken, calling his name. He had not found him. He had been sure he was dead.
+He was remembering a morning, almost a year ago. A road from the Eastern Post, and a red sunrise, and a tall quiet man with a medical satchel riding behind him on his horse. *Esdel, right? Name’s Loryn. I’ll be your escort.* And then the plain, and the fire, and the Titan falling toward them, and the man flying off the horse into the smoke. And Loryn searching for him afterward, for hours, through the burning field, with his arm broken, calling his name. He had not found him. He had been sure he was dead.
 
 And then, weeks later, back at North Ridge with his arm in a splint, he had seen him. Walking across the camp toward the medical tents, with his satchel over his shoulder. Alive.
 
