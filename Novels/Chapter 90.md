@@ -26,7 +26,7 @@ She did not sound as though she believed it. Neither did Esdel. The Count was a 
 
 A door opened at the foot of the right-hand tower.
 
-Two men came out into the drizzle. One of them carried a lantern. They walked down the slope toward the eleven riders — not fast, not slow — and stopped ten paces off, in the middle of the paved street, in the grey light.
+Two men came out into the drizzle. One of them carried a lantern. They walked down the slope toward the ten riders — not fast, not slow — and stopped ten paces off, in the middle of the paved street, in the grey light.
 
 The one with the lantern was older, in plain black, with a neat grey beard. The other was young, and tall, and wore a dark hooded cloak, and when he pushed the hood back, the lantern light fell on dark hair tied simply at the nape, and a pair of clear, startling blue eyes.
 
