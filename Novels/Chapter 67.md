@@ -112,6 +112,6 @@ She stepped back, quietly, before he could look up, and returned to her tent. Sh
 
 *No past,* Changli had said. *No family. No roots.*
 
-Changli, she thought, was wrong about something. It was the first time in twenty years she could remember that happening.
+Changli, she thought, was wrong about something. It was the first time in seventeen years she could remember that happening.
 
 She was not sure why the thought unsettled her so much.

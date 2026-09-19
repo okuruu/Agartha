@@ -2,7 +2,7 @@
 
 They planned it in the old stillroom behind the stables, where Lord Hengzhi’s grandmother had made plum wine and Esdel had made the tonic that gave a dead woman six days.
 
-Seven of them, around a scarred table, by the light of one shuttered lamp. The General. Changli. Han Ruo. Pei Lun, who had not been invited and had come anyway, and whom no one had the heart to send away. Suyin, the archer — a narrow, quiet woman of forty with grey in her braid, who had not spoken ten words to Esdel on the whole road from North Ridge, and who spoke no more now, but listened with her whole body, the way a hunting cat listens. Two others of the Lián guard whom Han Ruo trusted with his life, and had said so.
+Eight of them, around a scarred table, by the light of one shuttered lamp. The General. Changli. Han Ruo. Pei Lun, who had not been invited and had come anyway, and whom no one had the heart to send away. Suyin, the archer — a narrow, quiet woman of forty with grey in her braid, who had not spoken ten words to Esdel on the whole road from North Ridge, and who spoke no more now, but listened with her whole body, the way a hunting cat listens. Two others of the Lián guard whom Han Ruo trusted with his life, and had said so.
 
 And Esdel.
 
@@ -72,7 +72,7 @@ Then she said, very quietly, “You’re sending me away.”
 
 “I’m giving you the only thing I have left that matters.”
 
-“You’re sending me *away*.” Changli’s voice broke, just slightly, on the last word. “Twenty years. Since we were six. I followed you to the front. I followed you into the *mud*, Xueyao, into the camp, into the — and now you want me to go down the river with your brother and a stranger’s name and never—”
+“You’re sending me *away*.” Changli’s voice broke, just slightly, on the last word. “Seventeen years. Since we were six. I followed you to the front. I followed you into the *mud*, Xueyao, into the camp, into the — and now you want me to go down the river with your brother and a stranger’s name and never—”
 
 She stopped. She pressed her lips together. Her folded hands on the table were white.
 
