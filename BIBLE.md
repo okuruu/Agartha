@@ -16,7 +16,6 @@
 | `BIBLE.md` | This file: style guide, canon facts, chapter index, continuity rules. |
 | `Next Arc.md` | Outline for the **next** arc (the fall of House Lián → Xueyao's exile). Some of it has already been written, and the written version differs in places (see §7). |
 | `Archive/Novel (original, pre-split).md` | The original single file from before the consistency pass. Not canon. |
-| `Novel.md` | The single-file version with the consistency pass applied, left over from the split. It's out of date (it has neither the summer fix nor Ch25–29), so it should be deleted. |
 
 **Heading format** in every chapter file: `# **Chapter N**` followed by a blank line. Scene breaks use a line with only `---`.
 
