@@ -1,3 +1,6 @@
+> ## ✅ DONE: fully written. Do not use this outline again.
+> Items 1–11 became Ch51–66; items 12–23 became Ch67–98 (*The Maiden's Exile*). The chapters differ from this outline in places; **the chapters win**. See `BIBLE.md` §7. Kept only as a historical record.
+
 ## **🐉 The Fall of House Lián (Revised Heavenly Dragon Version)**
 
 1. Lián Xueyao was born into one of the wealthiest families in the realm. Her father, **Lord Lián Hengzhi**, controlled half the eastern ports and could tilt the kingdom’s trade with a single order. The Liáns were powerful, polished, and—let’s be honest—too used to winning.

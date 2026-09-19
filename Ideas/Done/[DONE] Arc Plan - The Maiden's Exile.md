@@ -1,6 +1,9 @@
+> ## ✅ DONE: approved and written. Do not use this plan again.
+> This arc is canon in `Novels/Chapter 67.md`–`Chapter 98.md`. For anything about it, read the chapters and `BIBLE.md` §4 / §6 / §7 / §10, **not** this file. Kept only as a historical record. (Some details changed while writing; for example seven survivors, not the plan's list, and Ch97 adds Vale and the gold thread.)
+
 # Arc Plan: *The Maiden's Exile* (Ch67–98)
 
-**Status:** IN PROGRESS. The user asked for it to be written straight through ("continue writing the Next Arc until it's done", about 30–35 chapters).
+**Status:** DONE. Written in full as Ch67–98.
 **Source outline:** `Next Arc.md` items 12–23. Items 1–11 are already written (Ch51–66). Where the novel differs from the outline, the novel wins (BIBLE §7).
 **Length:** 32 chapters.
 **Season:** spring into early summer, Year 2. Peach blossoms in the Lián garden. In Edenridge it's one year since Esdel arrived.
