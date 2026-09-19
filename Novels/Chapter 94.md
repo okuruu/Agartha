@@ -16,7 +16,7 @@ Halden did not answer. He only lifted the mug, very slightly, and pointed with i
 
 Benn read it. He read it all the way to the end, as Halden had. Then he stood beside the old surgeon in the rain and did not say anything at all.
 
-“*Of the village of Edenridge,*” said Halden at last. His voice was flat. “*Formerly of the Third Logistic Company and the medical division of the North Ridge post.*” He took a long breath through his nose. “They didn’t even put us in. The Eastern Post. Four months he was here. Four months, and it’s *North Ridge* on his traitor’s warrant.” He shook his head. “Typical.”
+“*Of the village of Edenridge,*” said Halden at last. His voice was flat. “*Formerly of the Third Logistic Company and the medical division of the North Ridge post.*” He took a long breath through his nose. “They didn’t even put us in. The Eastern Post. A month he was here. A whole month, and it’s *North Ridge* on his traitor’s warrant.” He shook his head. “Typical.”
 
 “Sir—”
 

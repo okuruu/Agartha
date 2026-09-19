@@ -84,7 +84,7 @@ The others came in, one by one, as the day went on. Gao, with a rag wrapped roun
 
 Esdel put his hand on the boy’s shoulder and left it there.
 
-Seven of them. That was what was left. The General, the apothecary, Gao, four old soldiers, and a boy. Seven, out of seventeen who had ridden out of North Ridge in the spring.
+Seven of them. That was what was left. The General, the apothecary, Gao, four old soldiers, and a boy. Seven, out of eighteen who had ridden out of North Ridge in the spring.
 
 ---
 

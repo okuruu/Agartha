@@ -56,7 +56,7 @@ The King did not look at his son. He did not look at anyone.
 
 He read the names.
 
-There were eleven of them. The eight soldiers of House Lián who had ridden out through the north gate. The three who had died holding the ford of the Greenwater, whose bodies had been pulled from the river and identified by their armor. Their names, their ranks, the villages they had come from.
+There were fifteen of them. Every soldier of House Lián who had ridden south with her in the spring, the living and the dead alike — the four who had fallen in the gateway, the two in the Street of Lanterns, the two whose bodies had been pulled from the Greenwater and known by their armor, and the ones who had ridden on. Their names, their ranks, the villages they had come from.
 
 Then the Prime Minister paused, very slightly, as a man pauses before a word he does not know how to pronounce.
 
