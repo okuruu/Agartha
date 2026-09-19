@@ -2,11 +2,11 @@
 
 The north gate of the capital stood at the top of a long, steep street called the Hundred Steps, though there were no steps anymore — only a paved slope, worn smooth by centuries of carts and feet and the hooves of armies going out to war. At the top of it, the walls rose sheer and pale out of the dark, and in them was the gate: two towers, a vaulted passage, a portcullis of black iron, and beyond it the great doors, barred for the night.
 
-Eleven riders came up the Hundred Steps in the last hour before dawn, in the rain.
+Ten riders came up the Hundred Steps in the last hour before dawn, in the rain.
 
-Esdel counted them without meaning to. The General. Himself. Pei Lun, with a split lip and a bruise already darkening down one side of his face. Eight of the soldiers of House Lián — eight, out of fifteen. Four in the gateway. Suyin gone down the river. And two more, somewhere back in the Street of Lanterns, when the Count’s men had come out of the dark a second time, and the two old soldiers had turned their horses without a word, as Han Ruo had, and not come back.
+Esdel counted them without meaning to. The General. Himself. Pei Lun, with a split lip and a bruise already darkening down one side of his face. Seven of the old soldiers of House Lián — eight of the fifteen left, counting Pei. Four in the gateway. Suyin gone down the river. And two more, somewhere back in the Street of Lanterns, when the Count’s men had come out of the dark a second time, and the two old soldiers had turned their horses without a word, as Han Ruo had, and not come back.
 
-Eleven. He kept counting it, over and over, as though the number might change.
+Ten. He kept counting it, over and over, as though the number might change.
 
 The storm was passing. The rain had thinned to a cold steady drizzle, and in the east, behind them, over the river, the sky was beginning — very faintly — to go grey.
 
@@ -38,7 +38,7 @@ Xueyao went very still in her saddle.
 
 Prince Ardbert looked up at her.
 
-He looked at all of them — the eleven riders, wet and filthy and bloodied, on steaming horses, at the top of the Hundred Steps in the dawn. At Pei Lun’s split lip. At Esdel, and the faint red still staining the whites of his eyes. At the drawn sword across the General’s saddle. At the place beside her where a captain should have been riding, and was not.
+He looked at all of them — the ten riders, wet and filthy and bloodied, on steaming horses, at the top of the Hundred Steps in the dawn. At Pei Lun’s split lip. At Esdel, and the faint red still staining the whites of his eyes. At the drawn sword across the General’s saddle. At the place beside her where a captain should have been riding, and was not.
 
 His face did not change. But Esdel, who had learned in a year to read the space between people, saw his hands, at his sides. They were shaking, very slightly.
 
@@ -106,7 +106,7 @@ She did not take his hand. She only touched his shoulder, briefly, with two fing
 
 Then she turned her horse, and rode through the gate.
 
-The others followed her. One by one, under the rising iron teeth, into the passage, and through the great doors, and out onto the north road in the grey drizzling dawn. Pei Lun. The eight old soldiers. Esdel last of all.
+The others followed her. One by one, under the rising iron teeth, into the passage, and through the great doors, and out onto the north road in the grey drizzling dawn. Pei Lun. The seven old soldiers. Esdel last of all.
 
 As he passed the Prince, standing alone in the street with the rain on his dark hair, Ardbert looked up at him.
 
