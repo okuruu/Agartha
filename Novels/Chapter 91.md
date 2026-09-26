@@ -76,6 +76,12 @@ He felt it go in. Low, on the left, below the ribs. A great flat blow, like bein
 
 He did not fall. He did not know why he did not fall.
 
+For one moment — only one — he was not in the river.
+
+Mint. Honey. Not too hot. A small gold flame on the second step, turned low. A girl on the floor at the foot of the stairs with her face ruined and her fist curled in his shirt, saying it over and over into his neck until it was not a word anymore. *You promised. You promised.*
+
+*I know,* he thought. *I know. I’m trying.*
+
 His hand was in the satchel. His fingers closed on the vial. He brought it out, and bit the wax seal off with his teeth, and drank it — all of it, in one swallow. It tasted of nothing. Cold, and faintly blue, like biting into ice.
 
 For a heartbeat, nothing happened.
