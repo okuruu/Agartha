@@ -10,7 +10,7 @@ For the farmers, it was nothing short of a miracle.
 
 Where there had once been dry, cracked soil, green shoots now rose in perfect rows. The elders gathered near the banks, murmuring prayers of thanks, though none could quite agree on *whom* to thank — the gods, the river, or the quiet man who had simply shown it a path.
 
-That afternoon, the **Village Chief**, an elderly man with silver hair tied neatly behind his head, called for a small gathering in the square. The villagers came bearing fruits, rice cakes, and laughter.
+That afternoon, the Village Chief, an elderly man with silver hair tied neatly behind his head, called for a small gathering in the square. The villagers came bearing fruits, rice cakes, and laughter.
 
 Reyn was the first to speak, voice bright with pride.
 
@@ -53,7 +53,7 @@ The farmers waved when he passed — “Morning, Esdel!” — and the children 
 
 The merchants at the market began asking for his thoughts — on tools, measurements, small ways to make life easier. It was the kind of respect that required no ceremony, no worship — only trust built quietly, day after day.
 
-And every time his name was spoken, **Lyora** would smile.
+And every time his name was spoken, Lyora would smile.
 
 At the apothecary, she’d beam as villagers came to thank him, setting down their baskets of herbs or jars of honey as gifts.
 

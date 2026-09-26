@@ -52,7 +52,7 @@ She took her piece of cake, and ate it, and went back to the sage.
 
 ---
 
-It was a warm afternoon when Esdel met him — the farmer Lyora had once mentioned in passing. His name was **Eldric**, a man with broad shoulders, sun-bronzed skin, and a voice that carried the comfort of summer wind. There was something effortlessly alive about him — the kind of warmth that made even strangers feel like old friends.
+It was a warm afternoon when Esdel met him — the farmer Lyora had once mentioned in passing. His name was Eldric, a man with broad shoulders, sun-bronzed skin, and a voice that carried the comfort of summer wind. There was something effortlessly alive about him — the kind of warmth that made even strangers feel like old friends.
 
 Eldric spotted Esdel near the edge of the riverbank, where he was examining the new wooden channels that redirected the water flow into the village fields.
 

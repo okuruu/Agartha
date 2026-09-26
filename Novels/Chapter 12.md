@@ -8,7 +8,7 @@ It was the *Festival of Flow*, held once every decade — but this year, it carr
 
 The villagers gathered with joy that seemed to outshine the moon. Children ran barefoot, carrying lanterns shaped like fish and birds. The smell of roasted rice and sweet herbs filled the air. Laughter rolled like a tide — unrestrained, alive.
 
-At the center of it all sat **Esdel** and **Reyn**, shoulder to shoulder on a wooden bench near the riverside.
+At the center of it all sat Esdel and Reyn, shoulder to shoulder on a wooden bench near the riverside.
 
 Reyn lifted a clay cup, already a little red in the face. “To the man who solved a century-old drought with *bamboo*!” he announced loudly, voice booming over the chatter.
 
@@ -88,7 +88,7 @@ She looked at him a moment longer than she needed to. Then she began, very busil
 
 ---
 
-Later, when the laughter faded into quiet murmurs, **Lyora** found him by the water’s edge.
+Later, when the laughter faded into quiet murmurs, Lyora found him by the water’s edge.
 
 She carried two cups of herbal tea — steam curling into the cool air — and sat beside him on the old stone embankment. The festival sounds felt far away now, muffled by the rustle of bamboo and the rhythm of the current.
 

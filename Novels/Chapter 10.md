@@ -1,8 +1,8 @@
 # **Chapter 10**
 
-The early summer air in **Edenridge** already hung heavy with heat. The fields to the east had begun to dry — their soil cracked and thirsty despite the river flowing just beyond the hill.
+The early summer air in Edenridge already hung heavy with heat. The fields to the east had begun to dry — their soil cracked and thirsty despite the river flowing just beyond the hill.
 
-That was when **Reyn Challon**, the village engineer, arrived at the apothecary one morning — sleeves rolled up, boots caked in dust, and a wide grin beneath his copper beard.
+That was when Reyn Challon, the village engineer, arrived at the apothecary one morning — sleeves rolled up, boots caked in dust, and a wide grin beneath his copper beard.
 
 “Arwen, I’m borrowing your helper,” he announced cheerfully, nodding toward Esdel. “I’ve got a problem the village needs fixed, and from what I hear, this man’s got a head for odd ideas.”
 

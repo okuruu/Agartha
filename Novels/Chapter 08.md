@@ -1,6 +1,6 @@
 # **Chapter 8**
 
-The days in **Edenridge** had become a seamless thread — woven with the rhythm of simple things.
+The days in Edenridge had become a seamless thread — woven with the rhythm of simple things.
 
 Mornings filled with the sound of roosters and laughter. Midday sun pouring over green fields. Evenings painted with amber light through the apothecary’s windows, the scent of drying herbs wrapping the air like memory.
 
@@ -82,7 +82,7 @@ But sleep brought something else.
 
 He dreamt of the desert again. The endless dunes, the burning wind, the taste of dust and iron. And in the distance — a pale figure, walking against the storm.
 
-The **woman in white**.
+The woman in white.
 
 Her face was blurred, but her presence filled the dream like gravity. She didn’t speak, yet her silence felt heavier than words. Around her, the air shimmered — not with heat, but memory.
 

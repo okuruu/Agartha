@@ -1,6 +1,6 @@
 # **Chapter 9**
 
-By the time the next moon rose over **Edenridge**, Esdel had become a part of its quiet pulse.
+By the time the next moon rose over Edenridge, Esdel had become a part of its quiet pulse.
 
 He woke with the villagers at dawn — to the crow of roosters, the soft ring of temple bells, the scent of morning bread drifting through the air. The days no longer blurred together; each one carried its own rhythm, its own shape.
 
@@ -45,7 +45,7 @@ The farmer flexed his bound hand, frowning at it, then at him.
 
 ---
 
-When he wasn’t mending wood or hauling grain, Esdel helped carry supplies to the **river shrine**, a simple stone structure draped with flowers and ribbons. The villagers left offerings there — herbs, coins, even carved figures of birds and leaves.
+When he wasn’t mending wood or hauling grain, Esdel helped carry supplies to the river shrine, a simple stone structure draped with flowers and ribbons. The villagers left offerings there — herbs, coins, even carved figures of birds and leaves.
 
 Lyora joined him often, under the excuse of delivering medicines to the shrine keeper. She always lingered longer than her duties required.
 

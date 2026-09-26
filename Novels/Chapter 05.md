@@ -54,7 +54,7 @@ Lyora repeated it softly, as though testing its sound. “Esdel… That’s a st
 
 He gave a faint, tired smile. “It’s all I remember.”
 
-Arwen nodded gently. “Then it’s a good start. You’re in the village of **Edenridge**, Esdel — a small place, tucked at the edge of the forest. You can rest here until your strength returns.”
+Arwen nodded gently. “Then it’s a good start. You’re in the village of Edenridge, Esdel — a small place, tucked at the edge of the forest. You can rest here until your strength returns.”
 
 He glanced toward the open window. Outside, sunlight spilled across cobblestone paths. Villagers passed by, their laughter mingling with the sound of flowing water. A dog barked somewhere near the river. It felt… unreal, after so much death and sand.
 

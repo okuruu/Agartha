@@ -71,7 +71,7 @@ It was, from Arwen, very nearly a song.
 
 ---
 
-His afternoons belonged to **Reyn Challon**, the engineer — once the shop had gone drowsy after the noon meal and Arwen waved him off with a flick of her fingers. Their friendship had grown quietly, built from sawdust, sketches, and sweat.
+His afternoons belonged to Reyn Challon, the engineer — once the shop had gone drowsy after the noon meal and Arwen waved him off with a flick of her fingers. Their friendship had grown quietly, built from sawdust, sketches, and sweat.
 
 Reyn’s workshop stood near the southern river bend, where the hum of bamboo water channels blended with the soft grind of gears and wooden pulleys. Inside, every surface was cluttered — half-built contraptions, scraps of parchment, and the faint smell of oil and rain-soaked timber.
 
@@ -91,7 +91,7 @@ Reyn chuckled. “Spoken like a man who doesn’t own a field.”
 
 ---
 
-Sometimes, **Lyora** came by with something to eat.
+Sometimes, Lyora came by with something to eat.
 
 Her arrival always felt like the first breeze before rain — light, refreshing, inevitable. She’d step into the workshop carrying a basket of bread and stew, pretending it was merely *for convenience’s sake.*
 

@@ -19,7 +19,7 @@ He’d answer with a quiet smile, still surprised at how easily laughter seemed 
 
 The world had become small, predictable, safe — but in that simplicity, Esdel found something he never thought he’d crave: *peace.*
 
-Much of it came from **Lyora**.
+Much of it came from Lyora.
 
 She was the constant thread that tied each day together — bringing him small meals while he worked, teasing him about his “unromantic logic,” or sitting beside him during long meetings with the Chief, chin resting on her hand as she listened.
 

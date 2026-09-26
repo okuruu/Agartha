@@ -1,6 +1,6 @@
 # **Chapter 6**
 
-The days in **Edenridge** passed like ripples across still water — slow, gentle, and quietly alive.
+The days in Edenridge passed like ripples across still water — slow, gentle, and quietly alive.
 
 For the first time since awakening beneath the desert sun, Esdel began to understand what it meant to *rest.*
 

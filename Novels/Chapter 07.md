@@ -22,7 +22,7 @@ Lyora, reading upside down across the table, said it looked like a spider had wa
 
 Only when the floor was swept and the drying racks turned did he go out into the village.
 
-Esdel had become part of **Edenridge’s** rhythm — not quite one of them, but no longer a stranger. The villagers would greet him with a nod, sometimes a smile, and always a word of thanks when he passed carrying crates of vegetables, repairing a fence, or hauling buckets of river water to the communal garden.
+Esdel had become part of Edenridge’s rhythm — not quite one of them, but no longer a stranger. The villagers would greet him with a nod, sometimes a smile, and always a word of thanks when he passed carrying crates of vegetables, repairing a fence, or hauling buckets of river water to the communal garden.
 
 He worked hard, though no one ever asked him to. It gave him purpose — something solid to hold onto in a world that felt too soft, too forgiving.
 
@@ -46,7 +46,7 @@ Then the weeks slipped by, quicker than he expected.
 
 ---
 
-At the end of the month came the **Devotional Gathering** — a night the villagers awaited all year.
+At the end of the month came the Devotional Gathering — a night the villagers awaited all year.
 
 It began at dusk. The entire settlement gathered by the riverbank, holding slender wooden lanterns shaped like flowers. The air shimmered with anticipation, and the scent of burning oil mingled with the sweetness of blooming lilies.
 
