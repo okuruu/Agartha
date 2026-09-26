@@ -16,6 +16,10 @@ He wrote it down.
 
 That part he recognized. He was almost sure of it. It was the dark-green sour edge that came up under the lye, the faint numbness it had left on the tip of his tongue when he had — against every sensible instinct — touched the smallest trace to it. There was a root that grew in shaded valleys, grey-leaved, with pale drooping flowers; field surgeons used it sometimes, in tiny amounts, to calm a man who was thrashing too hard to be stitched. *Greyveil*, Halden had called it, in the tent. *A kiss of it will quiet a man. A mouthful will quiet him forever.*
 
+He had seen it once before that, too. In a shaded hollow in the forest above Edenridge, on a green morning, with a basket on his arm — and a hand on his sleeve, stopping him before he could reach for it. *We don’t use that,* Lyora had said. *Not ever.* She had not told him its name. He had written it in his notebook anyway, that night, with a small drawing of the leaf, and beneath it, in his own strange hand: *Ask Arwen why.*
+
+He never had.
+
 Given slowly, every day, over months, it would do more than quiet. It would soften the will. Dull the hands. And, a little at a time, weaken the heart that had to keep beating through it.
 
 That was poison enough. That was murder, done gently.
