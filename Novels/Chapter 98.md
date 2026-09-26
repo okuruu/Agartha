@@ -168,6 +168,14 @@ He had held this. He had sat somewhere — she did not know where, she would nev
 
 Nothing anyone could read but her.
 
+She thought of the night in the summer, on the stairs, with the lamp burning down to a blue bead. The small cold voice. *He forgot everyone he ever loved once already. What makes you think you’re any different?*
+
+He had not forgotten the knot.
+
+Out of everything he had lost — his name, his home, his whole life before the desert — his hands had kept this. The knot he had tied a hundred times on a hot afternoon at the start of the summer, thinking of the height of her reach. He had carried it out of this valley and through a war and a storm and a river, and somewhere at the edge of the world he had sat down and tied it three times, for her.
+
+The voice had been wrong. She had known it was wrong by morning. But she had not *known* it — not like this, not in her hands.
+
 She knew what they meant. She did not need to be told. She had sat on the stairs once, in the rain, and said everything but one thing, and he had heard that one most clearly of all. And now he had sent her three knots on a piece of string, from somewhere she would never see, and said everything but one thing.
 
 And she heard it.
