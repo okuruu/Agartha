@@ -68,6 +68,28 @@ He leaned forward, teasing. “You glued the fur together, Lyora. That cat must�
 
 The two of them laughed until the air itself seemed to join in, the warmth in their laughter filling every corner of the little kitchen. When the sound finally faded, it left behind a soft stillness that felt different — gentler, sweeter somehow. 
 
+Her eyes fell on the notebook he had carried down without thinking, the way he carried it everywhere now. She tipped her chin at it. “What are you on tonight?”
+
+“Arwen’s cough receipts. The old ones.” He opened it to the page, turning it so she could see. “There are two copies of the same one, and they don’t agree. One says two spoons of honey. The other says one and a half.”
+
+Lyora leaned over the page. Her hair brushed the edge of the lamplight. “Which is older?”
+
+“The one-and-a-half.”
+
+“Winter honey,” she said at once. “She wrote that one in winter. It’s thicker when it’s cold — you need less of it to do the same work. She changed it in summer and never crossed out the first.” She sat back, a little pleased with herself. “You’ll find a dozen like that.”
+
+He wrote it down beside the receipt in his small, strange hand. *Winter honey — thicker — less.*
+
+“You write down everything,” she said.
+
+“Only what matters.”
+
+“Do you write down the jokes?”
+
+“Only the good ones,” he said. “It’s a very thin section.”
+
+She laughed into her cup, and he closed the notebook, and let the lamp have the page.
+
 They drifted easily into other talk — food, childhood memories, the ordinary pieces of life that somehow felt extraordinary when shared between them. 
 
 “So,” she asked, twirling her cup slightly, 

@@ -48,6 +48,10 @@ But then, he thought, who was he to ask it?
 
 He began to be busy.
 
+Never before the shop. Whatever else he had taken on, he was at the worktable at first light, as he had been every morning since spring — sweeping, grinding, turning the bundles on the drying lines, copying the day’s receipts into his notebook in his small, strange hand. Arwen set out the work and he did it. If he did it with fewer jokes than usual, she did not remark on it.
+
+It was after the shop that the rest began.
+
 It was not difficult. There was always work in Edenridge for a man who wanted it. Reyn had a sluice gate that stuck. The Chief wanted the bridge planks replaced before the heavy rains. The baker’s oven door had warped in the heat. Esdel went where he was needed and stayed until the light failed, and some days after.
 
 He came home when the lamps were low. He ate what was left, alone, after the others had finished. He said *good night* from the stairs.
@@ -65,6 +69,28 @@ He almost smiled. He didn’t. “Then it’s time someone fixed it.”
 She looked at him a moment longer, and he saw the question rise in her face and then sink, unasked, like a stone settling into a riverbed. She turned back to her mortar.
 
 “Your supper’s by the stairs,” she said.
+
+---
+
+Twice that week, Arwen sent him up to Eldric’s farm in Lyora’s place.
+
+“Lyora has the counter, and I have the ledgers,” she said, handing him the basket. “Comfrey for the poultice. Check the bindings at the ankle. And don’t let him talk you out of the willow.”
+
+Eldric’s father lay on a pallet by the kitchen window with his leg bound between two lengths of ash, glaring at the yard he could not walk in. He was a big man gone thin, with Eldric’s shoulders and none of Eldric’s ease.
+
+Esdel knelt and undid the linen. The swelling had gone down since Arwen last looked; the toes were warm and pink when he pressed them. He said so. He warmed the comfrey in a little water on the hearth until the kitchen smelled green and rank, like a ditch after rain, and laid it along the shin, and bound it again, firm but not tight, the way Arwen had shown him.
+
+Then he measured the willow bark into a cup. A level spoon, no more, as it was written in his notebook.
+
+The old man eyed it. “Tastes like a fence.”
+
+“It does,” Esdel agreed. “Arwen says the worse it tastes, the better it works. I’ve never once been able to prove her wrong.”
+
+That got a grunt that might have been a laugh. The old man drank. Halfway down, his jaw went tight — the leg, shifting — and Esdel said nothing more, only steadied the cup until it was done and eased the pillow under the knee.
+
+At the door, Eldric’s mother pressed his hand between her worn ones and thanked him twice. Eldric was out in the fields. He always was.
+
+It was a good house. Warm, and tired, and honest. He walked home down the hedgerow path and did not let himself think about why that should hurt.
 
 ---
 

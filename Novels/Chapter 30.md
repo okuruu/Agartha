@@ -8,7 +8,13 @@ After finishing his chores — restocking herbs, sweeping the back room, and fee
 
 Outside, the village was alive. Sunlight spilled between the oak leaves, dappling the dirt paths. Children ran by, ribbons fluttering in their hands like little streaks of joy. Somewhere, a cart rumbled past, wooden wheels clattering along the stones. The distant clang of Reyn’s hammer echoed faintly from his workshop by the river bend, steady and grounding.
 
-Esdel stopped at a few stalls, greeted by familiar smiles. A vegetable vendor pressed an apple into his hand “for strength,” and the baker — a burly man with flour permanently dusting his hair — insisted he try a new batch of sweet buns.
+Esdel stopped at a few stalls, greeted by familiar smiles. A vegetable vendor pressed an apple into his hand “for strength,” then held on to his sleeve a moment longer to ask, low, about her little boy’s cough — dry, she said, and worse at night.
+
+He listened to all of it before he answered. “Thyme, steeped with a spoon of honey, warm before bed,” he said. “Not hot. And if it’s still there in three days, bring him to the shop and let Arwen hear his chest.” He smiled. “He’ll hate the thyme. Tell him it’s what the bees eat. It isn’t, quite, but he won’t check.”
+
+She laughed, and let go of his sleeve, and the worry in her shoulders let go a little with it.
+
+The baker — a burly man with flour permanently dusting his hair — insisted he try a new batch of sweet buns.
 
 “They didn’t come out right,” the baker confessed with a laugh. “But waste not!”
 
@@ -47,6 +53,26 @@ Arwen was returning from her errands, basket in hand. Her shawl fluttered lightl
 “Not lost,” he said, smiling. “Held hostage by culinary innovation.”
 
 That earned him a laugh. Before long, she joined the group at the square, effortlessly folding herself into their conversations. The villagers teased her too, calling her “the village sage,” to which she replied with such quick wit that even Esdel doubled over laughing.
+
+Then the vegetable vendor called out, over the others, “And this one? Is he any good, Arwen, or do we only keep him for the jokes?”
+
+Arwen looked at Esdel a long moment, head tilted, the way she looked at a tincture held up to the window.
+
+“He is the best apprentice this house has had,” she said.
+
+It went quiet around the cart. Esdel felt the heat climb his neck.
+
+“He has never once,” Arwen went on, perfectly grave, “mistaken the sugar for the salt.” She glanced sidelong at the baker. “Unlike some bakers. And unlike *some* granddaughters.”
+
+The square erupted. The older women hooted and slapped their knees; clearly they knew the story, whatever it was. Esdel looked from one face to another.
+
+“The sugar for the—?”
+
+“Later, child,” Arwen said serenely.
+
+He rubbed the back of his neck, still red. “She only says that because I’m the one who grinds the valerian,” he told the crowd. “No one else will. It smells like a boot that’s been to war.”
+
+That set them off again, and the praise was lost in it — which, Arwen noticed with a small smile, was exactly what he had meant it to do.
 
 It was strange and wonderful — to see her not as the wise, composed apothecary, but as someone full of humor and life. The sound of their laughter rose above the market noise, a rare music of belonging.
 

@@ -4,7 +4,7 @@ Market day came on the hottest morning of the summer.
 
 The square was loud with it — awnings snapping in the dry wind, hawkers calling over one another, goats complaining, children weaving between the stalls with sticky hands. On market days, traders came up from the river road, and the air filled with smells that did not belong to Edenridge: pepper, lamp oil, tanned leather, something sharp and floral that made the eyes water.
 
-Esdel had come for nails. Reyn had sent him with a list and a warning — *don’t let old Pell sell you the rusted ones, he’ll try* — and he had just finished bargaining for the good ones when a woman’s voice called out behind him.
+Esdel had come for nails. He had come first for a cake of beeswax for Arwen’s salves, which sat wrapped in his satchel, bought before anything of Reyn’s. Reyn had sent him with a list and a warning — *don’t let old Pell sell you the rusted ones, he’ll try* — and he had just finished bargaining for the good ones when a woman’s voice called out behind him.
 
 “You. Tall one. You look like you know things.”
 
@@ -18,6 +18,8 @@ Esdel crouched and looked. It took him a moment.
 
 “Your load,” he said. “It’s heavier on this side. The axle’s bearing unevenly. The wheel isn’t the problem — the weight is.” He pointed at the tall stack of indigo. “Move those to the center. Over the axle.”
 
+He straightened and ran a hand down the mule’s dusty neck. It leaned into him, sighing. “She isn’t leaving you,” he said. “She’s only been trying to tell you. All the way from the river.”
+
 She stared at him. Then she laughed — a big, surprised, full-throated laugh that turned heads across the square.
 
 “That’s *it*? I paid a wheelwright in Harrowmere two silver to tell me it was the spokes!”
@@ -25,6 +27,8 @@ She stared at him. Then she laughed — a big, surprised, full-throated laugh th
 “It isn’t the spokes,” Esdel said, perfectly serious.
 
 That made her laugh harder. She reached out and gave his forearm a quick, friendly squeeze — the kind of touch traders traded a hundred times a day, meaning nothing but *thank you* — and said, “You’ve saved my mule’s dignity. Here—” and pressed a small twist of cloth into his palm, a scrap of the deep red. “For your trouble.”
+
+He thanked her — warmly, the way he thanked the baker for a bun — and took half a step back as he did it, so easily it looked like making room for the mule.
 
 Then she was already shouting at the boy minding her mule, and the moment was gone. It had lasted no longer than it takes a kettle to boil.
 
@@ -115,6 +119,8 @@ Her hands were not slow. He followed her anyway, out into the long violet dusk, 
 “There. And there. Not that one.”
 
 He cut where she pointed. The rosemary gave up its scent in green bursts, sharp and clean.
+
+He did not ask why that one and not the other. He always asked why. Arwen noticed, and let the silence sit.
 
 “You cut back what grows wild,” Arwen said, watching him, “so the root can hold.” She bent, slowly, and picked up a trimmed sprig, turning it in her fingers. “But cut too much, child — cut away everything that reaches — and you don’t have a plant anymore. You only have a stick.”
 

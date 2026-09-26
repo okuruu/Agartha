@@ -10,6 +10,8 @@ They had not spoken of the ridge. Of the fields. Of the hedgerow. They said *goo
 
 He no longer went out after supper. He did not seem to decide this. He simply stopped leaving.
 
+He sat at the worktable instead, copying Arwen’s old receipts into his notebook by the lamp, or working sums on a slate for no reason anyone could see. Across the room, Lyora pretended to read. Now and then, without looking up, she corrected his spelling of *valerian*.
+
 ---
 
 On the fourth day, Eldric came.
@@ -39,6 +41,14 @@ Then Eldric laughed. Softly — not his big field-laugh, but a small one, rueful
 ---
 
 Esdel walked him to the gate. It seemed the least he could do. The afternoon was bright and still, the lane shimmering with heat, cicadas loud in the trees.
+
+He had the packet ready. Feverfew, dried on the new rack, from the basket someone had carried down off the ridge the morning after the storm; a smaller twist of willow bark beside it. The dose was written on the paper in his small, strange hand — *a pinch of each, steeped, morning and night, not with wine* — and *not with wine* was underlined twice, because Eldric’s father had opinions about wine.
+
+Eldric turned it over. “He says your letters look like a hen walked through the ink.”
+
+“Tell him the hen was very careful about the dose.”
+
+Eldric laughed and tucked it into the empty basket.
 
 At the gate, Eldric stopped. He looked at the road, not at Esdel.
 

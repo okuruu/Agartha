@@ -16,6 +16,14 @@ The light had gone amber and long. Swallows cut low over the stubble. The channe
 
 “I heard.” Esdel straightened. “I’m glad.”
 
+He was. He had been at the farm two days before, when Arwen judged the bone ready to bear a little weight. He had watched her walk her thumbs down the shin, slow, listening with her fingers. He had wound the splint tighter at the ankle himself, and padded the head of the crutch with a fold of lambswool, because the old man would sooner have died than admit it chafed.
+
+*Ten steps,* Arwen had told him. *Not one more.*
+
+“All the way to the gate,” Esdel said now. “Arwen will have words.”
+
+Eldric laughed. “She’ll have to catch him first.”
+
 “Lyora’s salves. Arwen’s splints. Your—” Eldric waved at the channel, laughing. “Your water, keeping the fields alive, so there’d be something left for him to come back to. Half this village carried him to that gate.” He stopped beside Esdel and looked out over the fields, hands on his hips, breathing like a man who had run a long way and could finally stop.
 
 For a while they only stood there. The water ran. The swallows turned.

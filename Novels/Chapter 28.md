@@ -12,6 +12,10 @@ She did not turn around. That was how he knew.
 
 “The ridge.” Arwen’s voice was calm. Her hands, folded before her apron, were not. “She went up for feverfew after the noon meal. For Eldric’s father — the fever came back in the night, after all that walking. She said she’d be home before the clouds.” A pause. “The clouds came an hour ago.”
 
+He knew the fever. He had stood beside Arwen at the farm that very morning while she laid the back of her hand along the old man’s shin and frowned at the heat in it. He had written the receipt down himself, in his notebook, while she spoke it: *feverfew, fresh if it can be had, steeped strong — willow for the pain.* He had underlined *fresh*, because she had said it twice. The jar on the shop shelf held only dust and a few brown stalks.
+
+He had meant to go up for it himself, after the bridge.
+
 Esdel was already at the door.
 
 “Esdel—”
@@ -30,7 +34,7 @@ He could not have said how he chose his way. The path split, and split again, an
 
 *Here,* it said. *She came this way.*
 
-A basket, overturned, spilling white-faced feverfew into the mud.
+A basket, overturned, spilling white-faced feverfew into the mud. Enough for a week of doses, some small, useless part of him counted. More.
 
 And beyond it, sitting against the roots of a great beech with her knees drawn up and her hair plastered dark to her face, shivering so hard he could see it from twenty paces—
 
