@@ -92,13 +92,33 @@ The captain turned.
 
 “And you are?”
 
-“Her apprentice.” His voice did not shake. He was distantly surprised by that. “I know every jar on her shelves. I can set a bone and stitch a wound and dress a burn and measure a fever draught. And I can march thirty miles a day.” He looked at the captain, and not at anyone else. “She can’t. Not in those shoes, not with that ankle — it was broken this summer. Your men can’t wait for her.”
+“Her apprentice.” His voice did not shake. He was distantly surprised by that. “I know every jar on her shelves. I can set a bone and stitch a wound and dress a burn and measure a fever draught. And I can march thirty miles a day.”
 
-It was not broken. It had been twisted, and it had healed. Lyora knew that. Arwen knew that. Half the village knew it.
+The captain’s eyes went back to Lyora. “So can she, I expect, if she has to.”
+
+“Yes,” said Esdel. “She would. She wouldn’t complain once.”
+
+He did not raise his voice. He spoke to the captain the way he spoke to a frightened man on a pallet — low, and plain, and only to him, as if there were no one else in the square.
+
+“Captain. Do you have someone at home?”
+
+The captain’s jaw moved. “A daughter.”
+
+“Then you’ll understand this better than I can say it.” Esdel glanced, once, toward the apothecary at the top of the lane. “Some years ago, soldiers came to this village at night, with torches, the way you have. They needed a healer. Her father went with them. Her mother went after him. They stood in that doorway up there and said they would be back before the snow.” A pause. “They meant it. You mean it too. I can see you do.”
+
+The captain said nothing.
+
+“They didn’t come back,” said Esdel. “That house has given this war two people already. The girl is what’s left of them. And the old woman beside her has been waiting at that window ever since.” He did not look at either of them. He could not. “I have no family. No one in this Kingdom has ever had to bury anyone of mine. Let it cost me, this time. Not them.”
+
+He stopped. He did not say anything else. He had told the truth, all of it, and it lay in the torchlit square for everyone to hear — the thing Lyora had told him only an hour ago, across a kitchen table, that she had never said aloud to anyone.
+
+It was not his to tell. He knew that. He told it anyway.
 
 No one said a word.
 
-The captain studied him. The steady hands. The shoulders. The faint scar at the temple, pale in the torchlight. Whatever he saw there, it seemed to answer a question.
+The captain looked at Lyora for a long moment. At her apron, and her green-stained fingers, and her grandmother’s arm through hers. Something in his tired face gave way — the look of a man thinking of a door of his own, very far from here, and a small girl standing in it.
+
+He studied Esdel. The steady hands. The shoulders. The faint scar at the temple, pale in the torchlight. Whatever he saw there, it seemed to answer a question.
 
 “Him, then,” he said. “He looks like he can walk.” He turned to Arwen, and his voice gentled again. “We’ll return him safely, grandmother. You have my word.”
 
@@ -166,7 +186,7 @@ When she took her hands away, her voice had changed. It was lower. It was shakin
 
 Her breath broke.
 
-“You *took* it,” she said. “You took it out of my hands in front of the whole village, and you lied about my ankle, and you didn’t look at me, and now I don’t even get to be brave. I just — I just have to stay. I have to *stay*. I have to stand at that gate and watch someone walk up the road and *mean it*, and come home, and light a lamp for—”
+“You *took* it,” she said. “You took it out of my hands in front of the whole village, and you told them about Mother and Father — you told the whole *square*, things I told you, things I never told *anyone* — and you didn’t look at me, and now I don’t even get to be brave. I just — I just have to stay. I have to *stay*. I have to stand at that gate and watch someone walk up the road and *mean it*, and come home, and light a lamp for—”
 
 She could not finish.
 
