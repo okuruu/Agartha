@@ -1,6 +1,6 @@
 # Arc Plan: The Apprentice (revision of Ch5–31)
 
-**Status: OPEN.** A revision pass on existing chapters, not new chapters. No renumbering.
+**Status: DONE (Sept 2026). Archived; never reuse.** A revision pass on existing chapters, not new chapters. No renumbering.
 
 ## Goal
 Before the soldiers come (Ch32), Esdel should read as **Arwen's apprentice first**, with the village's helper and engineer second. Every day starts at the shop: sorting, grinding, drying, labeling, learning. The bamboo, the fences and the water wheel happen *after* the shop work, in the afternoons and on days Arwen can spare him. By Ch31 he's a capable junior apothecary. That's why the captain takes him as a healer (Ch37), why the camp calls him "Apothecary," and why Halden eventually respects him (Ch43).

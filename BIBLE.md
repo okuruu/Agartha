@@ -59,14 +59,17 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - Wears **Lyora's mother's silver necklace** with a small flower charm (Ch38). It warms against his chest.
 - Promised Lyora "I'll stay" (Ch36), then "I'll come back" (Ch37). He's never broken this on the page.
 - Fights by instinct, not memory (Ch35, 40–41). He can't use body-enhancement magic (Ch40).
-- Titles and nicknames: "the man who never complains" (Edenridge), "Apothecary" (camp), "Hero" (Ch42), "the backwater genius" (Ch47).
+- Titles and nicknames: "the man who never complains" (Edenridge), "the apprentice" (Edenridge, Ch10–11, 23), "Apothecary" (camp), "Hero" (Ch42), "the backwater genius" (Ch47).
 - **Since Ch92 he is a declared traitor.** The decree names him "*the apothecary Esdel, of no family, formerly of the Third Logistic Company and the medical division of the North Ridge post, late of the village of Edenridge*." The bounty is **1,000 gold crowns, living or dead.** The decree has no description of his face. **Aldric withheld it on purpose** (Ch97): he told the Ministry's limner he "barely remembers him," so Esdel will feel safe and, in time, head home to Edenridge, where the watchers wait. Esdel wondered about it once (Ch98) and let it go.
 - **He can never go home** (Ch93). The name of the village is on the decree, and Aldric knows it (Ch76). He stays with Xueyao so the hunt runs *away* from Edenridge. This is how he keeps his promise to Lyora: by staying away.
 - He burned every letter he wrote to Lyora (Ch76, 85). He keeps **one torn scrap of paper with a single word on it**, tucked behind the silver flower on the necklace (Ch85). The word is never revealed.
 - Sent Lyora **a plain brown cord with three of his knots** through a south-bound peddler, with no message (Ch98).
 - Never told Xueyao "the rest" about the tonic (that it *binds* the drinker to whoever spends the most time with them while it works; the pourer doesn't matter). He carries the note in his coat (Ch72).
 - Used Halden's **blue vial** at the Greenwater ford (Ch91). He took a spear through the left side, and it closed on the second night (Ch93).
-- He instinctively knows plants and poisons (Ch71–72, 96) and writes in a "small, strange hand" that isn't like anyone else's (Ch71, 75).
+- **He learned his plants and poisons.** It isn't instinct. He learned from Arwen and Lyora as Arwen's **apprentice** in Edenridge (Ch5–31), and later from Halden (Ch71–72, 96). He writes in a "small, strange hand" that isn't like anyone else's ("as if a spider walked through the ink with great care," Ch7; Ch71, 75).
+- **The apprentice (Ch5–31):** every day starts at the shop at dawn (grind, sort, dry, sweep, labels). Village help and the bamboo happen **in the afternoons** ("The shop comes first. Mornings are hers. Afternoons, I'm yours," Ch10). He learned every shelf label overnight (Ch6). Lyora gave him a string-bound **notebook** of receipts (Ch7), and Arwen gave him a **slate** that he keeps under his bed for sums and puzzles at night (Ch9, 16). He measured his first dose alone, willow bark for a fever (Ch13), and helped treat Eldric's father's leg (Ch25–29). Arwen called him "the best apprentice this house has had" (Ch30).
+- **The grey-leaved plant (Ch17):** Lyora stopped his hand in a shaded hollow: "*We don't use that. Not ever.*" She gave no name. He drew it in his notebook: "*Ask Arwen why.*" He never did. It was greyveil (Ch72).
+- **Personality on the page:** gentle humor that puts people at ease; he reads people and stops joking when it stops helping; he comforts; he asks "why" about everything; he makes friends easily. When a woman grows warm toward him he notices early and steps aside kindly (the mill-lane widow, Ch18). **Never explain why he is like this.**
 - **He has never killed anyone in this Kingdom's service.** He spared the Count at the ford by choice: "I didn't want to be the kind of man who would" (Ch93). He did kill the enemy captain in Ch41.
 
 **Lyora Ardynne Aurelisse**
@@ -88,7 +91,7 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - Since Ch29: Lyora leaves **a lamp lit, turned low, at the foot of the stairs** every night. Two cups of tea in the morning, with Esdel's made the way *she* takes hers (honey, a sprig of mint, not too hot). He always eats the supper she leaves by the stairs.
 - Lyora's **drying rack** against the south wall of the yard was given by Eldric but built by Esdel with his irrigation knots (Ch25). She knows.
 
-**Arwen Lysandra Aurelisse**: Lyora's grandmother and the village apothecary. Silver hair (braided), soft green eyes. Calm and wise, with a quick wit in company (Ch30). She calls Esdel "child" and "my child." **Her hands have begun to tremble (Year 2)**. She can no longer strike a flint (Ch82). She gave up her own lamp oil in winter so the stair lamp could burn (Ch70).
+**Arwen Lysandra Aurelisse**: Lyora's grandmother and the village apothecary. Silver hair (braided), soft green eyes. Calm and wise, with a quick wit in company (Ch30). She calls Esdel "child" and "my child." **Her hands have begun to tremble (Year 2)**. She can no longer strike a flint (Ch82). She gave up her own lamp oil in winter so the stair lamp could burn (Ch70). She keeps a **cedar box of old receipts**, some in an older hand, "that one my mother swore by" (Ch18). She knows why the house never uses the grey-leaved plant (Ch17, 72), though no one has asked her.
 
 **Edenridge**
 - A village between low hills, forest, and silver streams, at the edge of the desert. It has a river, a river shrine, the apothecary (ivy-draped, with the attic above), a market square, and a great tree in the square.
@@ -145,6 +148,8 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 | Eldric's father | His leg was crushed under an overturned cart in spring. Heals slowly: bedridden, then crutch (Ch27), then cane (Ch29). Proud and stubborn. | Ch25 (mentioned) |
 | **Hessa** (Eldric's mother) | Worn thin, "never cries" but did. Wanted Eldric married by harvest; the go-between was postponed. A year later she asks Lyora herself to "think on it" (Ch82). Eldric will be thirty next spring. | Ch25 (mentioned), named Ch82 |
 | The peddler | A thin, weathered man with faded blue eyes and a grey beard. His sister is a widow in the forest country whose son went for a soldier and never wrote. He carried Esdel's cord to Lyora "into her hand, no one else" and said nothing (Ch98). | Ch98 |
+| The mill-lane widow | Young, unnamed. Came to the shop three times in one week with a honey cake. Esdel broke it into three, "Now you've fed the whole house." She left smiling, not hurt (Ch18). Her small son came alone for cough syrup the next day (Ch19). | Ch18 |
+| The baker's helper | Lanky teenage boy. Burned his hand on a skillet at the midsummer feast; Esdel cooled it in the water barrel (Ch15). | Ch15 |
 | The well aunties | Two women of the lower street. The village's rumor mill. | Ch25 |
 | Dye-merchant | **A one-time stranger.** Sun-browned woman, hands blue to the wrist, came from Harrowmere way. Asked Esdel about her cart wheel, laughed, gave him a scrap of red cloth. Gone by evening and never seen again. | Ch26 |
 | Old Pell | Nail-seller at the market who "tries to sell the rusted ones." | Ch26 |
@@ -392,6 +397,7 @@ Anchors that must stay consistent:
 21. **Eldric** is waiting "to see how the story ends" (Ch82). Hessa wants him married by thirty.
 22. **Loryn** never told Esdel he searched for him (Ch94). **The bearded soldier** and his child (Ch39, 42).
 23. **"People leave this house"** (Ch29). Lyora's parents' story was told in Ch37.
+24b. **The grey-leaved plant** (Ch17): "*Ask Arwen why.*" Why does the Edenridge apothecary know greyveil well enough to forbid it? Unasked (Ch72).
 24. **The scrap of red cloth** from the dye-merchant (Ch26), left on Esdel's sill in Edenridge.
 25. **The exiles**: Xueyao, Esdel, Pei Lun, Gao, and four old soldiers, in the north-eastern borderlands (Ch96–98).
 
@@ -499,6 +505,11 @@ The following were corrected while splitting `Novel.md` into `Novels/`. The orig
 - Inserted between the nightmare (Ch24) and the laughing village day (now Ch30). The old Ch25–61 were renumbered to **Ch30–66**. Every chapter reference in this bible has been updated.
 - Knock-on edits: **Ch30** gained a line placing it a week after the storm, with the ankle healed and the lamp still lit. **Ch31** changed "festival still ringing in my head" to "market still ringing."
 - Design rules the arc follows: nobody is a villain; Esdel is never close with other women (Lyora's jealousy is her reaction to one passing exchange); no promises and no "love" before Ch34–37; Esdel takes no injuries; nothing about the woman in white or the Karunākṣa.
+
+### *The Apprentice* (revision of Ch5–31), Sept 2026
+- Plan: `Ideas/Done/[DONE] Arc Plan - The Apprentice (Ch5-31 revision).md`. **Status: DONE**, archived.
+- This was a revision pass, not new chapters, so there's no renumbering. Esdel is Arwen's apprentice first and the village engineer second. His personality (humor, comforting talk, love of study, kind distance from women's attention) now shows on the page.
+- Also changed: bold names removed from the prose of Ch5–18 (Ch24's "**Fight.**" stays). Ch72 gained the callback to the Ch17 plant.
 
 ### *The Maiden's Exile* (Ch67–98), added Sept 2026
 - Written from `Next Arc.md` §12–23 (items 1–11 were already Ch51–66). Plan: `Ideas/Done/[DONE] Arc Plan - The Maiden's Exile.md`. Both files are **DONE** and archived; don't reuse them.
