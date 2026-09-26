@@ -34,17 +34,7 @@ She paused. “To keep what it has, I suppose. Until it’s safe to come up agai
 
 He looked at her a moment. She was already moving on.
 
-By the stream she stopped him with a hand flat against his chest.
-
-White flowers, broad and lacy as a bride’s veil, nodding over a tall stem. He knew this one — wild carrot, Arwen had shown him the dried seed. He started to reach.
-
-“Look at the stem,” Lyora said.
-
-He looked. Smooth. Hairless. Blotched with small purple spots, like a bruise that wouldn’t heal.
-
-“Wild carrot is hairy,” she said quietly. “This isn’t wild carrot. Crush a leaf and it smells like mice. Children have died of that one, mistaking it for supper.” She let her hand fall. “That’s the lie.”
-
-He wrote that down too, and underlined it twice.
+By the stream she showed him yarrow, and how to tell the good leaf from the tired one, and he wrote that down too.
 
 They went on. Deeper, where the canopy closed and the light went green and dim.
 
@@ -105,7 +95,7 @@ In that moment, surrounded by the hush of the forest and the weight of her words
 
 That night, in the attic, he opened his notebook by the candle.
 
-Feverfew, bitter. Chamomile, apples. Valerian, autumn, the root. The spotted stem, underlined twice.
+Feverfew, bitter. Chamomile, apples. Valerian, autumn, the root. Yarrow, the green leaf, not the brown.
 
 Beneath them, slowly, he drew a small grey leaf with a bowed flower above it.
 

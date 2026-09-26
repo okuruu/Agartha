@@ -72,7 +72,7 @@ She looked at him a moment longer, and he saw the question rise in her face and 
 
 ---
 
-Twice that week, Arwen sent him up to Eldric’s farm in Lyora’s place.
+Once that week, on a morning when the line at the counter ran out the door, Arwen sent him up to Eldric’s farm in Lyora’s place. It was only the once. The farm was Lyora’s to tend, and everyone knew it.
 
 “Lyora has the counter, and I have the ledgers,” she said, handing him the basket. “Comfrey for the poultice. Check the bindings at the ankle. And don’t let him talk you out of the willow.”
 

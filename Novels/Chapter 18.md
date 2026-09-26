@@ -6,13 +6,13 @@ Arwen brought it out one morning and set it in front of him with a small thump, 
 
 “If you’re going to keep asking me why,” she said, “you may as well ask the dead.”
 
-Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in a hand older still, slanted and crowded, the ink gone the brown of tea. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
+Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in a third hand, quick and slanting, that crowded the margins and ran off the edges of the page, as if whoever wrote it had always been in a hurry to get somewhere. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
 
-“Nobody’s read these in thirty years,” Arwen said.
+“Nobody’s read these in years,” Arwen said.
 
 “Then they’ve been waiting,” he said, and she snorted and left him to it.
 
-He copied them into his notebook, one by one, in his small, strange hand. In the early hours before the shop opened, and in the slow hour after, and in every gap between. When a receipt disagreed with what Arwen did now, he marked it, and later he asked her, and she would tell him — *that one burned the tongue; that one my mother swore by and I never did*. He wrote her answers down beside the old ones, so the pages talked to each other.
+He copied them into his notebook, one by one, in his small, strange hand. In the early hours before the shop opened, and in the slow hour after, and in every gap between. When a receipt disagreed with what Arwen did now, he marked it, and later he asked her, and she would tell him — *that one burned the tongue; that one Lyora’s mother swore by, and I never did*. The first time she said it, she stopped, and looked at the slanting hand for a moment, and then went back to her mortar. He did not ask about that one again. He wrote her answers down beside the old ones, so the pages talked to each other.
 
 It was quiet work. He liked it more than he could have explained.
 
