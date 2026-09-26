@@ -1,141 +1,91 @@
 # **Chapter 36**
 
-The night was steeped in quiet.  
-Even the cicadas sang in hushed tones, their faint chorus threading through the cool wind that moved between the houses of Edenridge. The moon was a pale wound in the sky, its light trembling through the shifting clouds, spilling faint silver across the apothecary’s garden.
+The night was very still.
 
-Esdel sat there — still, unmoving — as though carved from the night itself.  
-His hands rested on his knees, trembling just enough to betray him. The faint scent of crushed herbs drifted through the open window behind him, but it did nothing to steady his pulse.
+Even the cicadas sang low. The moon came and went behind thin cloud, and each time it came, it laid a little silver across the garden — the rosemary, the bean poles, the stone bench by the wall where Esdel sat with his hands on his knees.
 
-He could still see it — her face from earlier, eyes wide, the soldier’s hand tightening around her throat. The sound of her strangled gasp echoed in the hollow of his mind, looping endlessly. It was unbearable. He should’ve moved sooner. He should’ve stopped it before it began.
+He was looking at them. His hands.
 
-The guilt pressed down like a hand on his chest.  
-The world had slowed, then — and all he’d felt was a sharp, instinctive rage, an old and unfamiliar rhythm in his blood that had moved before his thoughts could. The soldier’s weight, the dull thud of a body hitting the earth — and Lyora’s breath, rasping back to life.
+They had been steady all day. Steady on the soldier’s ribs. Steady on the twist that had put a grown man on the ground before anyone else in the tent had understood what was happening. Steady afterward, cleaning the scrape on his own knuckles with calendula, the way Arwen had taught him.
 
-He dragged in a shallow breath. The memory blurred at the edges, yet it lived behind his eyes — cruelly vivid.
+They were not steady now.
 
-The door creaked open.  
- Soft, hesitant steps broke the rhythm of the cicadas.
+He could still hear it. The small, dry, terrible sound of her breath stopping. He could still see her hands clawing at a stranger’s wrists, and her eyes finding his across the tent — not asking for help. Only finding him. As if, whatever was about to happen, she wanted his face to be the last thing.
 
-“...You’re still awake?”
+He had moved before he knew he was moving. And the part of him that had moved had not been afraid at all.
 
-Her voice came softly, weary but kind — that voice that could smooth over the sharpest edges of him.
+That was what he could not stop looking at.
 
-He didn’t turn. “Couldn’t sleep.”
+---
 
-She stepped closer, her shawl drawn tight around her shoulders. The fabric brushed against her wrists, pale under the moonlight. “Neither could I,” she murmured.  
-The air carried the tremor she tried to hide.
+The kitchen door opened behind him.
 
-He offered her a tired smile that never reached his eyes. “You should rest. It’s been a long day.”
+He knew her step. He did not turn round.
 
-“I should say the same to you,” she said, lowering herself beside him. Her knees brushed the grass, the hem of her dress whispering over the soil.
+“You’re still awake,” she said.
 
-They sat there in silence, the kind that felt like standing on the edge of something dangerous — both of them too afraid to look down.
+“So are you.”
 
-“…Thank you,” she whispered.
+She came across the grass in her shawl and sat down on the bench beside him — not close. A hand’s width. There were red marks on her throat, going dark at the edges now. She had not covered them. He did not let himself look at them for long.
 
-He blinked, startled by how fragile her voice sounded. “For what?”
+They sat.
 
-“For saving me.”
+“Thank you,” she said, after a while.
 
-He stared ahead, the moonlight turning his eyes to silver glass. “Anyone would’ve done it.”
+“Anyone would have—”
 
-“No.” Her reply was soft, but it trembled like a thread pulled too tight. “Not anyone.”
+“No.” Not sharp. Only certain. “Not anyone.”
 
-The words found a quiet place in him — and hurt. He wanted to deny it again, but something in her tone stopped him. His throat closed around the words.
+He said nothing.
 
-Her fingers toyed with the hem of her dress. “When I felt his hand on my throat, I thought that was it. I thought… that was how I’d die. But then—” she faltered, eyes darting to him “—you were there.”
+“When his hands were on me,” she said, “I thought, *so this is how.* That was all. Not frightened, even. Just — *oh. So this is how.*” She looked at the bean poles. “And then you were there.”
 
-He swallowed. “I didn’t think. My body just… moved.”
+“I didn’t think,” he said. “My body just moved.” He turned his hand over in the moonlight. “It didn’t feel like saving you. It felt like remembering something.”
 
-Her lips curved weakly. “Then let it. Because no one else could’ve saved me.”
+She was quiet.
 
-He wanted to meet her gaze, but his chest ached with the weight of it.  
-“It didn’t feel like saving,” he murmured. “It felt like… remembering.”
+“Sometimes,” he said, “when I close my eyes, I see a woman. In white. Standing a long way off, looking at the horizon. I can’t see her face.” He had never said it aloud. It came out of him very plainly, like a stone set down on a table. “But I know she’s waiting. For me.”
 
-She looked at him, puzzled, but her voice gentled. “Remembering?”
+Lyora did not move. The moon went behind a cloud and came out again.
 
-He exhaled, shaky. “Like I’ve done it before. Like I’ve fought before. But I don’t know when… or why.”
+“Do you want to find her?” she said.
 
-His hands rose, covering his face. “Everything is blank. I hate it. It’s like a piece of me is out there somewhere, living a life I can’t recall.”
+“I don’t know.” He pressed the heel of his hand against his chest, where it had ached all summer, for no reason anyone could find. “Part of me does. And part of me thinks if I remember her, I’ll lose something I can’t ever get back.”
 
-From beside him, Lyora watched his shoulders shake — the helplessness, the quiet exhaustion.  
-She reached out before she could stop herself. Her fingertips brushed his shoulder, feather-light.
+She sat very still beside him.
 
-That simple touch broke something in him.
+Then she said, quite quietly, “Then don’t remember her.”
 
-Esdel’s breath hitched. The world shrank to that single point of contact — her warmth seeping through the thin fabric of his shirt. He almost leaned into it. Almost.
+He turned his head.
 
-When he spoke, his voice came out raw. “Sometimes, when I close my eyes, I see her.”
+She was not crying. Her face was pale and composed in the moonlight, and her hands were folded in her lap. Only her voice gave her away — very low, and very careful, the voice of someone walking across ice.
 
-Her heart stilled. “...Her?”
+“I’m not a good person tonight,” she said. “I know that. I know I should say *go and find her, find out who you are, you deserve to know.* Grandmother would say that. I’ve been saying it to myself all evening, in the kitchen, with the kettle.” She looked down at her hands. “I can’t. I’m sorry. I don’t want you to find her. I want you to stay here, where it’s warm, and grind feverfew badly, and never remember anything at all.”
 
-He nodded faintly. “A woman in white. She’s always standing far away, looking toward the horizon. I can’t see her face… but I know she’s waiting for me.”
+A tear went down her face. Only one. She did not wipe it. He did not think she had noticed it.
 
-Lyora’s breath caught. She wanted to ask who, wanted to ask why it hurt him to say her name — but something in his voice made her afraid to.
+“Every time you look at the horizon,” she said, “I watch you go a little further away. Even when you’re sitting right next to me. Do you know what that’s like? To watch someone leave while they’re still in the room?”
 
-Esdel’s eyes clouded. “Every time I see her, it feels like something… or someone… is looking for me.”
+He knew. He was doing it to her now.
 
-She could only look at him, unable to speak. Tears welled in her eyes before she realized it, tracing quiet lines down her cheeks.
+“I’m frightened,” he said. It surprised him, how easily it came. “Not of her. Of — something coming. Something that’s going to take you from me. I don’t know what. But I can feel it, the way you feel rain before it comes.”
 
-Finally, she whispered, “Do you… want to find her?”
+She reached out, then. Only her fingertips, on the back of his hand. The lightest touch.
 
-The question lingered like a ghost between them.
+“Nothing is taking me anywhere,” she said. “I’m the one who stays. That’s what I do.” A breath. “So stay with me.”
 
-He hesitated. The wind stilled, the garden waiting for his answer.
+He looked at her hand on his.
 
-“I don’t know,” he said at last. “Part of me wants to. But another part—” he pressed a trembling hand against his chest, “—feels like I shouldn’t. Like if I remember her… I’ll lose something I can never get back.”
+“Stay,” she said again, so softly he almost did not hear it. “Please. Don’t chase ghosts.”
 
-Lyora bit her lip, the taste of salt and fear on her tongue.  
-“Then don’t remember her,” she said suddenly, her voice trembling. “Please. Stay as you are now. Stay here, where it’s safe… where it’s warm.”
+And he looked at the red marks on her throat, and the single tear drying on her cheek, and the small brave line of her mouth, and he heard himself say it.
 
-He turned, startled by the desperation in her tone.
+“I’ll stay.”
 
-Her eyes glistened under the moonlight. “You don’t have to find out who you were. You don’t have to chase what hurts. You’re here now — you’re alive, and that’s enough.”
-
-He tried to speak, but the words felt too small for the ache inside him. “You don’t understand—”
-
-“I do!” she burst out. Her tears finally fell, bright in the night. “You think I don’t see it? Every time you stare at the horizon, every time your hand goes to your scar… you look like someone being dragged away from the world!”
-
-Her voice cracked. The sound was small, but it tore through the quiet.  
-“Do you know what it’s like,” she whispered, trembling, “to watch someone disappear right in front of you — even while they’re still here?”
-
-Esdel froze. His chest felt hollow. The sight of her — broken, pleading, beautiful in her sorrow — shattered something he didn’t know was still whole.
-
-He whispered, barely audible, “I’m scared.”
-
-Lyora looked up through her tears. “Of what?”
-
-He swallowed hard. “Of losing you.”  
-He pressed a hand to his chest, voice shaking. “I don’t know why, but… I feel like something will take you away from me. I don’t even know what. But the thought of it — it hurts so much I can’t breathe.”
-
-The words trembled into silence.  
-He covered his face with both hands, shoulders shaking as the restraint finally broke.
-
-Lyora moved before thinking — her heart moving her faster than reason ever could.  
-She threw her arms around him, pulling him close.
-
-Her voice broke against his shoulder. “You won’t lose me. Not while I can still reach you.”
-
-He couldn’t reply. He only clung to her, as if she were the last solid thing in a dissolving world. His breath hitched against her neck. Her tears soaked through his shirt, warm and trembling.
-
-For a long time, they stayed like that — two souls caught between the living and the dead, holding onto a fragile moment neither of them could name.
-
-When she finally spoke again, her voice was small, almost a prayer.  
-“Stay here,” she whispered. “Please. Don’t chase what’s gone. Don’t run toward ghosts.”
-
-Esdel lifted his head. Their foreheads nearly touched, breath mingling. The scent of lavender and crushed mint clung to her skin.
-
-“I… I’ll stay,” he said softly, the words breaking as they left him.
-
-Her lips curved into a tearful smile. “Promise?”
+She let out a breath. “Promise?”
 
 “I promise.”
 
-Outside, the wind carried the faint hum of cicadas once more — the sound of life continuing despite the stillness inside them.  
-The lantern by the window flickered weakly, its light dancing over the walls like ghosts.
+She turned her hand over, then, and laced her fingers through his, and they sat like that on the stone bench in the garden while the moon came and went. Neither of them said anything else. There was nothing else to say. He had promised, and she had believed him, and for a little while — an hour, perhaps less — the whole wide dark world beyond the garden wall went quiet, and let them have it.
 
-They sat together beneath the dim moon, hands tangled, hearts aching in quiet rhythm — two lost souls pretending that peace could last.
-
-And as the clouds swallowed the last of the moonlight, the world seemed to exhale — weary, tender, and full of unspoken hope.
-
-In that fragile silence, with trembling hands and tear-stained cheeks, they prayed — not for salvation, nor memory — but that this fleeting, aching stillness between them might never end.
+He would remember that, afterward. That it was less than an hour.
