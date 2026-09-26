@@ -52,7 +52,9 @@ He hesitated before answering. “Yeah. Just a bit slow today.”
 
 There was a pause. Then, quietly, “You should still eat something. Grandmother made soup.”
 
-“I will,” he lied.
+“Leave it by the stairs,” he said. “I’ll have it when I can.”
+
+It was true. He only did not know when that would be.
 
 Her footsteps lingered, then retreated, fading into the soft clatter of jars and glass downstairs. The faint scent of herbs filled the air — mint, dried hyssop, crushed petals. Normally, that smell meant safety. Now, it only made the room feel smaller.
 

@@ -52,7 +52,7 @@ Eldric laughed and tucked it into the empty basket.
 
 At the gate, Eldric stopped. He looked at the road, not at Esdel.
 
-“You lied to me, you know,” he said. There was no anger in it. Only a kind of tired amusement. “At the fields. *There’s nothing.*” He shook his head. “Badly, too. You’re a terrible liar, Esdel. You go all still, like a heron.”
+“You were wrong, you know,” he said. There was no anger in it. Only a kind of tired amusement. “At the fields. *There’s nothing.*” He shook his head. “You believed it, too. That was the worst of it. I’ve never once heard you say a thing you didn’t believe, Esdel — and you stood there and believed *that*. You went all still, like a heron.”
 
 Esdel opened his mouth. Nothing came out.
 
