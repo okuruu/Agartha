@@ -1,97 +1,81 @@
 # **Chapter 34**
 
-The moon hung low above Edenridge, veiled in a haze of silver that softened the rooftops and the winding stone paths below. The village had quieted at last — fires burned down to faint embers, the air filled only with the chorus of crickets and the sigh of the night wind slipping through the trees.
+The moon hung low over Edenridge, veiled in a thin silver haze. The fires in the square had burned down to embers. Somewhere behind them, in the tents, a wounded man was talking in his sleep.
 
-Two figures walked side by side along the cobbled road that led toward the apothecary. Neither spoke.
+They walked home side by side. Neither spoke.
 
-Esdel’s steps were steady, but his gaze was unfocused — fixed somewhere far away, as though the world before him had blurred into ghosts. Beside him, Lyora held her skirt in tight fists, her fingers pale against the fabric. She tried to match his pace, though every step felt uncertain, weighted by the silence between them.
+The lane was pale under the moon. Their steps sounded too loud on it. Lyora kept her hands folded in her apron, the way she did when she had been grinding all day and did not trust them to be still.
 
-The gravel crunched beneath their feet. The sound felt too loud in the stillness.
+At the well, she stopped pretending.
 
-Finally, unable to bear it any longer, Lyora’s voice broke the quiet.
+“Do you believe him?” she said. “The soldier.”
 
-“Do you… believe what that soldier said?” she asked, bringing it up again.
+Esdel did not answer at once.
 
-Her tone was small, trembling with something she couldn’t name — hope, fear, or both.
+“I don’t know,” he said. “He knew my face. I didn’t know his.” A pause. “I don’t know mine either, most days.”
 
-Esdel didn’t answer right away. His eyes remained on the path ahead. “I don’t know,” he said at last. His voice was low, unsteady beneath its calm. “He recognized me… and yet I can’t remember him. I can’t even remember myself.”
+She almost smiled at that. Almost. It was the kind of thing he said to make people smile, and she could hear, tonight, how much it cost him to say it.
 
-They turned down the narrow lane that curved toward the apothecary. The old wooden sign above the shop swayed softly in the breeze, the faint scent of dried herbs drifting from within. From afar, the building looked almost ethereal — a warm, flickering refuge beneath the pale light of the moon.
+They turned up the lane toward the apothecary. The sign creaked on its bracket. The ivy moved in a breath of wind, and the smell of drying herbs came out through the shutters to meet them, the way it always did, as if the house were leaning out to see who was coming home.
 
-Esdel’s hand brushed through his hair as he exhaled. “If I truly was there,” he murmured, “if I fought in that war, gave them hope, led them even for a moment… then why am I here, alive, when so many never returned?”
+“A banner,” he said quietly. “A siege. Everyone thought I died.” He looked up at the dark window of the attic. “If I was there — if I was someone, once — then someone is missing me. Or someone buried me.” He stopped walking. “And I’m here. Eating your supper. Fixing your stairs.”
 
-Lyora stopped walking. The wind moved her hair, dark strands glinting faintly under the starlight. “Because you deserve peace,” she said quietly. Her voice trembled, but her words were firm. “You’ve suffered enough, even if you don’t remember it. You don’t need to bring that pain back.”
+“You make it sound like theft.”
 
-He turned toward her slowly. His expression was unreadable — calm on the surface, but heavy with exhaustion. “But it keeps coming,” he said softly. “I wake in the dark, choking on air, shaking, and I don’t know why. How can I call this peace when I can’t even understand who I am?”
+“Isn’t it?”
 
-Lyora’s lips parted, but no sound came. She could see it now — the faint tremor in his hands, the haunted glint behind his calm eyes.
+She did not answer that. She went up the step and opened the door and lit the small lamp on the counter, and the room came up gold around her — the jars, the scales, the worktable with his notebook still lying open on it where he had left it that morning, before the soldiers came. She looked at the notebook for a long moment. At the small strange writing, and the drawing of a leaf, and a note in the margin that said *ask A. why honey, not sugar*.
 
-“You’re you,” she finally whispered, the words slipping out as tears welled in her eyes. “The man who helps everyone, who carries the injured, who stays awake when others can’t. You bring light here, Esdel. Isn’t that enough?”
+“Please,” she said, without turning round. “Stop trying to remember.”
 
-He didn’t reply. His silence made her chest ache.
+He stood in the doorway.
 
-When they reached the apothecary’s door, Lyora moved first, lighting the small oil lamp on the table inside. The soft orange glow filled the room, washing the wooden walls in a gentle warmth.
+“You’ll only find something that takes you away,” she said. “That’s all remembering ever does in this house.”
 
-“Please,” she said, turning toward him. Her voice quivered now, fragile as a breath. “Please stop trying to remember. You’ll only hurt yourself more.”
+“Lyora—”
 
-Esdel stood in the doorway, his shadow stretching long across the floor. “If I don’t remember,” he said quietly, “then what if all of this — everything I’ve built here — isn’t mine? What if I’m living someone else’s peace, someone else’s life?”
+“Please don’t leave.” Very evenly. As if she were telling him the price of feverfew. “Don’t leave this village. Don’t leave us.”
 
-That broke something inside her.
+He did not move.
 
-Her knees gave out before she realized it. She sank to the floor, her tears spilling freely. “Please don’t go,” she whispered. Her voice was so small it nearly vanished beneath the sound of the flickering flame. “Please don’t leave this village. Don’t leave us.”
+She set down the taper. Her hand, he saw, was not quite steady.
 
-Esdel froze. Her words hit him harder than any blade.
+“From the first day the caravan carried you to our door,” she said, “I’ve been waiting for you to go. Every morning. I come down the stairs and I look at your cup, and I think — *not yet.* Every morning for a whole summer.” She laughed, very softly, at herself. “I thought if I waited for it long enough, it wouldn’t hurt when it came. That’s how it works with Grandmother’s bitter draughts. You get used to the taste.”
 
-“From the first day the caravan carried you to our door,” she said through broken breaths, “you barely spoke, but you smiled when you saw the garden. You helped even when you were too weak to stand. Every day since then, I kept thinking—maybe you’ll leave. Maybe someone like you doesn’t belong in a place this small.”
+She turned round then, and looked at him, and her eyes were perfectly dry.
 
-Her voice faltered, caught between a sob and a sigh.  
-“And now it feels like it’s happening.”
+“It doesn’t work,” she said. “I’m not used to it. I’m worse.”
 
-Esdel’s chest tightened painfully. He knelt beside her, the floor creaking softly beneath him. He didn’t speak. Words felt too fragile to hold what swelled in his chest. So instead, he reached out and pulled her close.
+He crossed the room. He did not decide to. He was simply there, in front of her, and he did not know what to do with his hands, so he did the only thing they knew — he took hers, both of them, the way he held a patient’s hands when he was about to say something that would hurt.
 
-Lyora gasped — once — before the sobs overtook her. She buried her face against his chest, trembling, the sound of her tears muffled against him. He held her tighter, one hand pressed between her shoulder blades, the other at the back of her head.
+“You’re too kind to me,” he said. “Even when I don’t deserve it.”
 
-Her tears bled through the fabric of his shirt, but he didn’t care.
+“And you’re too cruel,” she said. The smallest, most broken laugh. “For making me love you this much.”
 
-For a long while, the world shrank to the rhythm of her cries and his heartbeat.
+The word went into the room and stayed there.
 
-When she finally began to quiet, he spoke — voice low, roughened by something that wasn’t quite sorrow and not yet acceptance.  
-“I don’t want to forget,” he whispered. “Not this. Not you.”
+He did not breathe. She did not look away. For one long moment they only stood there, in the lamplight, with her hands in his and the word lying between them where neither of them could pick it up.
 
-Her fingers curled weakly into his clothes. “Then don’t remember what hurts,” she murmured. “Just remember what’s here — me, Grandmother, this village. Isn’t that enough?”
+Then she took her hands back — gently, one and then the other — and went past him to her room, and closed the door.
 
-He wanted to say yes. Gods, he wanted to. But the words caught in his throat.
+---
 
-“I wish it were that simple,” he said softly. “But something keeps pulling at me. Like a voice I can’t shut out. Something unfinished.”
+He did not go up to the attic.
 
-Lyora shook her head, her tears falling anew. “Then you’ll only end up hurting again.”
+He sat down on the stairs, on the second step, in the dark, with his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
 
-“I already am.”
+Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother would not wake, and so that the man on the stairs would not hear.
 
-The silence that followed was unbearable — the kind that ached to be broken but couldn’t be.
+He heard.
 
-They stayed there for what felt like hours, locked in a stillness too fragile to disturb. The lamplight trembled across their faces, throwing soft shadows that stretched and swayed against the wooden walls.
+He sat with his hands clasped between his knees and his head bowed and listened to every breath of it, and did not knock. He wanted to. He wanted to more than he had wanted anything in the whole long summer. But if he knocked, he would have to say something. And the only true thing he had to say was the thing she had just said, and he did not know if a man with no past had the right to say it back.
 
-At last, Esdel loosened his hold. Lyora’s eyes were red, lashes wet, her lips trembling from words she could no longer say.
+So he sat, and listened, and did not knock.
 
-He reached up and brushed her tears away with his thumb, his touch achingly gentle. “You’re too kind,” he said quietly. “Even when I don’t deserve it.”
+Somewhere near dawn, the sound stopped.
 
-Lyora gave a broken little laugh — half pain, half tenderness. “And you’re too cruel,” she whispered. “For making me love you this much.”
+He got up, very quietly, and lit the lamp himself, and turned it low, and set it on the second step where she would find it. Then he went up the stairs, skipping none of them — the third one did not creak anymore — and lay on his bed in the grey light with his eyes open.
 
-The words caught him off guard — sharp, real, unguarded. He froze, breath faltering, as if even the air dared not move.
+He had fixed that stair so it would never wake her.
 
-Before he could respond, she turned away. Her shoulders were trembling again, though her steps were slow and deliberate. She walked toward her room without another glance.
-
-The sound of the door sliding shut behind her echoed through the small house like the closing of something sacred — a quiet wound sealed by necessity, not healing.
-
-Esdel stayed where he was for a long time, staring at the space she’d left empty. The warmth of her lingered faintly against his chest. His hands trembled as he lowered them to his knees.
-
-He stood, after a while, and stepped outside.
-
-The air was cold now. The moon still hung in the same quiet sky, pale and distant, as though it watched without judgment.
-
-“She’s right,” he murmured to the still night. “Life is good here.”
-
-But the ache in his chest said otherwise.
-
-And when he finally went upstairs to his room, the silence followed him — heavy, suffocating, filled with everything they couldn’t say, and everything he couldn’t yet remember.
+He lay there and wished, for the first time, that it would.
