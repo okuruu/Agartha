@@ -1,124 +1,123 @@
 # **Chapter 38**
 
-Morning came too soon.  
-The light crept through the mist like something uncertain of its place, soft and pale against the roofs of Edenridge. Dew gathered along the wooden fence outside the apothecary, glittering faintly before it disappeared under the faint touch of wind.
+Morning came too soon.
 
-Esdel stood near the village gate, the strap of his pack cutting faintly across his shoulder. The scent of the apothecary’s herbs still clung to his clothes — lavender, dried sage, a trace of something floral he couldn’t name. Around him, the soldiers moved in a quiet rhythm, adjusting belts and tightening packs, their armor clinking with a sound that didn’t belong to the morning.
+The mist lay low on the fields and the light came through it thin and pale, as though it were not sure it was allowed. Dew on the fence rails. Dew on the ivy. A single bird somewhere in the willows, trying one note over and over and not getting it right.
 
-They looked at him sometimes, just briefly, as though they weren’t sure whether he was one of them or not.  
-He wasn’t. Not yet.
+At the gate at the bottom of the village, the soldiers were forming up. Buckles. Straps. The small tired sounds of men who had done this too many times to talk about it.
 
-Beyond the gate, the path wound upward through the hills — thin, gray, endless. Somewhere beyond it, the world was on fire again.
+Esdel stood among them with his pack on his shoulder.
 
-He didn’t look at that.  
-He looked back, instead.
+They looked at him sometimes, sidelong. He was not one of them. Not yet.
 
-The villagers had gathered, a quiet crowd dressed in sleep-worn clothes and worry. Mothers clutched their children close, old men leaned on canes, their faces creased with both pride and grief. They came one by one — offering bread, charms, the smallest things they could spare.
+The village had come down to see him off. He had not expected that. They stood along the lane in the mist in their sleep-rumpled clothes — the baker with flour already on his arms, Old Richard with his hands jammed in his pockets and his face set like a man at a funeral, the children from the lower street who had followed him to the channels all summer. Reyn, at the back, very large and very silent, holding a small bundle wrapped in oilcloth that turned out to be a set of bamboo splints, cut and smoothed and tied with Esdel’s own knot.
 
-“Just come back,” one old woman said, pressing something into his palm. A talisman, roughly carved, warm from her hands. “That’s all we ask.”
+“Figured they’d have trees,” Reyn said gruffly. “Didn’t figure they’d have *good* ones.”
 
-He nodded. His voice caught before he could thank her.
+Esdel could not answer him. Reyn clapped him on the shoulder, hard, and went back into the crowd.
 
-Then came others — voices young and trembling, laughter trying to hide its edge of fear.  
-“Don’t stay gone too long!”  
-“You’ll be missed!”
+An old woman pressed a carved talisman into his palm. Someone gave him bread. Someone gave him a pair of socks, knitted in three colors of leftover wool. *Come back,* they said, one after another, *come back, come back safe,* not loudly — the way people say it in the mist, at dawn, when they do not want to wake the thing they are afraid of.
 
-It spread through the crowd like a soft chant — not quite hope, not quite farewell. Just the village’s heart trying to keep him tethered.
-
-And for a moment, he almost believed he could stay.
+He nodded to each of them. He could not trust his voice.
 
 Then he saw her.
 
-She stood a little apart from the crowd, just beyond the garden’s low stone wall. Her apron was dusted with crushed petals, her hands still faintly green from herbs she’d handled that morning as if to keep herself busy — as if to pretend there was something to prepare him for.
+---
 
-Her eyes were different now. The fire that had once filled them had dimmed, replaced by something quieter — a sorrow too steady to be called fear.
+She was standing a little apart, by the wall of the last house.
 
-She saw him and felt her breath catch. The rest of the village faded into nothing. It was only him now — the man she wasn’t supposed to love, the man who might vanish into a world that took everyone she’d ever cared for.
+She had washed her face. She had braided her hair again, tight and neat, and tied it with a strip of plain cloth. She was wearing her apron. Her eyes were swollen almost shut, and red at the rims, and there were marks on her throat from the day before, and she was perfectly, entirely calm.
 
-“Wait,” she said softly, when he turned to leave.
+She had nothing left to cry with. He could see it. She had left it all on the stairs, in the night, in his arms. What stood by the wall in the mist was what remained when all of that was gone: a young woman with very straight shoulders, who was not going to make this harder for him than it already was.
 
-Her voice trembled, but it carried. The soldiers paused. Esdel did too.
+It was the most painful thing he had ever seen.
 
-She walked forward, her fingers tightening around something she held. When she stopped before him, the sunlight caught on silver — a necklace, delicate and old, its charm shaped like a tiny flower.
+She came toward him. The soldiers made room without being asked.
 
-“This belonged to my mother,” she said, her voice barely above the morning wind. “She gave it to me the day she left with Father. I always thought… if I gave it away, it would mean the person wearing it would come home.”
+She stopped in front of him and opened her hand.
 
-She looked up at him then — her eyes glimmering with the reflection of everything she couldn’t say.
+A necklace lay in her palm. Silver, old, fine as thread, with a small charm shaped like a flower.
 
-“Please,” she whispered. “Take it. Come back to me.”
+“This was my mother’s,” she said. Her voice was hoarse. Worn to nothing. “She gave it to me in the doorway, the day she left with Father. I always thought—” She stopped. Started again. “I always thought if I gave it away, it would mean the person wearing it had to come home. To give it back.”
 
-He didn’t breathe for a moment.  
-The necklace lay in her palm, trembling faintly with her heartbeat. He could see the fine chain glinting in the sunlight, could feel the weight of what it meant — not just a wish, but a piece of her.
+She lifted it. Her hands were steady.
 
-He took it carefully, his fingers brushing hers — a fleeting touch that felt like both fire and forgiveness.
+“So you have to come back,” she said. “To give it back to me.”
 
-When he fastened it around his neck, the charm settled against his chest, cold at first. Then it warmed, almost like it recognized him.
+He bent his head. She fastened it around his neck herself — her cold fingers at his nape, fumbling once on the clasp, then finding it. The charm settled against his chest. It was cold for a moment. Then it was warm.
 
-“I’ll guard it,” he said quietly. “And I’ll guard myself.”
+She did not step back at once. She stood there with her fingertips resting on the chain at his collarbone, looking at the small silver flower, not at him.
 
-Her breath hitched. She tried to smile — brave, steady, impossible — but the corners of her mouth faltered before they reached her eyes.
+“Come back to me,” she said.
 
-“I’ll be waiting,” she murmured. “No matter how long it takes.”
+“I’ll guard it,” he said. It came out lower than he meant. “And I’ll guard myself.”
 
-He wanted to answer. To promise her something stronger than words. But all he could do was look — at the way her hair fell loose around her shoulders, at the faint stain of herbs on her hands, at the trembling hope in her eyes.
+She nodded. Once.
 
-His hand rose almost on its own. He brushed her cheek with his fingertips.  
-Her skin was cool, soft. She leaned into his touch for a heartbeat — then the world moved again.
+Then she looked up. Their eyes met again, the way they had met on the floor at the foot of the stairs — and he saw that she was holding herself together with nothing but her will, the way a hand holds a cracked cup, and that if he said one more word, one kind word, it would break.
 
-“Form up! We march!”  
-The captain’s voice split the silence.
+So he did not say it.
 
-She flinched. The moment shattered like glass.
+He put his hand against her cheek, the way Arwen had put hers against his the night before. She closed her eyes and leaned into it. One heartbeat. Two.
 
-The soldiers began to move — boots against earth, steel against the faint morning hum. Esdel turned with them, his back straight, his head low. The silver charm at his neck caught the light, flashing once, like a small defiance against fate.
+“I’ll be waiting,” she said, with her eyes closed. “No matter how long it takes.”
 
-She wanted to call his name.  
-But her throat wouldn’t open.
+“Form up!” called the captain. “We march!”
 
-So she just watched. Watched the way his steps grew slower as the path turned toward the hills, the way he almost — almost — looked back.
+She opened her eyes. She stepped back. She folded her hands in her apron.
 
-The villagers were calling now, their voices rising and trembling:  
-“Come back quickly!”  
-“Come back safe!”  
-“We’ll wait for you!”
+And she did not cry.
 
-Her lips moved too, but the sound barely left her.  
-“I’ll wait…”
+---
 
-The mist swallowed her words.
+He walked.
 
-The road climbed higher, the village fading behind him. The shouts of farewell blurred into wind and birdsong. But he still felt it — that fragile thread between them, pulling against his chest with every step.
+The column moved out through the gate and onto the river road, and the mist closed behind it. The villagers were calling now, their voices coming thin and scattered through the grey — *come back, come back quickly, we’ll wait* — and then the road turned, and bent up into the hills, and the voices went small, and smaller, and were gone.
 
-The necklace shifted, the charm tapping softly against his heartbeat.
+He did not look back. He had promised himself he would not. He knew what would happen if he did.
 
-Beside him, a younger soldier broke the silence. “First time leaving home?” he asked, not unkindly.
+At the top of the first rise, he looked back.
 
-Esdel looked straight ahead, the faintest smile ghosting his lips.  
+The village lay below in the thinning mist. The apothecary roof. The ivy. The narrow garden. And at the gate — a long way off now, very small — one figure standing quite still with her hands folded in front of her, exactly where he had left her.
+
+She had not moved.
+
+He stood on the rise and looked at her until a soldier behind him said, not unkindly, “Keep moving, friend,” and he turned, and kept moving, and the hill came up between them.
+
+Beside him, a young soldier with a sunburned neck glanced over.
+
+“First time leaving home?”
+
+Esdel looked straight ahead.
+
 “Something like that.”
 
-The soldier nodded, squinting toward the horizon. “You’ll get used to it.”
+“You get used to it.”
 
-Esdel didn’t answer.  
-He hoped he never would.
+He did not answer. He hoped he never would.
 
-He looked back once — only once — and saw the village through the veil of mist. The apothecary’s roof. The narrow garden. And by the gate, a girl standing still, holding herself like she could keep the world from coming apart.
+---
 
-He turned away before the ache became unbearable.
+Lyora stood at the gate until the last sound of the march was gone from the hills.
 
-The hills waited ahead — wide, gray, and endless.  
-And as the road swallowed the last trace of Edenridge, Esdel whispered under his breath —  
-not a promise, but a prayer.
+Then she stood there a while longer.
 
-Long after the soldiers disappeared, the wind still carried the faint echo of their march.
+The sun came up properly. The mist burned off the fields. The village went back to its work around her, quietly, giving her room — the baker to his ovens, Reyn to his river bend, the children to their chores. Nobody spoke to her. Nobody needed to.
 
-Lyora stood at the gate until her knees trembled, her apron damp with dew. Her hand touched her chest, feeling the empty space where the necklace had rested.
+When she finally walked home, Arwen was in the shop, grinding something she did not need, very slowly, with her back to the door.
 
-It was gone now — and yet, somehow, she felt it still, like part of her heartbeat had followed him.
+Lyora went past her without a word. She went to the kitchen shelf, and took down the lamp, and filled it, and trimmed the wick, and struck the flint, and lit it.
 
-She exhaled shakily, the morning sun finally warming the air around her. Then, quietly, almost to herself, she said—
+In broad daylight. With the sun coming in gold through every window of the house.
 
-“Please… come back. Where it’s warm.”
+She turned it low, and carried it to the foot of the stairs, and set it on the second step.
 
-The garden rustled. The sky turned a little brighter.
+Then she stood and looked at it — the small useless flame, pale in the morning light, burning for no one — and put her hand flat against her own chest, where the necklace had rested since she was a little girl and did not rest anymore.
 
-But the road beyond the hills remained silent.
+Behind her, the pestle had stopped.
+
+Arwen did not say anything. After a long moment, the pestle began again. Slowly. Steadily. The way a heart goes on beating when there is nothing else it can do.
+
+“Come back,” Lyora whispered, to the lamp. “Where it’s warm.”
+
+The lamp burned on. The house was very quiet. And the road beyond the hills, when she went to the window, was empty all the way to the edge of the world.
