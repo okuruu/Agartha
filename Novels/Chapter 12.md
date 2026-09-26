@@ -28,6 +28,66 @@ The night deepened. Music played again. The river shimmered under the reflection
 
 ---
 
+He did not stay long on the bench.
+
+Lyora had set up the apothecary’s table beneath the great tree, the way the shop did at every gathering — a clean cloth over the boards, a row of stoppered jars, a bowl of water, rolled linen. Arwen had gone home early, her knees complaining of the river damp.
+
+“You have your apprentice,” she had told Lyora, patting Esdel’s cheek on her way past. “Make him earn his supper.”
+
+So he earned it.
+
+A fisherman came first, the back of his neck burned red from a day on the water. Esdel reached for the jar before Lyora could point — aloe cut with calendula, cool as creek stone. He knew the label. He knew, too, Arwen’s voice from that morning: *Thin, child. A burn wants air as much as it wants salve.*
+
+He spread it thin.
+
+“Why the calendula?” he murmured to Lyora while the fisherman hissed and then sighed.
+
+“Aloe cools. Calendula mends.” She handed him the linen without looking. “You asked me that yesterday.”
+
+“I wanted to see if the answer had changed.”
+
+“Herbs don’t change their minds.”
+
+“People do,” he said. “I was checking on you.”
+
+The fisherman laughed so hard he forgot to flinch. Lyora pressed her lips together and did not laugh, which was, Esdel was learning, very nearly the same thing.
+
+---
+
+The girl came later, carried on her mother’s hip.
+
+Five, perhaps. One knee scraped raw from a fall on the stones, and in her fist the crumpled remains of a paper fish lantern, its tail torn half away. She was not crying about the knee. She was crying about the fish.
+
+Esdel crouched until his eyes were lower than hers.
+
+“That’s a very good fish,” he said. “What’s his name?”
+
+She hiccuped. Considered him. “Fish.”
+
+“A strong name.” He held out the little cork stopper from the calendula jar. “Will you guard this for me? If it gets lost, the whole festival is ruined.”
+
+She took it gravely and closed her fist around it.
+
+He washed around the scrape with a cloth, talking the whole while — about fish, and rivers, and how lanterns only tore when they were trying very hard to swim. She almost smiled.
+
+Then he saw her lip begin to shake again as the cloth came nearer the raw place, and he stopped talking about fish.
+
+“This part stings,” he said, quiet and plain. “Only once. Then it’s done. You can squeeze my finger as hard as you like.”
+
+She squeezed. It was done.
+
+When the knee was bound, he took a scrap of spare linen and a dab of the resin Lyora used to seal labels, and mended the fish’s tail. It came out crooked. The girl did not seem to mind. She went away on her mother’s hip, holding the fish in one hand and the cork stopper in the other, and no one had the heart to ask for it back.
+
+Lyora was watching him.
+
+“Where did you learn to do that?”
+
+“From you,” he said. “The boy with the splinter. Last week. You talked to him about his dog until it was out.”
+
+She looked at him a moment longer than she needed to. Then she began, very busily, to roll the linen.
+
+---
+
 Later, when the laughter faded into quiet murmurs, **Lyora** found him by the water’s edge.
 
 She carried two cups of herbal tea — steam curling into the cool air — and sat beside him on the old stone embankment. The festival sounds felt far away now, muffled by the rustle of bamboo and the rhythm of the current.

@@ -6,7 +6,7 @@ Each morning, sunlight poured over the rooftops like honey, glinting across the 
 
 For a while, it felt as though nothing in the world could go wrong.
 
-Esdel had become a fixture in the rhythm of village life — no longer a stranger, no longer a wanderer. The Chief often sought his advice for planning harvest rotations or repairing the irrigation lines. Reyn relied on him to inspect water wheels, measure pressure, and balance flow between the upper fields and the village core.
+Esdel had become a fixture in the rhythm of village life — no longer a stranger, no longer a wanderer. His mornings still belonged to the shop: the broom, the drying racks, the mortar’s low grinding song, and Arwen’s voice asking him *why* before he could ask her. Only after that did the rest of the village have him. The Chief often sought his advice for planning harvest rotations or repairing the irrigation lines. Reyn relied on him to inspect water wheels, measure pressure, and balance flow between the upper fields and the village core.
 
 And when he walked through the square, people called his name with easy familiarity.  
 “Morning, Esdel!”  
@@ -42,6 +42,54 @@ But it was during the *evenings* that Esdel felt most human.
 He and Lyora would meet in the apothecary’s garden at dusk, where rows of herbs glowed faintly in the fading light. The air smelled of rosemary and wet soil; fireflies drifted lazily between the flowers.
 
 They’d sit on the old stone bench beside the pond, talking about everything and nothing — her dreams of traveling beyond the forest, her fascination with how the stars always returned to the same places each night.
+
+Some evenings she tested him.
+
+She would pinch a leaf from the garden without letting him see which bed it came from and hold it under his nose in the half-dark.
+
+“Lemon balm,” he said.
+
+Another.
+
+“Yarrow. For bleeding. And fevers, if you’re out of willow.”
+
+Another — a long, grey-green, woolly leaf.
+
+“Mullein. For the chest. Strain it twice, or the little hairs catch in the throat.”
+
+Lyora lowered her hand. “Who told you that?”
+
+“You did. Three weeks ago. You were annoyed with the shelf at the time, so you may not remember.”
+
+She narrowed her eyes and went hunting in the dark along the garden’s edge, and came back with something hidden in her fist. She opened it slowly, like a trick.
+
+A jagged green leaf. He turned it to the last of the light. Frowned. Crushed a corner and smelled it.
+
+“Bitter,” he said. “Deeply toothed. Milky at the break. It could be chicory, but the leaf is wrong for chicory. Some kind of wild lettuce, maybe — the kind you’d use to calm a cough, or to sleep —”
+
+“Esdel.”
+
+“— though the teeth point backward, which is odd, so I’d want to see the flower before —”
+
+“It’s a dandelion.”
+
+He stopped.
+
+“A *dandelion*,” she said. “Children make crowns out of them.”
+
+He looked at the leaf with deep betrayal. “It was a very convincing dandelion.”
+
+She laughed so suddenly she had to cover her mouth, and the sound went out over the pond and startled a frog into the water.
+
+“Why is it bitter, though?” he asked, when she could breathe again.
+
+“Because it is.”
+
+“That isn’t an answer.”
+
+“It’s Grandmother’s answer.”
+
+Later, by candlelight in the attic, he wrote it down anyway. *Dandelion. Leaves bitter. Because it is.* He looked at the line for a while, and found himself smiling at the page.
 
 Sometimes, her grandmother would glance at them from the clinic window, smiling quietly before drawing the curtain closed.
 

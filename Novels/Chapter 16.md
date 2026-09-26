@@ -13,6 +13,18 @@ Yet something unspoken had settled in the air — a faint distance, as if the vi
 
 He tried to brush it off. Told himself it was nothing. But even Reyn, usually quick with laughter, seemed quieter now — studying him sometimes as though trying to understand something that didn’t fit.
 
+And yet they still came to the shop.
+
+In the square they might pause a heartbeat too long. But at the counter, with a cough or a cut or a child who would not sleep, the pause went away. The miller’s mother still asked for “the young one” to mix her joint salve, because his hands were warmer than Lyora’s and gentler than Arwen’s, and she said so to both of them. A carter with a split thumb still sat on the stool and let Esdel clean it, and talked the whole time about his horse.
+
+“Pain doesn’t care what’s strange,” Arwen said, when he mentioned it. She did not look up from the ledger. “It only cares what helps.”
+
+So he tried to help.
+
+He stayed up later than he should have, with a candle stub and his notebook, copying out what he had learned that day and what he had not yet understood. When his eyes grew tired of receipts, he drew the slate out from beneath his bed and filled it with sums — long columns of them, angles and weights and numbers that answered to nothing, for no reason he could have given anyone. Then he wiped it clean with his sleeve and started again.
+
+It quieted something. For a while.
+
 By the third night, Esdel couldn’t sleep.
 
 The moon hung pale and heavy above the rooftops, casting silver across his small room. He sat by the window, the cool air brushing against his face, his thoughts turning in slow, uneasy circles.
@@ -39,7 +51,7 @@ Esdel hesitated before taking the cup. The warmth seeped into his fingers, groun
 
 She didn’t press for more. She never did.
 
-Instead, Lyora stepped closer, her bare feet soundless against the wooden floor, and settled beside him by the window.  
+Instead, Lyora stepped closer, her bare feet soundless against the wooden floor. Her glance passed over the slate on the crate, the chalk columns marching down it, and moved on without a question. She settled beside him by the window.  
 The two sat in silence, the moonlight painting their faces pale and tender.
 
 Outside, the village slept — rooftops silvered by light, the faint chirr of crickets rising from the fields.

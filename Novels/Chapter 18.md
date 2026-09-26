@@ -1,5 +1,57 @@
 # **Chapter 18**
 
+The receipts lived in a cedar box beneath the counter.
+
+Arwen brought it out one morning and set it in front of him with a small thump, and dust rose off the lid in the window light.
+
+“If you’re going to keep asking me why,” she said, “you may as well ask the dead.”
+
+Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in a hand older still, slanted and crowded, the ink gone the brown of tea. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
+
+“Nobody’s read these in thirty years,” Arwen said.
+
+“Then they’ve been waiting,” he said, and she snorted and left him to it.
+
+He copied them into his notebook, one by one, in his small, strange hand. In the early hours before the shop opened, and in the slow hour after, and in every gap between. When a receipt disagreed with what Arwen did now, he marked it, and later he asked her, and she would tell him — *that one burned the tongue; that one my mother swore by and I never did*. He wrote her answers down beside the old ones, so the pages talked to each other.
+
+It was quiet work. He liked it more than he could have explained.
+
+---
+
+The young widow from the mill lane came in three times that week.
+
+The first time for a headache powder. The second for something to help her sleep. The third time she did not seem sure what she had come for, and stood at the counter turning a honey cake in its cloth, asking about the bamboo channels, and whether it was true he could read the slope of a field just by looking.
+
+She had a soft laugh. She laughed at everything he said, a little sooner than it was funny.
+
+Esdel noticed. He noticed it the way he noticed a fever — early, before it had quite decided what it was.
+
+He answered her questions kindly and briefly. When she held out the honey cake, he took it with both hands and thanked her for it warmly.
+
+“The whole shop will be glad of it,” he said. “Arwen has a weakness for honey she thinks nobody knows about.” He broke the cake into three right there on the counter, one piece for Arwen, one for Lyora, one for himself, and set them apart on the cloth. “There. Now you’ve fed the whole house.”
+
+For a moment she only looked at the three pieces.
+
+Then she smiled — a little rueful, a little rosy, but not hurt — and something in her shoulders settled, as if she had set down a basket she hadn’t known was heavy.
+
+“Well,” she said. “Tell your grandmother it was my mother’s receipt.”
+
+“She’s not my grandmother,” he said. “But she’ll want to copy it, and so will I.”
+
+The widow laughed again — properly this time, at the right moment — and went out into the morning with her head up.
+
+Behind him, Arwen had come to the storeroom doorway, a bundle of drying sage in her arms. She did not say anything for a while.
+
+“Kindly done,” she said at last.
+
+“I don’t know what you mean.”
+
+“No,” said Arwen. “Of course you don’t.”
+
+She took her piece of cake, and ate it, and went back to the sage.
+
+---
+
 It was a warm afternoon when Esdel met him — the farmer Lyora had once mentioned in passing. His name was **Eldric**, a man with broad shoulders, sun-bronzed skin, and a voice that carried the comfort of summer wind. There was something effortlessly alive about him — the kind of warmth that made even strangers feel like old friends.
 
 Eldric spotted Esdel near the edge of the riverbank, where he was examining the new wooden channels that redirected the water flow into the village fields.
@@ -67,6 +119,8 @@ Esdel stood there in the dark, frozen. He didn’t know what had hurt her — wh
 He wanted to step closer. To knock. To ask. But what right did he have?
 
 He turned away instead, the faint light from her window flickering across his face as he climbed the attic stairs.
+
+His notebook lay open on the crate where he had left it that morning, the old receipts copied out in his small, strange hand. He did not light the candle. He knew without looking what the last line said. *And sit with them.*
 
 The scent of dried herbs lingered heavier than usual — a blend of sage and sorrow that clung to his skin. He lay down, staring at the ceiling beams above, tracing the cracks like veins. Sleep didn’t come easily. Every time he closed his eyes, he saw her — the trembling of her shoulders, the faint shimmer of tears catching the light.
 

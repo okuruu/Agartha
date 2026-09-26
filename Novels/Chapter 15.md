@@ -8,6 +8,34 @@ Lanterns hung from poles along the banks, their reflections trembling in the slo
 
 Esdel stood among the crowd, relaxed in a way he hadn’t been for years — or perhaps in forever. He listened to Reyn arguing cheerfully with the millwright about wheel design, to Lyora laughing somewhere near the cooking stalls, to the steady rhythm of life moving easily around him.
 
+Then a pan clattered at the cooking stalls, and someone yelped.
+
+He was moving before he had decided to. A lanky boy of fifteen or so — one of the baker’s helpers — stood clutching his right hand against his chest, face white, a skillet of spilled oil smoking on the stones at his feet. He had grabbed the handle bare.
+
+“Butter,” said a woman at once, already reaching for the crock. “Butter on it, quick —”
+
+“Not butter,” Esdel said gently. “It keeps the heat in. My teacher would have my ears.”
+
+He steered the boy to the water barrel by the stall and pushed his hand under the surface, and held it there when the boy tried to pull it out.
+
+“It hurts more in the water,” the boy said through his teeth.
+
+“For a moment. Then less. Then much less.” Esdel kept his own hand loosely around the boy’s wrist. “We’ll stay here a good while. Longer than you want to. That’s the trick of it.”
+
+The boy’s eyes kept sliding past him — toward a girl with a ribbon in her hair, watching from beside the bread table, her hands pressed to her mouth.
+
+Esdel followed the look, and understood.
+
+“You know,” he said, just loud enough, “most people drop the pan. You held on to it. Supper for half the stall, saved.” He glanced at the skillet. “Mostly saved.”
+
+A few people laughed. The girl with the ribbon laughed too — not at the boy — and the boy’s shoulders came down from around his ears.
+
+After that, Esdel said very little. He only kept the hand under the water, counting under his breath, until the redness stopped spreading and the boy’s breathing slowed. When Lyora arrived with the salve jar from the shop’s basket, the worst was already over.
+
+She looked at the barrel, at the boy’s hand, at Esdel.
+
+“Good,” she said, and that was all. But she let him be the one to smooth on the salve and wrap it — loose, so the skin could breathe — and she stood close enough that her sleeve touched his while he worked.
+
 He had become, unknowingly, a thread in their fabric — a presence taken for granted, trusted, and loved in quiet ways. And for a brief, perfect hour, he believed he truly belonged.
 
 Then came the question.

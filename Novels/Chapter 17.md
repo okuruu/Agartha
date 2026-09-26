@@ -6,6 +6,74 @@ The twilight was soft, a delicate veil of gold and indigo draping the world, cas
 
 Lyora moved with a quiet grace, her fingers brushing against the slender stems of feverfew and valerian, her hands steady yet tinged with a restlessness that Esdel could not quite place, as though she were not merely gathering herbs but sifting through the fragments of a memory she had long buried beneath layers of routine and silence. 
 
+She had promised him this for weeks. Not an errand — a lesson.
+
+“Leaves first,” she said, crouching by a clump of feathery green at the path’s edge. “Then roots. Then the ones that lie.”
+
+“Plants lie?”
+
+“The worst ones do.” She pinched a leaf and held it up. “Feverfew. Smell.”
+
+He smelled. Sharp, bitter, almost medicinal.
+
+She pinched another from a clump an arm’s length away — nearly the same feathered leaf, nearly the same small white daisy of a flower. “Chamomile.”
+
+Sweet. Like apples left in the sun.
+
+“They grow side by side,” she said. “In a jar, dried, you can hardly tell them apart. So you tell them apart *here*, before they ever reach the jar. You smell every one. Every time. Even when you’re tired. *Especially* when you’re tired.”
+
+He took out his notebook and wrote it down. She watched him do it and did not tease him, which meant it mattered.
+
+At the foot of a bank she showed him valerian, tall and pale-headed, and put his hand on the stem instead of the flower.
+
+“The good of it is in the root,” she said. “But not now. In autumn, when the leaves die back and the plant goes down into itself for the winter. Dig it in summer and you get half a medicine and a dead plant.”
+
+“Why does it go down into itself?”
+
+She paused. “To keep what it has, I suppose. Until it’s safe to come up again.”
+
+He looked at her a moment. She was already moving on.
+
+By the stream she stopped him with a hand flat against his chest.
+
+White flowers, broad and lacy as a bride’s veil, nodding over a tall stem. He knew this one — wild carrot, Arwen had shown him the dried seed. He started to reach.
+
+“Look at the stem,” Lyora said.
+
+He looked. Smooth. Hairless. Blotched with small purple spots, like a bruise that wouldn’t heal.
+
+“Wild carrot is hairy,” she said quietly. “This isn’t wild carrot. Crush a leaf and it smells like mice. Children have died of that one, mistaking it for supper.” She let her hand fall. “That’s the lie.”
+
+He wrote that down too, and underlined it twice.
+
+They went on. Deeper, where the canopy closed and the light went green and dim.
+
+In a hollow below the path, shaded so deep the moss never dried, something grew that he did not know.
+
+Grey leaves. Not silver, not dusty — *grey*, soft and matte, as if the color had been drawn out of them. Above the leaves hung small pale flowers, bell-shaped, drooping on thin stems like bowed heads.
+
+It was beautiful, in a quiet way. He stepped down toward it without thinking.
+
+“No.”
+
+Lyora’s hand closed on his wrist. Not gently.
+
+He turned. Her face had gone very still.
+
+“We don’t use that,” she said. “Not ever.”
+
+He looked back at the grey leaves, the bowed white heads, the dim hollow that held them. “Does it have a name?”
+
+A silence.
+
+“Not one we use,” she said.
+
+He opened his mouth — the next *why* already there, the way it always was.
+
+Then he saw her face again, and closed it.
+
+He stepped back up onto the path. After a moment her fingers loosened from his wrist, and she let go, and they walked on as if nothing had happened.
+
 The wind, light as a whisper, carried the faint melody of her humming—a tune that wavered between familiarity and something more elusive, like a lullaby from a childhood she had forgotten, or a song she had never truly learned. 
 
 It was then, as the last rays of sunlight dipped below the horizon and the forest seemed to exhale, that her humming faltered, replaced by a sigh that lingered in the stillness, heavy with unspoken words. 
@@ -32,3 +100,17 @@ He wanted to reach for her, to pull her into the shelter of his arms, to tell he
 Instead, he watched her, the fading sunlight painting her hair in hues of amber and ash, her silhouette framed by the rustling leaves and the distant, melancholic chirping of crickets that seemed to echo the quiet sorrow she had buried beneath layers of practicality and restraint. 
 
 In that moment, surrounded by the hush of the forest and the weight of her words, Esdel felt the slow, creeping tendrils of something he could not yet name—a realization that even in a place so still and serene, sorrow could still bloom, not in the form of a storm or a flood, but as a quiet, insidious thing, hidden in the spaces between laughter and the glint of a smile, waiting for the night to remember it and the dawn to forget.
+
+---
+
+That night, in the attic, he opened his notebook by the candle.
+
+Feverfew, bitter. Chamomile, apples. Valerian, autumn, the root. The spotted stem, underlined twice.
+
+Beneath them, slowly, he drew a small grey leaf with a bowed flower above it.
+
+He wrote no name beside it. He had none to write.
+
+Only: *Not ever.*
+
+Then he sat for a long time with the pen in his hand, thinking not of the plant at all, but of a girl carrying medicine to the southern fields, looking for an excuse.
