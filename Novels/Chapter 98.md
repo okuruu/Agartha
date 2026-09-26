@@ -82,7 +82,7 @@ The peddler looked at the cord. Three small neat knots on a length of plain brow
 
 “No message?”
 
-“No.” Esdel held it out. “Say nothing. If anyone asks — anyone at all — it’s just a piece of cord. You found it in your pack. You thought she might have a use for it, for tying herbs.” He paused. “Don’t tell her who gave it to you. Don’t tell her anything. Don’t describe me. Don’t say where you were. Just give it to her, and go.”
+“No.” Esdel held it out. “If anyone asks — anyone at all — tell them the truth. It’s a piece of cord. For tying herbs. That’s all it is.” He paused. “I won’t ask you to lie for me. Only don’t say more than that. Don’t tell her who gave it to you. Don’t describe me. Don’t say where you were. Just give it to her, and go.”
 
 The peddler was silent for a long time. The ford ran over its stones. Somewhere behind them in the market, a goat was complaining.
 
@@ -130,7 +130,7 @@ She did not understand at first.
 
 He came in, and bought a small pot of salve for his mules’ hooves, and paid for it, and talked about the weather, and the harvest, and the road. And then, as he was turning to go, he stopped, and felt in the inside pocket of his coat, as though he had just remembered something, and took out a piece of cord.
 
-“Found this in the bottom of my pack,” he said. “Thought you might have a use for it. For tying herbs.”
+“Thought you might have a use for this,” he said. “For tying herbs.”
 
 He put it into her hand.
 
