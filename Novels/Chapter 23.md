@@ -4,7 +4,11 @@ The night waned, and the festival’s brilliance softened into a hush. Lanterns 
 
 “You know,” Reyn said at last, swirling the last drops of fruit wine in his cup, “you’ve done a lot for this village. People talk about you. Even the kids—say the apothecary’s strange lodger can fix anything.”
 
-Esdel gave a quiet laugh, low and unsure. “I’m just… trying to help.”
+“Apprentice,” Esdel said mildly. “Lodgers don’t have to scrub the mortars.”
+
+Reyn snorted.
+
+Then Esdel gave a quiet laugh, low and unsure. “I’m just… trying to help.”
 
 “Maybe,” Reyn replied, turning the cup in his hands. “But sometimes, the ones who try hardest to help forget they’re allowed to be happy too.”
 
@@ -32,7 +36,7 @@ Reyn’s words replayed in his mind: *people who try to help forget they’re al
 
 But happiness—what was that, to someone who couldn’t even remember who he truly was?
 
-He lay back, eyes tracing the wooden ceiling above him. Through the cracks of the shutters, moonlight filtered in—thin and silver, just enough to catch the glint of the small ribbon tied around his wrist. A gift from a child earlier that evening. A wish for “strength.”
+He lay back, eyes tracing the wooden ceiling above him. Through the cracks of the shutters, moonlight filtered in—thin and silver, just enough to catch the glint of the small ribbon tied around his wrist. A gift from a child earlier that evening. A wish for “strength.” She had tied it on herself, tongue between her teeth, her salved finger held carefully out of the way.
 
 He turned his hand over, watching the ribbon sway with his pulse.
 

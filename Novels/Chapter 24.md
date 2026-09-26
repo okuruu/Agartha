@@ -54,7 +54,7 @@ The ceiling swims above him in blurred streaks of light and shadow. His lungs bu
 
 The voice comes from somewhere close—gentle, shaken. His name sounds different in her voice, like something fragile being held too tightly.
 
-The lantern flickers on the bedside table, casting gold across two silhouettes. Arwen stands by the door, a robe hastily thrown over her nightclothes, worry carved deep into her expression. Beside her, Lyora kneels at his bedside, a damp cloth clutched in trembling hands. Her green eyes are wide, wet with unshed tears.
+The lantern flickers on the bedside table, casting gold across two silhouettes. Arwen stands by the door, a robe hastily thrown over her nightclothes, worry carved deep into her expression. Beside her, Lyora kneels at his bedside, a damp cloth clutched in trembling hands. It smells faintly of lavender water, the kind they keep for fevers. Her green eyes are wide, wet with unshed tears.
 
 “You were screaming,” she whispers, voice breaking. “You weren’t breathing right—I tried to wake you—”
 

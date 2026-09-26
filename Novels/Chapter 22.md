@@ -2,7 +2,7 @@
 
 The next evening, the sun bled into hues of amber and rose as the village stirred to life for the second night of the Festival of Wishing Threads. Tonight, the townsfolk gathered to write their hopes upon ribbons of color and tie them to the great tree in the square. They said that if two wishes tangled in the wind that night, their fates would cross before the next harvest.
 
-Esdel followed quietly behind Arwen and her granddaughter, the soft swish of Lyora’s dark brown hair brushing the air before him. Around them, the streets bloomed with laughter and light. Lanterns floated above like drifting stars, and the scent of roasted grain and honeyed sweets wrapped the air in warmth.
+Esdel followed quietly behind Arwen and her granddaughter, the soft swish of Lyora’s dark brown hair brushing the air before him. At his hip hung the small satchel Arwen had pressed on him at the door — salve, clean linen, the last of the ginger packets. “A festival,” she’d said, “is only a sickroom with music.” Around them, the streets bloomed with laughter and light. Lanterns floated above like drifting stars, and the scent of roasted grain and honeyed sweets wrapped the air in warmth.
 
 When they reached the square, Arwen spotted an old friend. The two women quickly fell into a flurry of fond chatter, their voices rippling like gentle water. The old apothecary turned to them with a smile that held a quiet knowing.
 
@@ -54,6 +54,18 @@ She lingered, searching his expression for something—permission, perhaps, or r
 She nodded gently and turned away, her hand still caught in Eldric’s. Halfway there, she tried, with quiet grace, to slip free. Eldric’s hold only tightened, unaware of the small unease that flickered through her eyes.
 
 Esdel stood where she’d left him, the laughter of the festival swelling and fading like a tide he could not reach. The ribbons above fluttered in the breeze, whispering the wishes of others—while his own heart felt wordless, trapped somewhere between memory and longing.
+
+A tug at his sleeve.
+
+A little girl stood there, no higher than his belt, holding up one finger as though it were something precious and broken. The tip was red and shining where she’d touched a petal lantern.
+
+Esdel knelt. “Ah,” he said gravely. “The lantern wanted to hold your hand too.”
+
+Her lip, which had been trembling, stopped.
+
+He cooled the finger in the rain barrel beside the nearest stall first, then dabbed on the calendula salve, thin, and blew on it. “There. Now it smells like a flower. Don’t let any bees find out.”
+
+She giggled, and ran off into the crowd with her finger held high.
 
 “Hey!”
 

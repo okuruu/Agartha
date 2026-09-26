@@ -16,9 +16,19 @@ His pulse roared in his ears. He dug his nails lightly into his forearm — almo
 
 His chest tightened. A sick, cold dread spread through him.
 
-From below, the sound of laughter drifted up — **Lyora’s voice**, bright and soft, tangled with **Arwen’s** lower, steady tone. The scent of boiling herbs filled the air, mint and rosewood and crushed clover.
+From below, the sound of laughter drifted up — Lyora’s voice, bright and soft, tangled with Arwen’s lower, steady tone. The scent of boiling herbs filled the air, mint and rosewood and crushed clover.
 
 Forcing his expression calm, Esdel exhaled shakily and began to dress. His movements were stiff, mechanical. He couldn’t let them see — not Lyora, not Arwen. Not when he himself didn’t understand what he’d become.
+
+Downstairs, Arwen already had work waiting for him, and he was grateful for it. He kept his sleeve down and folded small paper packets of ginger and dried mint for the stomachs that would ache after the feasting. He stirred calendula into warm beeswax for the fingers that would reach too close to the lanterns.
+
+“Every year,” Arwen said, not looking up from her scales, “someone eats too much, someone gets too near a flame, and someone dances with more joy than sense.”
+
+“And which one are you?” he asked.
+
+“The one who mends the other three.” She flicked his ear with a sprig of mint.
+
+Lyora laughed at that — a small, real laugh. Then she saw that he had heard it, and looked back down at her mortar.
 
 ---
 
@@ -26,15 +36,15 @@ The market was already alive when he arrived — children weaving between stalls
 
 He was tightening a rope when a familiar voice called out, “You’re working hard as always.”
 
-Esdel looked up. It was **Marin**, the miller — a kindly man with deep smile lines and flour still dusting his sleeves. He grinned, wiping sweat from his brow.
+Esdel looked up. It was Marin, the miller — a kindly man with deep smile lines and flour still dusting his sleeves. He grinned, wiping sweat from his brow.
 
-“You’ll tire yourself out before the **Festival of Wishing Threads** even begins,” Marin chuckled.
+“You’ll tire yourself out before the Festival of Wishing Threads even begins,” Marin chuckled.
 
 Esdel blinked, lowering the sack to the ground. “The Festival of… Wishing Threads?”
 
 Marin’s eyebrows rose. “Ah, right. You’re still new to us. You’ve never seen it.”
 
-He leaned against the cart, eyes softening with nostalgia. “Once a year, when the **twin stars** cross above our valley, we hang silken threads across every street — red for love, gold for fortune, blue for health, white for remembrance. Families and friends weave their threads together, binding their wishes to the stars. They say if you tie your hope right beneath the starlight, the heavens will listen. The first night, we hang the threads. The second, everyone writes a wish on a ribbon and ties it to the great tree in the square.”
+He leaned against the cart, eyes softening with nostalgia. “Once a year, when the twin stars cross above our valley, we hang silken threads across every street — red for love, gold for fortune, blue for health, white for remembrance. Families and friends weave their threads together, binding their wishes to the stars. They say if you tie your hope right beneath the starlight, the heavens will listen. The first night, we hang the threads. The second, everyone writes a wish on a ribbon and ties it to the great tree in the square.”
 
 Esdel’s gaze drifted upward, toward the faint shimmer of daylight above the rooftops. “Sounds… beautiful.”
 
@@ -56,7 +66,7 @@ By dusk, on the festival’s first night, the village transformed.
 
 Strings of silk crisscrossed between rooftops, glimmering softly in the twilight. Lanterns swayed from beams and branches, each flame caught like a captive star. Laughter filled the air, and the scent of sweet rice wine and roasted fruit carried on the wind.
 
-Esdel stood at the edge of it all, watching.
+Esdel stood at the edge of it all, watching, a basket of Arwen’s ginger packets on his arm for anyone who looked green. Above the lane by the apothecary, the blue threads hung thickest — blue for health. Arwen’s doing, he suspected.
 
 Lyora was there too, in the crowd — dressed in pale blue, her long smooth hair braided loosely down her back. A small flower was tucked behind her ear, glowing faintly under the lantern light. She was smiling, helping a child tie a ribbon high above their heads, her green eyes bright with warmth he hadn’t seen in days.
 

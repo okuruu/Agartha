@@ -20,11 +20,17 @@ A sharp sting, a bead of red, and then more. The pain was real. The wound was re
 
 He wrapped it with a strip of his shirt and slipped back into the village quietly, avoiding Arwen and Lyora’s gaze. Climbing the stairs to his small attic room, he moved slowly, each step sending a pulse of pain through his arm.
 
+He lit no lamp. His hands knew the way.
+
+He poured water into the basin from the jug he kept filled from the kettle — boiled, then cooled, the way Arwen insisted — and washed the cut until the water ran pink, and then clear. He pressed it dry with clean linen. From the little tin by the bed he smoothed on yarrow salve, thin, never thick. *So the wound can breathe, child.* A folded pad of linen over it. Then a strip, wound firm but not tight, two fingers’ slack, the end tucked flat and tied off in Arwen’s small square knot.
+
+He did it all without thinking. That was the strange part. His hands were careful with his arm in a way the rest of him had not been.
+
 Lying on his bed, he turned away from the door, pressing his face into the pillow. He couldn’t let them see. He couldn’t explain. His body writhed as the pain burned through him — but he bore it, silent, until exhaustion finally took him.
 
 Morning came pale and uncertain. The sunlight through the attic window was soft, almost hesitant, dust floating lazily in the air like drifting memory. Esdel stirred beneath the thin blanket, his body heavy with a dull ache that pulsed in time with the wound beneath his sleeve.
 
-When he finally sat up, his arm throbbed sharply. The makeshift bandage — torn from his own shirt — had darkened to a rusty brown. He peeled it away carefully, wincing as it stuck to his skin. The cut was shallow, but raw and angry, an ugly reminder of his foolishness.
+When he finally sat up, his arm throbbed sharply. The linen had darkened to a rusty brown at its center. He unwound it carefully, wincing where the pad had stuck to his skin. The cut was shallow, but raw and angry, an ugly reminder of his foolishness.
 
 He stared at it for a long while.
 
@@ -34,7 +40,7 @@ There was no pulse of dark light, no strange warmth, no miracle that mended fles
 
 *Maybe that’s all I am now. Just human.*
 
-He rewrapped the wound quickly when he heard the floorboards creak below — the sound of Lyora’s footsteps. She always moved softly in the mornings, careful not to wake anyone. He used to find that sound comforting. Now it only made him tense, a reminder of what he was hiding.
+He rewrapped the wound quickly — fresh salve, a fresh pad, the same small knot — when he heard the floorboards creak below — the sound of Lyora’s footsteps. She always moved softly in the mornings, careful not to wake anyone. He used to find that sound comforting. Now it only made him tense, a reminder of what he was hiding.
 
 “Esdel?” her voice came from the bottom of the stairs, light but edged with concern. “You’re awake, aren’t you?”
 
@@ -76,9 +82,17 @@ Lyora didn’t look convinced. “Let me see.”
 
 “Esdel.” Her tone was firmer now — still gentle, but edged with the authority she inherited from Arwen. “Please.”
 
-He hesitated, then slowly extended his arm. She unwrapped the fabric with delicate fingers, careful not to pull too hard on the dried blood. When she saw the cut, her breath hitched faintly.
+He hesitated, then slowly extended his arm. Her fingers stopped at the knot first.
+
+Small. Square. Tucked flat. Her grandmother’s knot.
+
+She unwound the strip slowly, and lifted the folded pad, and there beneath it was the faint green sheen of yarrow salve, spread thin. The cut was clean. Washed. Not a thread of cloth in it.
+
+When she saw the cut itself — straight, shallow, deliberate — her breath hitched faintly.
 
 “This isn’t just a scratch,” she whispered. “You did this to yourself.”
+
+Then, before he could speak, her voice sharpened. “And then you dressed it.” She held up the linen pad between two fingers. “Washed it. Yarrow, thin. A pad. Two fingers’ slack. Grandmother’s knot.” Something that was not quite a laugh caught in her throat. “You did everything right, Esdel. Everything. You knew exactly what you were doing.”
 
 Esdel’s jaw tightened. “It’s not what you think.”
 

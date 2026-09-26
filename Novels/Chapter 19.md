@@ -30,7 +30,41 @@ He passed it to her. Their fingers almost touched again, but she withdrew too qu
 
 And that was all.
 
-The rest of the day moved like a dream — soft, distant, almost unreal. The villagers came and went; Esdel fixed shelves, fetched water, even helped an old man find a tonic for his joints. But through it all, his thoughts circled endlessly around her — the way her voice didn’t tremble, the way her smile never reached her eyes.
+So he did the one thing he knew how to do. He worked.
+
+He ground the dried yarrow until it went to a green dust finer than flour, and sifted it twice, because Arwen liked it sifted twice. He scrubbed the stained mortars at the pump. He wrote new labels in his small, strange hand and pasted them square on the jars, and when Arwen squinted at one and said it looked as if a spider had walked through the ink, he told her the spider was at least very accurate. She snorted into her tea.
+
+Lyora didn’t laugh. But her knife paused on the board for a heartbeat before it went on.
+
+At midday he took Arwen’s old receipt book to the far end of the worktable — the one with the cracked spine and the pages gone soft as cloth — and bent over it. Her faded, looping hand. *For a cough that sits low. For a child’s colic. For burns, not blistered.* He copied each one slowly into his notebook, and beside each he wrote the question he would ask her later.
+
+*Why honey, not sugar? Why steep, and not boil?*
+
+The words on the page stayed still. They didn’t turn away from him.
+
+The rest of the day moved like a dream — soft, distant, almost unreal. The villagers came and went; Esdel fixed shelves, fetched water, even helped an old man find a tonic for his joints. Esdel told him the tonic tasted like a boot, so it must be working, and measured it with the little horn spoon, level, never heaped. The old man laughed, and paid in eggs.
+
+In the afternoon, the young widow from the lower lane came in again.
+
+She had come twice already that week — once for her little boy’s cough, once for nothing she could name. Today she carried a plate of honey cakes under a cloth, still warm, and set it on the counter in front of him rather than in front of Arwen.
+
+“For your trouble,” she said. “You were so patient with my boy.”
+
+Her smile stayed on him a moment too long. Her fingers, too, on the edge of the plate.
+
+Esdel saw it. He saw it the way he had learned to see a leaf beginning to brown at the edge — early, and without any fuss.
+
+“That’s kind of you,” he said warmly, and lifted the cloth, and breathed in. “Arwen, they’re still warm. We’ll have them with tea. All of us.” He set the plate in the middle of the worktable, where every hand could reach it, and turned back to her. “How’s his cough at night? Still dry, or has it loosened?”
+
+She blinked. Then, slowly, she told him — about the boy, about the long nights — and he listened to every word, and filled a small bottle of thyme syrup, and told her: in warm water, never on an empty stomach.
+
+She went out into the light not embarrassed at all. Only a little quieter, and still smiling.
+
+Arwen said nothing. But when she passed behind him, she patted his shoulder twice, the way she settled a jar back on its shelf.
+
+Across the room, Lyora’s knife had stopped again. She looked at the plate of honey cakes for a long moment. Then she went back to her chopping, and did not take one.
+
+But through it all, his thoughts circled endlessly around her — the way her voice didn’t tremble, the way her smile never reached her eyes.
 
 By the time dusk fell, the shop had gone quiet again. Arwen retired early, leaving only the faint glow of lamplight flickering against the bottles. Lyora tidied the last of the herbs, her motions careful, deliberate.
 
@@ -42,7 +76,13 @@ He hesitated, searching her face for something — a trace of the warmth that on
 
 So he said nothing more.
 
-That evening, Esdel sat by the upstairs window again. Outside, lanterns bloomed one by one across the village — tiny suns glowing against the falling night. The laughter of children faded into the distance, replaced by the rhythmic chirr of crickets.
+Upstairs, he lit the stub of a candle and drew out the slate he kept beneath the bed. He worked a column of sums, and then a puzzle of his own making — how many jars of a given size would fill a given shelf, if the shelf leaned a little, as that one did. The chalk ticked softly in the quiet. The numbers came out even. They always did, if he was patient with them.
+
+It helped. A little.
+
+He wiped the slate clean with his sleeve.
+
+Later that evening, Esdel sat by the upstairs window again. Outside, lanterns bloomed one by one across the village — tiny suns glowing against the falling night. The laughter of children faded into the distance, replaced by the rhythmic chirr of crickets.
 
 From below, he could hear Arwen’s laughter, soft and unhurried, mingled with Lyora’s faint humming. It should have comforted him — it always had before. But tonight, the sound only reminded him of how fragile everything truly was.
 
