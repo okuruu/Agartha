@@ -120,7 +120,7 @@ It was the third time. On the night of the Titan, by the roadside. In the ruined
 
 He thought about it for a long time.
 
-He thought about the desert. The cave, and the pool, and the creature, and the arm that had been gone and was not. The mural of the man who stood with the beast. The young man in silver armor on the cliff above the sea, who had said *fight* and pushed him. The soldier in the tent at Edenridge who had said *you lifted the fallen banner, everyone thought you died that day*. The gold thread in the Count’s heart. The dragon that hated the Kālākṣa. The eye of mercy.
+He thought about the desert. The cave, and the pool, and the creature, and the arm that had been gone and was not. The mural of the man who stood with the beast. The young man in silver armor on the cliff above the sea, who had said *fight* and pushed him. The soldier in the tent at Edenridge who had said *you lifted the fallen banner, everyone thought you died that day*. The Count’s calm heart under that bright, glad face. The dragon that hated the Kālākṣa. The eye of mercy.
 
 The woman in white, who was not Xueyao, and was not anyone he knew, and was waiting somewhere at the edge of a horizon he could not reach.
 

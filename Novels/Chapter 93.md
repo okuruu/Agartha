@@ -8,7 +8,7 @@ He lay still and looked at the hole for a long time.
 
 He did not know where he was. For a moment — a long, strange, drifting moment — he did not know *who* he was. He lay on his back in the dark with the fire at his feet and his mind as blank and clean as the desert had been, a year ago, when he first opened his eyes beneath that merciless sun.
 
-Then it came back. All of it. The ford. The spear. The blue vial. The red world. The Count’s face, and the gold thread in his heart, and the grey horse going over. The old soldier on the causeway, raising his sword.
+Then it came back. All of it. The ford. The spear. The blue vial. The red world. The Count’s face, bright with that joy, and the grey horse going over. The old soldier on the causeway, raising his sword.
 
 He shut his eyes again.
 
@@ -50,13 +50,13 @@ The fire crackled.
 
 He thought about it for a long time.
 
-He thought about the red world, and the frozen river, and the thirty small lights. About the Count’s heart, beating strong and long and gold-threaded, right there in front of him. About how easy it would have been.
+He thought about the red world, and the frozen river, and the thirty small lights. About the Count’s heart, beating slow and unafraid, right there in front of him. About how easy it would have been.
 
-“I don’t know,” he said at last. And then, because she deserved more than that: “I saw his heart. With the eyes. I could see — how long it had. It was long. A great many years.” He looked at the smoke-hole in the roof. “And there was something in it. Something that wasn’t his. Gold. Moving. Like the thing in the tonic that I couldn’t name.”
+“I don’t know,” he said at last. And then, because she deserved more than that: “Everyone in that river was afraid. Your men. His men. Me.” He looked at the smoke-hole in the roof. “He wasn’t. His heart was as calm as a man at supper, and his face was — glad. Lit up. I’ve seen that look before. On the dying, in the tents.” He paused. “And on your mother. When she turned to him.”
 
 She was very still.
 
-“I don’t know what it means,” he said. “I don’t know if it means anything. But I looked at it, and I thought—” He stopped. “I thought, if I kill him, I’ll never know. And whatever that is — whatever’s in him — it won’t die with him. It’ll just go somewhere else.” He was quiet a moment. “And I thought of your mother. In the garden. She didn’t ask you for his death. She asked you for your brother.”
+“I don’t know what it means,” he said. “I don’t know if it means anything. But I looked at him, and I thought—” He stopped. “I thought, if I kill him, I’ll never know what put that look there. And whatever it is — whatever’s in him — it won’t die with him. It’ll just go somewhere else.” He was quiet a moment. “And I thought of your mother. In the garden. She didn’t ask you for his death. She asked you for your brother.”
 
 Xueyao said nothing for a long time.
 

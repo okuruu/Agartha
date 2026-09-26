@@ -60,7 +60,11 @@ He shook his head.
 
 “Why terrible?”
 
-“Because of what it sees.” She finally looked at him. “The ones who bore it — the House of Kālākṣa — could look at a living thing and see how long its heart had left. Not guess. *See.* The span of it, the way you or I might see a candle and know how much wax remains.” Her voice was very even. “They were healers, once. The finest in the world. They knew which wounds would kill and which would not, and they spent their mercy accordingly. That was the name. The eye that knows where mercy is still of use.”
+“Because of what it sees.” She finally looked at him. “The stories say the House of Kālākṣa could look at a living thing and see how long its heart had left. The span of it, the way you or I might see a candle and know how much wax remains. That they were healers, once, the finest in the world, and spent their mercy accordingly. The eye that knows where mercy is still of use.” Her mouth moved, not quite a smile. “Stories grow in the telling. Especially about the dead.”
+
+She turned the cup again.
+
+“What my dragon showed me was simpler. Men and women who could not be touched. Who saw the blade before the hand that held it knew it would move. One of them against ten, and the ten lying in the grass.” Her voice was very even. “Not a healer’s eye, Esdel. A soldier’s. Whatever mercy there was in it, they had to bring themselves.”
 
 The fire cracked. Across the room, Pei Lun lost another round of pebbles, loudly.
 

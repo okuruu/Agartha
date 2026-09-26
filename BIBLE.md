@@ -115,10 +115,11 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - These are Esdel's "eyes". Under mortal pain, time freezes and he sees heartbeats and intentions (Ch41). Forcing them shut causes agony and bloodied eyes (Ch42).
 - He later learned to trigger a lesser **Veil Form** with a slow, deliberate blink (Ch48): time slows and he reacts before thought.
 - Xueyao says these are the eyes of the eradicated **House of Kālākṣa**, a line whose sight "the dragons themselves feared" (Ch49).
-- **Meaning (Ch68):** *karuṇā* (mercy) + *akṣa* (eye) = "the eye of mercy." The Kālākṣa were once the finest healers. They could see **how long a heart has left**, like wax left in a candle, and spent their mercy accordingly. The dragons hated them; Xueyao's dragon showed her their image at fourteen. Who destroyed them is unknown.
-- **Veil Form** (Ch89): he sees every heart as a small red light, their fear, their next move, and their remaining span. Afterward his eyes bleed and it feels like needles in his skull.
+- **It is a battle eye, and not more than that.** It reads movement, fear, and intent: which man strikes next, where, how hard, the weak knee, the wrist that opens too wide. At full use it can predict even a wrist's motion. It does **not** see life spans, souls, or anything hidden inside a person. Its edge in a fight comes from pairing the sight with battle sense.
+- **Meaning (Ch68):** *karuṇā* (mercy) + *akṣa* (eye) = "the eye of mercy." **The stories** say the Kālākṣa were healers who could see how long a heart had left; Xueyao calls that a legend that "grew in the telling." What her dragon showed her was a soldier's eye: people who "saw the blade before the hand that held it knew it would move." "Whatever mercy there was in it, they had to bring themselves." The dragons hated them; Xueyao's dragon showed her their image at fourteen. Who destroyed them is unknown.
+- **Veil Form** (Ch89): he sees every heart as a small red light, their fear, and their next move: the weak knee, the half-breath before a man commits. Afterward his eyes bleed and it feels like needles in his skull.
 - **Full form** (Ch91, triggered by a mortal wound plus Halden's vial): the world *stops* and turns red. Healing afterward took two days, with a three-day fever.
-- **In Aldric's heart** he saw a second rhythm, **slow, faint, and gold**, like the unnamed oil in the tonic (Ch91, 93).
+- **Aldric at the ford** (Ch91, 93): of thirty hearts, only Aldric's was **not afraid**. It was calm as a man at supper under a face blazing with joy, the "fever-brightness" Esdel saw on the dying and, softer, on Anlan turning to Aldric. The eyes saw nothing *inside* him. Esdel: "if I kill him, I'll never know what put that look there."
 
 **Lián Xueyao**: the Maiden of the Heavenly Dragon.
 - Golden eyes, long black hair, pale skin. Wears ivory-and-gold battle attire and, later, a dark general's uniform.
@@ -190,7 +191,7 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 | **Prince Ardbert** | Heir. Dark hair like the King's, blue eyes. Compassionate. Met Xueyao at his 17th birthday: "you looked at me as if I were a person." First real talk at the victory banquet (Ch73). Silenced by his father at the hearing (Ch75). **Opened the north gate for Xueyao** with Khalid (Ch90). Officially this "never happened" (Ch92). Walks alone to the north gate at night, looking north (Ch97). | Ch53 |
 | **Khalid** | Ardbert's attendant since childhood. Tall, neatly trimmed beard. Trusted. | Ch53 |
 | **Prime Minister** | Unnamed. Questions the King. | Ch52 |
-| **Count Aldric Reng** | Silver-tongued, silver hair, clear grey eyes. House Reng crest: a silver serpent devouring its tail. Framed Hengzhi, drugged Anlan and married her, got Xueyao's leave granted behind Rowan's back (Ch73), **murdered Anlan** with a greyveil overdose when she began to wake (Ch80), won guardianship of Yueming (Ch81), and proposed to Xueyao for dragon-blood heirs: "a throne, waiting for someone with the patience to build the stairs" (Ch83). **The cane was a costume.** He rides and fights well (Ch89). Esdel cut the tendons of his **right hand**, which is now curled and useless; he writes left-handed (Ch91, 97). Has a **gold thread in his heart** (Ch91). Sits by the empty cot at the amber hour, **speaks to someone who isn't there, and seems to hear an answer** (Ch97). | Ch51 |
+| **Count Aldric Reng** | Silver-tongued, silver hair, clear grey eyes. House Reng crest: a silver serpent devouring its tail. Framed Hengzhi, drugged Anlan and married her, got Xueyao's leave granted behind Rowan's back (Ch73), **murdered Anlan** with a greyveil overdose when she began to wake (Ch80), won guardianship of Yueming (Ch81), and proposed to Xueyao for dragon-blood heirs: "a throne, waiting for someone with the patience to build the stairs" (Ch83). **The cane was a costume.** He rides and fights well (Ch89). Esdel cut the tendons of his **right hand**, which is now curled and useless; he writes left-handed (Ch91, 97). **Wasn't afraid at the ford**; his heart stayed calm under a face of fierce joy (Ch91). A maid saw a gold-threaded something in a glass bottle on his nightstand (Ch97). Sits by the empty cot at the amber hour, **speaks to someone who isn't there, and seems to hear an answer** (Ch97). | Ch51 |
 | **Lord Garron Reng** | Aldric's cousin. Embezzled 20,000 of a 100,000-gold-crown war fund through merchants in Iskar and Redmere. Executed (Ch62). | Ch51 |
 | **Grand Duke Rowan Hale** | Aldric's brother-in-law. Pale, glacial blue eyes, silver signet ring. Sigil: silver griffin. Supplied the contraband and took 8/10 of the Lián holdings. Kept Xueyao at the front and blocked her leave. Reasoned: "*A Reng with a dragon is worse than a traitor without one*" and **cut the north-gate watch to four on the new moon** through his wife's nephew (Ch86). Now suspects **Vale** (Ch97). "First time in forty years he had not known how a column would come out." | Ch55 |
 | **Lord Lián Hengzhi** | Head of House Lián, merchant-noble, controlled half the eastern ports. Grows orchids. Loyal. Framed, executed, his bones "fed to the dogs" (Ch65). | Ch53 (on page Ch56) |
@@ -313,7 +314,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch88**: *The River Road.* A turnip barge in the storm, and the lantern gone in three breaths. Changli will give him Hengzhi's name in secret. "I'll never see him again… If I don't know, no one can make me tell." Aldric wakes in the dark.
 - **Ch89**: *The Gate.* The alarm bell. Aldric on a grey horse, with no cane. **Han Ruo and three others hold the gate** ("*For Lord Hengzhi!*"), and the bell stops. In the Street of Lanterns, Esdel's Veil Form: five men down, none killed. Two more old soldiers stay behind.
 - **Ch90**: *Blue Eyes at the North Gate.* Ten riders. **Ardbert and Khalid open the gate** ("Crown's orders"). "I remember how you looked at people too." Torches coming up the Hundred Steps.
-- **Ch91**: *The Blue Vial.* The Greenwater ford. Gao and two veterans hold it. A spear in Esdel's side, **Halden's vial, and the full Karunākṣa**: he sees every heart's span and **a gold thread in Aldric's**. He spares Aldric's life and cuts his sword hand; the grey horse goes into the river and Aldric's men go in after him. Two veterans die.
+- **Ch91**: *The Blue Vial.* The Greenwater ford. Gao and two veterans hold it. A spear in Esdel's side, **Halden's vial, and the full Karunākṣa**: he reads every heart's fear and next move, and sees that **only Aldric is unafraid**, calm under a face of fierce joy. He spares Aldric's life and cuts his sword hand; the grey horse goes into the river and Aldric's men go in after him. Two veterans die.
 - **Ch92**: *The Decree.* The Hall of Clear Waters. Xueyao is declared a traitor (5,000 crowns). Fifteen Lián soldiers and "**the apothecary Esdel… late of the village of Edenridge**" (1,000 each). The King tells Ardbert it "never happened" and writes "*For now*" on the dragon map.
 - **Ch93**: *Nowhere to Return.* A shepherd's hut, three days of fever, the wound closed. "I didn't want to be the kind of man who would." Seven left. A trader: "*Edenridge. Pretty name.*" Esdel understands he can never go back. Xueyao releases him; **he stays so the hunt never turns south.**
 - **Ch94**: *Interlude, The Backwater Genius.* Halden: "*Idiot.*" At North Ridge **the dragon keens for days, looking south, and doesn't rise**; the front loses a mile and three hundred men. Loryn, wounded, hears the name.
@@ -376,9 +377,9 @@ Anchors that must stay consistent:
 6. **House of Kālākṣa / Karunākṣa**: who destroyed them, and why the dragons hate them (Ch49, 68).
 7. **The one-word scrap** behind the silver flower (Ch85). The word is never shown. The first letter's single line (Ch76) was also never shown.
 
-**The gold thread**
+**The gold oil**
 8. **The unnamed gold oil** in the tonic, which binds the drinker to whoever keeps them company while it works, **not** to the pourer (Ch72). Aldric both poured *and* sat with Anlan every amber hour. It "had not grown in a valley."
-9. **A gold thread in Aldric's heart** (Ch91). Aldric speaks to something in the empty nursery and seems to hear an answer (Ch97).
+9. **Aldric's calm heart and radiant joy at the ford** (Ch91, 93), and the gold-threaded bottle on his nightstand (Ch97). Aldric speaks to something in the empty nursery and seems to hear an answer (Ch97).
 10. **The crimson-eyed man** and the smiling, black-eyed corpses (Ch44–45): "He wasn't alone." Possibly linked to 8–9; not confirmed.
 11. **Master Vale** is looking for a ship; Rowan has written his name under Reng's (Ch97).
 12. **Esdel never told Xueyao** that the tonic binds (Ch72, 78, 80). The note is in his coat.
@@ -424,7 +425,7 @@ Anchors that must stay consistent:
 | 21 | Esdel and loyal guards follow | Han Ruo dies at the gate; Ardbert opens the north gate; the ford. **Seven survive** (Ch89–93) |
 | 22 | Declared traitor; associates stripped or executed | The decree names Esdel "*late of the village of Edenridge*"; 5,000/1,000 crowns (Ch92) |
 | 23 | She disappears; the dragon sleeps waiting for her call | The borderlands, white robe, cut hair; the dragon sleeps and won't wake for anyone (Ch96–97) |
-| — | *(not in outline)* | The Edenridge interludes (Ch70, 82, 95, 98); Rowan thins the watch (Ch86); the gold thread (Ch91); the cord (Ch98) |
+| — | *(not in outline)* | The Edenridge interludes (Ch70, 82, 95, 98); Rowan thins the watch (Ch86); Aldric's unafraid heart (Ch91); the cord (Ch98) |
 
 ---
 

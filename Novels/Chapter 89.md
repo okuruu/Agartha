@@ -118,9 +118,9 @@ The rain slowed. He could see it falling — each separate drop, hanging, turnin
 
 Esdel could see his heart. He could see all their hearts — six small dark red lights beating in the dark, each at its own pace. He could see which ones were afraid. He could see which one was about to strike, and where.
 
-He could see — he did not want to see it, and he saw it anyway — how long each of them had left.
+He could see the rest, too. The weak knee. The wrist that would open too wide. The half-breath each man took before he committed, so that every blow was already written in the body before it came.
 
-*The eye of mercy,* she had said, by the fire. *The eye that knows where mercy is still of use.*
+*The eye of mercy,* she had said, by the fire. *Whatever mercy there was in it, they had to bring themselves.*
 
 He moved.
 

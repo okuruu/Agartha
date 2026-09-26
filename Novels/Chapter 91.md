@@ -94,9 +94,7 @@ Not slowed. *Stopped.* The river hung in the air in great frozen sheets of brown
 
 And he could see.
 
-He could see every heart in the ford. Every one. Thirty small red lights beating in the frozen world, each at its own pace. He could see which were afraid. He could see which were angry. He could see which were very close to stopping — the soldier who had gone down under the water, beating faint and slow and slower, and the oldest one on the left, beating hard and fast and ragged, and Gao’s, beside him, strong and steady and *short*, so short, a candle with a finger’s depth of wax.
-
-He could see how long each of them had left.
+He could see every heart in the ford. Every one. Thirty small red lights beating in the frozen world, each at its own pace. He could see which were afraid. He could see which were angry. He could see which would strike next, and where, and how hard — the lance on the left already committed, the sword on the right a half-breath behind it, the oldest soldier’s guard sagging on the side where his shoulder had been broken years ago. Every movement in the ford was written in the bodies before it came.
 
 He looked for the Count.
 
@@ -106,11 +104,11 @@ And his heart—
 
 Esdel stopped.
 
-The Count’s heart was beating. Strong, steady, long — a great deal of wax, a great many years. But beneath it — through it — woven into it like a thread through cloth, there was something else. A second rhythm. Slow, and faint, and *gold*. Shifting, glimmering, the way the unknown oil in the tonic had glimmered in the candlelight in the stillroom. As though something moved in it that was not his heart at all.
+Of the thirty lights in the ford, twenty-nine were afraid. Even Gao’s. Even his own.
 
-Esdel stared at it.
+The Count’s was not. It beat slow and even and unhurried, the heart of a man sitting down to supper — while his face, above it, blazed with that terrible joy. The two did not belong together. Esdel had seen that look before, on the pallets in the field tents. He had seen it, softer, on a woman in a pavilion, turning toward a man like a flower toward the light.
 
-*Whatever that man was,* he had thought once, standing over the smiling corpses at the Eastern Post, *he wasn’t alone.*
+Esdel stared at him.
 
 Then the frozen world began, very slowly, to move again, and he did not have time to think about it anymore.
 
@@ -118,7 +116,7 @@ Then the frozen world began, very slowly, to move again, and he did not have tim
 
 He moved through it the way he had moved through the rain in the Street of Lanterns — but faster, much faster, a blade through water. The spear was still in him. He did not feel it. He felt only the cold blue fire, and the red light, and the slow terrible drift of the world around him.
 
-He did not go for the Count’s heart. He could have. It was there in front of him, beating strong and long and gold-threaded, and his short sword was in his hand, and there was no one in the frozen ford who could have stopped him. Afterward, lying in the dark, he would think about that for a long time. About how easy it would have been. About Han Ruo, and Gao, and Lady Anlan with her folded hands, and a dead lord with no grave.
+He did not go for the Count’s heart. He could have. It was there in front of him, beating slow and even and unafraid, and his short sword was in his hand, and there was no one in the frozen ford who could have stopped him. Afterward, lying in the dark, he would think about that for a long time. About how easy it would have been. About Han Ruo, and Gao, and Lady Anlan with her folded hands, and a dead lord with no grave.
 
 He did not go for the heart.
 
