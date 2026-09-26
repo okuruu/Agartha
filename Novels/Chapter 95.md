@@ -130,26 +130,84 @@ Then she stood looking at it for a long time. At the small gold flame. At the th
 
 *Late of the village of Edenridge.*
 
-He could not come back. She understood that. She had understood it in the square, beneath the great tree, in the silence, the moment the herald said the name of the village aloud for anyone to hear. She did not know much about the great world beyond the forest. But she knew about hunters, and she knew about traps, and she knew that you did not set a snare in a place the rabbit would never come.
+He was alive. She held on to that. She sat down on the second step beside the lamp and held on to it with both hands, the way she had held on to the edge of the worktable in the spring when the soldier said *alive and working*.
 
-They had put the name of the village on the paper so that he would never come home. Or so that, if he did, they would be waiting.
+And then, because the house was very quiet, and the night was very long, the other thing came.
 
-He could not come back.
+She did not want it. She could feel it coming the way you feel a fever coming — a coldness first, at the back of the neck. And then the herald’s bored voice again, in her head, reading it out under the great tree. *The woman Lián Xueyao. Formerly General of the Northern Front. Formerly styled Maiden of the Heavenly Dragon.* And after it, in a list with fifteen soldiers, his name.
 
-She stood at the foot of the stairs, with the lamp burning on the second step, and understood that he could never, ever come back — and that he would know it too, wherever he was. That he would have heard the herald, in some other square, in some other village. That he would have understood, the way he understood everything, all at once, like the slope of a field.
+Not hers. *Hers.*
 
-And that he would stay away. For her.
+She had heard them whispering in the square, afterward, as the crowd broke up. The Maiden. They said she rode a dragon made of gold. They said she had golden eyes. They said she was the most beautiful woman in the Kingdom, and the most terrible, and that she had fled into the night in a storm with a handful of her father’s soldiers — and with him.
 
-That was the thing that finally broke her. Not the decree. Not *living or dead*. That he would stay away, and keep staying away, for as long as it took, so that the men on the bench outside the inn would have nothing to watch but an old house and an old woman and a girl who grew herbs. That he would keep his promise to come back by never coming.
+He had stood beside her in a storm. He had forced a gate for her. He had drawn his sword for her, the whisperers said, at some river, against a Count. He had given up his name, and his levy, and his whole life in the Kingdom, and gone with her into the dark, and the Crown said he would be hanged for it.
 
-She sat down on the bottom stair, beside the lamp, and put her face in her hands.
+For her.
 
-She did not make a sound. Arwen, in her chair by the window, did not come. But after a long time, Lyora heard the old woman get up — slowly, painfully — and cross the room, and stop in the doorway behind her. And stand there. Just stand there, in the dark, with her trembling hands at her sides, the way she had stood in the doorway of the attic a year ago, on the night of the dream.
+It was not jealousy. Lyora knew what jealousy was. She had been jealous once, of a woman with blue hands who had only asked about a wheel, and it had been hot and small and shameful and it had burned the tea.
+
+This was not that. This was cold. This was much worse.
+
+*A year,* she thought. *More than a year.*
+
+What was a spring and a summer in a valley, against a year at the war? Against a storm, and a gate, and a river, and a woman with golden eyes who needed him? He had carried her down off the ridge once, in the rain. How many people had he carried since? He had held her on the floor at the foot of these stairs until she could breathe again. How many people had he held since, in how many tents, in how many storms?
+
+What was one girl with an apothecary’s apron and a lamp on a step, to a man who had forced the gates of the capital?
+
+*He’ll remember us,* she told herself. *Of course he will.*
+
+And a small cold voice answered: *He doesn’t remember anything. That’s the whole of him. He forgot everyone he ever loved once already. What makes you think you’re any different?*
+
+She put her hands over her ears. As if that would help. As if it had come from outside.
+
+She did not cry. She sat on the second step beside the lamp with her hands over her ears and her eyes wide open in the dark and did not cry, and the hours went by, and the lamp burned down, and she did not turn it up.
+
+She had turned it up every night for a year, when it burned low. Every night. She did not do it now. She sat and watched the small flame shrink, and shrink, down toward the brass, and thought: *who am I keeping it for? For a man who went with her. For a man who’s gone.*
+
+She let it gutter.
+
+It went down to a blue bead on the wick. It flickered. It almost went out.
+
+Almost.
+
+---
+
+It was the watchers that saved it.
+
+She did not think of them until nearly dawn — until the window over the shop went grey, and she heard, very faintly, a door at the inn at the bottom of the lane. Footsteps. The creak of the bench under the eaves as two men sat down on it, in the grey light, to begin their first day of watching the apothecary’s door.
+
+She lifted her head.
+
+*Late of the village of Edenridge.*
+
+They had not written *late of the capital.* They had not written *late of the Northern Front*, or *of the General’s household*, or of any of the places where he had stood in storms beside a woman with golden eyes. Out of a whole year at the war, out of every place he had ever been, they had chosen to write the name of one small village at the edge of the desert. And then they had sent two men to sit on a bench and watch one door.
+
+You do not set a snare where the rabbit will never come.
+
+They thought he would come here. The Crown of the whole Kingdom, and whoever stood behind it, with all their spies and all their riders — they thought that of every road in the world, the one he would try to take was the road to this door.
+
+They knew him better than she had, tonight.
+
+And he would know it too. Wherever he was. He would hear the herald in some other square, and hear the name of the village read out after his own, and understand — the way he understood everything, all at once, like the slope of a field — that there were men waiting at the bottom of her lane. And he would not come. Not because he had forgotten. Because he had not.
+
+He would stay away. For her. For as long as it took. He would keep his promise to come back by never coming.
+
+That was the thing that finally broke her. Not the decree. Not *living or dead*. Not the golden-eyed woman in the storm. That she had sat all night on the stairs and let the lamp die down, doubting him — while somewhere out in the dark he was running *away* from this door with everything in him, so that nothing would ever follow him to it.
+
+She bent over her knees and pressed her face into her apron, and made no sound at all.
+
+Arwen, in her chair by the window, did not come. But after a long time, Lyora heard the old woman get up — slowly, painfully — and cross the room, and stop in the doorway behind her. And stand there. Just stand there, in the grey, with her trembling hands at her sides, the way she had stood in the doorway of the attic a year ago, on the night of the dream.
 
 Neither of them said anything.
 
 After a long time, Lyora lifted her head. She wiped her face with the heel of her hand, once, briskly.
 
-Then she reached out and turned the lamp up — just a little. Just enough that the small gold flame burned a little brighter on the second stair, and threw its light a little farther into the dark of the shop, toward the door, and the lane beyond it, and the river road, and the whole wide world beyond the forest where a man with no name but one was running, and would keep running, and would never come home.
+The flame on the wick was a blue bead, barely alive.
+
+She reached out and turned the lamp up. Slowly. Carefully. The bead caught, and grew, and steadied, and turned gold — and she kept turning, past where she had ever turned it before, until the small flame stood up bright and tall on the second stair and threw its light all the way across the dark shop to the door, and under it, and out into the lane.
+
+Where two men in grey on a bench outside the inn could see it, if they liked. Let them.
 
 It stayed lit.
+
+It never went that low again.
