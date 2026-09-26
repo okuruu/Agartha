@@ -62,6 +62,44 @@ He glanced toward the open window. Outside, sunlight spilled across cobblestone 
 
 Arwen smiled faintly. “Peace is a fragile thing. You should hold on to it while you can.”
 
+A sharp green smell rose from somewhere close. He looked down.
+
+Around his other wrist, where the sand had scoured the skin raw, a strip of linen had been wound neatly, damp and faintly stained. Something cool and soft sat beneath it.
+
+Arwen had already turned back to the scarred table by the window. A stone mortar waited there among a row of opened jars. She took up the pestle, and the room filled with a slow, round grinding, stone against stone, and the smell grew greener.
+
+He watched her hands. They did not hurry.
+
+“What’s in it?” he asked. “On my wrist.”
+
+“Plantain leaf,” she said, without looking up. “Honey. A little yarrow.”
+
+“Why honey?”
+
+“It keeps a wound clean.”
+
+“And the yarrow?”
+
+The pestle paused. She glanced at him over her shoulder, and something moved at the corners of her mouth.
+
+“Three days asleep, child,” she said, “and the first thing you want is my receipts.”
+
+“I thought I should know,” he said. “Since I’m wearing them.”
+
+“It stops the bleeding.” The grinding resumed. “And it stops young men asking questions, if they sleep on it long enough.”
+
+By the shelves, Lyora had gone quiet. When he looked at her, she was holding a sprig of rosemary and doing nothing at all with it.
+
+“I tied that one,” she said. “The first night. I think I tied it too tight. Your hand went cold, and Grandmother had to undo it, and I—” She stopped. “I’m sorry.”
+
+Esdel lifted the hand into the light and flexed it slowly, one finger at a time, with great seriousness.
+
+“Five,” he said. “I counted. You didn’t lose any.”
+
+For a heartbeat she only stared at him. Then a laugh slipped out of her, surprised, and her shoulders came down from where they had been hiding.
+
+Arwen’s pestle kept its rhythm, but he thought he heard her breathe out through her nose, the way a person does when she has decided not to laugh.
+
 Lyora began arranging herbs in small clay jars, the air filling with scents of mint and rosemary. “You can stay here as long as you need,” she said, not looking up. “Grandmother doesn’t turn anyone away. Not even men who wander in from the desert claiming they lost an arm.”
 
 Her teasing tone made him almost laugh — *almost.*

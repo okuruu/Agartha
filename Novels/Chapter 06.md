@@ -14,6 +14,26 @@ And so he worked.
 
 He swept the apothecary’s floor, fetched water from the river, and helped hang bundles of dried herbs from the rafters. The scent of rosemary and sage clung to his clothes, seeping into his skin until it became familiar.
 
+Then Arwen gave him the jars.
+
+There were more of them than he had thought. Rows upon rows along the shelves, clay and glass and stoppered horn, each with a scrap of paper pasted to its belly in her slanting hand. He washed the empty ones in a basin in the yard, set them mouth-down on a cloth to dry in the sun, and read the labels on the full ones while he worked.
+
+Marshmallow root. Feverfew. Willow bark. Comfrey. Elder flower and elder berry, in separate jars, side by side like quarrelling sisters.
+
+“Why separate?” he asked.
+
+“Because one settles a cough,” Arwen said, “and the other, eaten raw, will turn a stomach inside out.”
+
+He nodded, and put that away somewhere.
+
+The next morning, before the kettle had boiled, he stood before the shelves with his hands behind his back and said the names aloud, one after another, left to right, top to bottom. He missed none.
+
+Arwen, coming in from the yard with her shawl around her shoulders, stopped in the doorway and listened to the end.
+
+“Hm,” she said.
+
+It was, he would learn, one of her highest compliments.
+
 Lyora would often watch him with an amused smile, her hands always busy — sorting, crushing, measuring. “You’re too serious for someone just learning the difference between thyme and basil,” she’d tease, eyes glinting.
 
 Esdel would glance up, pretending to frown. “If I mix the wrong one, someone might die.”
@@ -21,6 +41,20 @@ Esdel would glance up, pretending to frown. “If I mix the wrong one, someone m
 “That’s only if you *feed* them the wrong one,” she countered, laughter light and clean. “You’re just sweeping, Esdel.”
 
 Their banter became its own rhythm — quiet, unspoken, but comforting. She had a way of drawing small smiles from him, like sunlight coaxing life from the soil.
+
+The questions did not stop with the jars. Why willow for a fever and not for a cut. Why lavender was hung upside down to dry. Why this root was boiled and that one only steeped, why honey, why vinegar, why the mint went in last.
+
+Arwen answered each one without lifting her eyes from her work. But one morning, somewhere around the ninth, she set her pestle down.
+
+“Child,” she said, “do you know how long it took Lyora to ask me that many questions?”
+
+“How long?”
+
+“She’s still working on it.”
+
+From the garden, Lyora’s voice floated in through the window. “I heard that.”
+
+Arwen picked up the pestle again. The corner of her mouth did not quite behave.
 
 In the evenings, when the work was done, he would sit by the stream just beyond the apothecary’s garden. The water was clear and cold, running over smooth stones that caught the light like fragments of glass. The villagers passed by with baskets of fruit or bundles of firewood, always greeting him with polite warmth. No one asked where he had come from. No one seemed to care.
 

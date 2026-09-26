@@ -8,6 +8,38 @@ That was when **Reyn Challon**, the village engineer, arrived at the apothecary 
 
 Arwen merely looked up from her mortar and smiled faintly. “Odd ideas have built more than they’ve broken, Reyn. Take him.”
 
+Esdel did not move from the worktable.
+
+He had a sieve in one hand and a heap of dried calendula in front of him, half of it picked clean of stems, and the orange of the petals had stained his fingertips. The room smelled of it, bright and resinous, with the steam of a fever tincture ticking on the hearth behind him.
+
+“Apprentice,” he said mildly.
+
+Reyn blinked. “What?”
+
+“You said helper.” Esdel tipped the clean petals into a jar. “I’ve been promoted.”
+
+Arwen did not look up. “Have you.”
+
+“You let me use the good mortar.”
+
+“Hm,” said Arwen, which settled it.
+
+Reyn looked from one to the other. “Fine. I’m borrowing your *apprentice*.”
+
+“The apprentice has calendula to finish,” Esdel said, “and that tincture to strain at noon, and every shelf to dust, because someone put the honey back without its lid.” He did not look at Lyora, who had become very interested in the ceiling. “The shop comes first. Mornings are hers. Always.” He met Reyn’s eyes, and his voice was easy, but it did not bend. “Afternoons, I’m yours until the light goes.”
+
+Reyn turned to Arwen as if appealing to a higher court.
+
+Arwen’s pestle went on, unhurried. “You heard him.”
+
+“Half a man,” Reyn said, throwing up his hands.
+
+“The better half,” Esdel said. “The morning half mostly yawns.”
+
+Reyn tried to hold his frown and lost. He laughed, a big, helpless laugh that shook the jars on the lowest shelf, and dragged a stool out from the wall to sit on while he waited.
+
+At noon, when the tincture had been strained and stoppered and labeled in his small, strange hand, Esdel washed the orange from his fingers.
+
 And so, Esdel followed.
 
 ---
@@ -35,6 +67,10 @@ The engineer stared at him, incredulous at first — then thoughtful. “Well,�
 ---
 
 They worked for days under the sun.
+
+Afternoons only. Every dawn Esdel was at the shop before the light, grinding and sorting and straining, his notebook open beside the mortar; every noon, Reyn’s shadow appeared in the doorway, patient as a creditor. He began calling it *collecting my half*. Lyora began calling Reyn *the creditor*. Reyn pretended to be wounded and came earlier each day, until Arwen put him to work crushing rose hips so he would stop leaning on things.
+
+In the evenings Esdel came home sunburned and smelling of cut bamboo, and before he ate he would ask what had come through the door that day — a cough, a burn, a child with a splinter — and what Arwen had given for it, and why. Then he wrote it down.
 
 Together, they split bamboo stalks, burned their interiors clean, and connected them with resin and cloth binding. Reyn’s apprentices watched curiously, whispering among themselves as Esdel calculated angles and adjusted inclines by hand — his movements methodical, his reasoning effortless.
 

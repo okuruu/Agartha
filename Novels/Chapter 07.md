@@ -2,11 +2,33 @@
 
 Days folded quietly into one another, weaving themselves into something that almost resembled a life.
 
+The days took on an order, and the order began at the shop.
+
+He rose before the light. By the time the roosters had finished arguing, he was downstairs with the shutters open and the kettle on, and the room smelled of whatever Arwen had set out the night before: crushed fennel, or the dusty sweetness of chamomile, or the bitter green of something he did not know yet and would ask about.
+
+Grind. Sort. Dry. Sweep.
+
+The pestle had its own voice, he learned. A low, round grinding that changed as the leaves gave way, from a crunch to a whisper. Arwen could tell by ear when a thing was done. He could not, yet. He checked with his thumb, and she pretended not to see.
+
+One morning Lyora pushed a small book across the worktable. It was a cheap thing, bound with string, the paper rough enough to catch a fingernail.
+
+“You ask Grandmother so many things she’s started answering in her sleep,” she said. “Write them down. Give her a rest.”
+
+So he wrote. Receipts, mostly. What went into the cough syrup and in what measure. How long the willow bark steeped. Which leaves were picked young and which were left to toughen. His hand was small and close and strange, the letters leaning in ways that were not quite like Arwen’s or Lyora’s or anyone’s.
+
+Lyora, reading upside down across the table, said it looked like a spider had walked through the ink with great care.
+
+“The spider is doing its best,” he said, and kept writing.
+
+Only when the floor was swept and the drying racks turned did he go out into the village.
+
 Esdel had become part of **Edenridge’s** rhythm — not quite one of them, but no longer a stranger. The villagers would greet him with a nod, sometimes a smile, and always a word of thanks when he passed carrying crates of vegetables, repairing a fence, or hauling buckets of river water to the communal garden.
 
 He worked hard, though no one ever asked him to. It gave him purpose — something solid to hold onto in a world that felt too soft, too forgiving.
 
 He fixed broken stalls, mended tools, helped children chase their goats back into pens. In time, the villagers began to rely on him in small, quiet ways — a gesture here, a wave there. They called him *the man who never complains.* He found the title strangely fitting, though it carried a loneliness he couldn’t name.
+
+He made them laugh, too, without seeming to try. He told a runaway goat, very gravely, that it was making poor choices, and its owner laughed so hard she had to sit down on the fence. He carried an old woman’s water up the lane and remarked that the river seemed to have grown heavier since yesterday, and she told the story for a week. It was always something small, a word, a lifted brow, and it always seemed to land where it was needed.
 
 Each evening, he returned to the apothecary. The place had become his quiet refuge — its wooden walls lined with drying herbs and hanging flowers, the scent of lavender and moss lingering in the air.
 

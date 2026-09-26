@@ -4,7 +4,7 @@ The days in **Edenridge** had become a seamless thread — woven with the rhythm
 
 Mornings filled with the sound of roosters and laughter. Midday sun pouring over green fields. Evenings painted with amber light through the apothecary’s windows, the scent of drying herbs wrapping the air like memory.
 
-Esdel worked as always — steady, quiet, dependable. The villagers no longer treated him as an outsider. Children waved when he passed; merchants offered him fruit in thanks. Lyora teased that he was becoming “boringly reliable,” and he pretended to take offense.
+Esdel worked as always — the shop at dawn, the village after — steady, quiet, dependable. The villagers no longer treated him as an outsider. Children waved when he passed; merchants offered him fruit in thanks. Lyora teased that he was becoming “boringly reliable,” and he pretended to take offense.
 
 Peace had a strange texture — unfamiliar, fragile, yet impossibly precious.
 
@@ -24,6 +24,24 @@ Esdel glanced at her — at the way she spoke to the world as though it could li
 
 He didn’t know how to respond to that.
 
+Instead, he looked down at the baskets at their feet. They had gone out to gather along the field edges that morning, and everything they had picked was soaked through.
+
+Lyora followed his glance, then knelt and went through them with quick fingers, the way another woman might count her children after a fright.
+
+“Nettles are fine,” she said. “Nettles don’t care about anything.” She lifted a sodden fistful of chamomile and sighed at it. “These are lost.”
+
+“Because they’re wet?”
+
+“Because they’re flowers. Flowers you gather dry, after the dew’s burned off, or they go black on the rack before they ever cure.” She set them aside. “Leaves you can take damp, if you get them hanging fast. Roots you want after rain. The ground lets go of them easier.”
+
+“Flowers dry,” he repeated. “Leaves quick. Roots after rain.”
+
+“And bark in spring, when it slips.” She glanced up at him. “You’re going to write that down later.”
+
+“In the spider hand.”
+
+“In the spider hand,” she agreed, and something in her face eased.
+
 For a long while, they simply listened to the storm. The smell of wet earth filled the air. Somewhere nearby, a bell clanged faintly in the wind.
 
 Lyora’s voice broke the silence again, softer this time. “When I was little, I thought the ocean must sound like this,” she said. “Like rain that never ends. My parents used to tell me stories about it — said it stretched farther than the eye could see.”
@@ -33,6 +51,12 @@ Her gaze drifted outward, unfocused, her expression caught between longing and l
 Esdel studied her quietly. “You’ve never seen it?”
 
 She shook her head. “No. Edenridge is all I’ve ever known. But I’d like to, one day. To stand where the land ends and just… let the world breathe around me.”
+
+Esdel was quiet for a moment, listening to the way she had said *my parents*, and to what she had not said after it.
+
+“Then it’ll still be there when you go,” he said gently. “The ocean isn’t going anywhere. I think it would wait for you.”
+
+She turned her head and looked at him.
 
 There was a pause — the kind that feels too delicate to break.
 
