@@ -14,6 +14,7 @@
 | `Ideas/` | Arc plans and brainstorms that are **still open**. Not canon until written into `Novels/`. |
 | `Ideas/Done/` | Plans that are **finished and already written**, marked `[DONE]`. Historical record only. **Never reuse them**; the chapters are the source of truth. |
 | `BIBLE.md` | This file: style guide, canon facts, chapter index, continuity rules. |
+| `Secret/SECRET LORE (author only).md` | **Spoilers, author-only.** The hidden truth behind the world and Esdel. **Never write any of it into the chapters or this BIBLE** until the author says to reveal it. Read it only to avoid contradicting it. |
 | `Ideas/Done/[DONE] Next Arc.md` | The user's original outline for the fall of House Lián and Xueyao's exile. **Fully written** (Ch51–66, Ch67–98). Kept as a record only; where it differs from the chapters, the chapters win (see §7). |
 | `Archive/Novel (original, pre-split).md` | The original single file from before the consistency pass. Not canon. |
 
