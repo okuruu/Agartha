@@ -8,6 +8,8 @@ Esdel went down to it alone, in the grey of the morning, with his hood up.
 
 The General had not wanted him to. None of them had. But they needed salt, and flour, and cloth for bandages, and thread, and he was the only one among them whose face had not been drawn on any wanted bill. The decree had named him. It had not described him. *The apothecary Esdel, of no family.* A man of middle height and no particular features, with brown eyes, in a worn grey coat. There were a thousand such men in the borderlands.
 
+He had wondered about that, once, in the hut. Half the capital had looked at his face — the masters of the college, the whole Lián household, the Count across a small table in the east wing. Someone could have drawn it. No one had. He had turned the question over for a night, the way he turned over anything that did not add up, and then he had been too tired, and too grateful, to turn it any more.
+
 “One hour,” Xueyao had said. “If you’re not back in one hour, we come down.”
 
 “I’ll be back.”

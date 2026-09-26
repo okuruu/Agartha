@@ -66,6 +66,20 @@ He did not do anything. He only sat.
 
 His right hand lay in his lap, in its black silk sling. It had healed badly. The cords that the apothecary’s blade had cut across the back of his wrist had knit together short and hard, and the fingers had curled inward, and would not open again. He could not hold a pen with it. He could not hold a sword. He had learned to write with his left hand in his beautiful script, and it was almost as beautiful, and the court said it was a marvel.
 
+In the first week after the decree, a clerk had come from the Ministry of Justice with a limner at his elbow — a nervous young man with a board and a box of charcoal — to take down the likenesses of the traitors for the bills. The General’s face they had already; half the capital had painted it. The soldiers of House Lián they had pieced together from the grooms and the kitchen maids. There remained only the apothecary.
+
+*You saw him closer than anyone, my lord,* the clerk had said. *At the ford.*
+
+The Count had considered the question with great courtesy.
+
+*I’m afraid I barely remember him,* he said. *Brown eyes, I think. Neither tall nor short. The sort of man one passes in a corridor and forgets.* He smiled, apologetic, and lifted his bandaged hand a little in its sling. *It was dark, you understand. And I was occupied.*
+
+The limner had drawn nothing. The clerk had written *no particular features* and gone away. And the Count had sat on alone, afterward, looking at the garden, and had not stopped smiling for some time.
+
+A man with a face on every tree hides in the hills and never comes down. A man with no face begins, in time, to believe he is safe. He starts to go down to markets. He starts to think of roads.
+
+And sooner or later, every road a man like that thinks of runs home.
+
 He sat by the empty cot with his ruined hand in his lap and his clear grey eyes on the pillow, where the small shape of a child’s head was still pressed into the linen. The maids had not changed it. He had told them not to.
 
 Sometimes, when he sat there long enough, in the silence, in the fading light, the servants passing in the gallery outside thought they heard him speaking. Softly. As though to someone in the room with him.

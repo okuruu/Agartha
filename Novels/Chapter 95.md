@@ -72,7 +72,7 @@ Then he turned around and looked at the herald.
 
 The herald blinked at him.
 
-“That man,” said Reyn Challon, and his voice was not loud, but it carried in the silent square the way it had once carried over the fields on the day the water ran uphill through the bamboo. “That man lived in this village a year. He fixed our fences. He carried our water. He made the river climb that hill when every enchanter in the valley said it couldn’t be done.” He pointed up the slope, toward the high fields, where the channels caught the white sunlight like threads of glass. “He never raised his voice. He never took a coin he didn’t earn. He’d sooner cut his own hand off than hurt a child.” His jaw was working under the copper beard. “Whatever that paper says he did — it’s a lie.”
+“That man,” said Reyn Challon, and his voice was not loud, but it carried in the silent square the way it had once carried over the fields on the day the water ran uphill through the bamboo. “That man lived in this village one spring and one summer. He fixed our fences. He carried our water. He made the river climb that hill when every enchanter in the valley said it couldn’t be done.” He pointed up the slope, toward the high fields, where the channels caught the white sunlight like threads of glass. “He never raised his voice. He never took a coin he didn’t earn. He’d sooner cut his own hand off than hurt a child.” His jaw was working under the copper beard. “Whatever that paper says he did — it’s a lie.”
 
 The herald looked at him with polite, sweating disinterest.
 

@@ -60,11 +60,11 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - Promised Lyora "I'll stay" (Ch36), then "I'll come back" (Ch37). He's never broken this on the page.
 - Fights by instinct, not memory (Ch35, 40–41). He can't use body-enhancement magic (Ch40).
 - Titles and nicknames: "the man who never complains" (Edenridge), "Apothecary" (camp), "Hero" (Ch42), "the backwater genius" (Ch47).
-- **Since Ch92 he is a declared traitor.** The decree names him "*the apothecary Esdel, of no family, formerly of the Third Logistic Company and the medical division of the North Ridge post, late of the village of Edenridge*." The bounty is **1,000 gold crowns, living or dead.** The decree has no description of his face.
+- **Since Ch92 he is a declared traitor.** The decree names him "*the apothecary Esdel, of no family, formerly of the Third Logistic Company and the medical division of the North Ridge post, late of the village of Edenridge*." The bounty is **1,000 gold crowns, living or dead.** The decree has no description of his face. **Aldric withheld it on purpose** (Ch97): he told the Ministry's limner he "barely remembers him," so Esdel will feel safe and, in time, head home to Edenridge, where the watchers wait. Esdel wondered about it once (Ch98) and let it go.
 - **He can never go home** (Ch93). The name of the village is on the decree, and Aldric knows it (Ch76). He stays with Xueyao so the hunt runs *away* from Edenridge. This is how he keeps his promise to Lyora: by staying away.
 - He burned every letter he wrote to Lyora (Ch76, 85). He keeps **one torn scrap of paper with a single word on it**, tucked behind the silver flower on the necklace (Ch85). The word is never revealed.
 - Sent Lyora **a plain brown cord with three of his knots** through a south-bound peddler, with no message (Ch98).
-- Never told Xueyao "the rest" about the tonic (that it *binds* the drinker to whoever pours it). He carries the note in his coat (Ch72).
+- Never told Xueyao "the rest" about the tonic (that it *binds* the drinker to whoever spends the most time with them while it works; the pourer doesn't matter). He carries the note in his coat (Ch72).
 - Used Halden's **blue vial** at the Greenwater ford (Ch91). He took a spear through the left side, and it closed on the second night (Ch93).
 - He instinctively knows plants and poisons (Ch71–72, 96) and writes in a "small, strange hand" that isn't like anyone else's (Ch71, 75).
 - **He has never killed anyone in this Kingdom's service.** He spared the Count at the ford by choice: "I didn't want to be the kind of man who would" (Ch93). He did kill the enemy captain in Ch41.
@@ -285,7 +285,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch69**: *Serpent over the Gate.* The Reng banner over the old Lián characters. Aldric's perfect courtesy. Anlan lets go of Xueyao to turn toward Aldric "like a flower to the light." At night beneath the peach tree, **Xueyao holds Yueming for the first time** and weeps without a sound.
 - **Ch70**: *Interlude, One Year.* Edenridge in spring. The lamp burned all winter; Arwen gave up her own oil. Lyora's unsent letters are in the drawer. Eldric: "Still?" "Still." A passing soldier of the Third Logistic says the apothecary was alive, transferred north.
 - **Ch71**: *The Amber Hour.* Aldric pours the drops himself every dusk. Changli steals a bottle. Esdel builds a laboratory in his room: heat, solvents, lye, flame. Pei brings two mice.
-- **Ch72**: *What the Mice Knew.* **Greyveil** (a paralytic that weakens will and heart) plus an **unnamed gold oil** that binds the drinker to *the hand that gives it*. He tells Xueyao only about the poison. Changli sees him hesitate. The note goes into his coat.
+- **Ch72**: *What the Mice Knew.* **Greyveil** (a paralytic that weakens will and heart) plus an **unnamed gold oil** that binds the drinker to *whoever is with them while it works*, not to the pourer (the mouse Esdel fed goes to Pei, who sat with it all day). He tells Xueyao only about the poison. Changli sees him hesitate. The note goes into his coat.
 - **Ch73**: *A Banquet for the Victor.* The Hall of Clear Waters. Ardbert and Xueyao talk honestly for the first time. Aldric pats Rowan's arm "like a dog." In the carriage, Xueyao works out that Aldric got her leave granted.
 - **Ch74**: *The Accusation.* At the spring reception under the peach tree: "You are poisoning my mother." Aldric's wounded show; **Anlan: "Xueyao, how could you?"** By morning the capital says: "*The general has lost her mind.*"
 
@@ -314,7 +314,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch94**: *Interlude, The Backwater Genius.* Halden: "*Idiot.*" At North Ridge **the dragon keens for days, looking south, and doesn't rise**; the front loses a mile and three hundred men. Loryn, wounded, hears the name.
 - **Ch95**: *Interlude, The Crier.* The herald under the great tree. Esdel's name, and the silence. **Reyn: "We only knew an apothecary. And he was a good man."** Two men in grey at the inn. Lyora understands he'll stay away *for her*, and turns the lamp up.
 - **Ch96**: *White on the Ridge.* The borderlands. At dawn Xueyao cuts her hair and wears white. For a breath she is **the woman in white**, and then only Xueyao. "Who are you?" "**Esdel.** For now, I think it's enough." She calls him by his name for the first time.
-- **Ch97**: *What the Kingdom Says.* Legends: she wanders in white; **the dragon sleeps and won't wake for anyone** (the court magicians failed). The King's white pin on Edenridge. Aldric's ruined hand and the empty cot, speaking to something. Rowan adds "*Vale*." Ardbert at the north gate at night.
+- **Ch97**: *What the Kingdom Says.* Legends: she wanders in white; **the dragon sleeps and won't wake for anyone** (the court magicians failed). The King's white pin on Edenridge. Aldric refuses the limner a likeness of Esdel ("*a man with no face… every road… runs home*"). Aldric's ruined hand and the empty cot, speaking to something. Rowan adds "*Vale*." Ardbert at the north gate at night.
 - **Ch98**: *The Knot.* A border market. **Three knots on a plain brown cord**, carried by a peddler whose sister never got a letter. Autumn in Edenridge: "Found this in my pack." Lyora's thumb finds the first knot. She ties the cord to the lamp. *Waiting.*
 
 ---
@@ -372,7 +372,7 @@ Anchors that must stay consistent:
 7. **The one-word scrap** behind the silver flower (Ch85). The word is never shown. The first letter's single line (Ch76) was also never shown.
 
 **The gold thread**
-8. **The unnamed gold oil** in the tonic, which binds the drinker to the pourer (Ch72). It "had not grown in a valley."
+8. **The unnamed gold oil** in the tonic, which binds the drinker to whoever keeps them company while it works, **not** to the pourer (Ch72). Aldric both poured *and* sat with Anlan every amber hour. It "had not grown in a valley."
 9. **A gold thread in Aldric's heart** (Ch91). Aldric speaks to something in the empty nursery and seems to hear an answer (Ch97).
 10. **The crimson-eyed man** and the smiling, black-eyed corpses (Ch44–45): "He wasn't alone." Possibly linked to 8–9; not confirmed.
 11. **Master Vale** is looking for a ship; Rowan has written his name under Reng's (Ch97).
@@ -406,7 +406,7 @@ Anchors that must stay consistent:
 | 2 | Cousin joined a rebellion; ten executed | Garron **embezzled** 20,000 crowns; ten sentenced, only Garron died (Ch51–52, 62) |
 | 5 | "A Lián ship" | The *Jade Willow*, a Wei gift vessel under twin crests (Ch57–58) |
 | 12 | Xueyao on "medical leave" | A three-month sanctioned leave, **arranged by Aldric** behind Rowan's back (Ch66, 73) |
-| 13 | Tonic: mild paralytic plus emotional-susceptibility compounds; Esdel silent about "the rest" | **Greyveil** plus an **unnamed gold oil that binds the drinker to the pourer**. He tells her only about the poison (Ch71–72) |
+| 13 | Tonic: mild paralytic plus emotional-susceptibility compounds; Esdel silent about "the rest" | **Greyveil** plus an **unnamed gold oil that binds the drinker to whoever spends the most time with them** (not the pourer). He tells her only about the poison (Ch71–72) |
 | 14 | Confrontation; "the general has lost her mind" | At the spring reception under the peach tree, and **Anlan herself defends Aldric** (Ch74) |
 | 15 | No one stands beside her | The college hearing; Ardbert is silenced by the King (Ch75) |
 | 16 | Guardianship rumor | Same, and the reason is the **dragon bound to the Lián blood** (Ch79) |
@@ -449,7 +449,7 @@ Don't reread all 98 files. Pick the pass you need:
 - [ ] Benn is **he**. The crimson-eyed man can't see in the dark.
 - [ ] Place names: Edenridge, Eastern Post, North Ridge, Lián estate, western harbor, Nanyue, Iskar, Redmere, Hall of Clear Waters, Hall of Remedies, Hundred Steps, Street of Lanterns, Temple of the Moon, Greenwater ford, Harrowmere.
 - [ ] Headcounts: 15 Lián guards left North Ridge with Xueyao, Changli, and Esdel (18 total). 4 died at the gate, 2 in the Street of Lanterns, 2 at the ford; Suyin went south. **Seven exiles:** Xueyao, Esdel, Pei Lun, Gao, and four old soldiers.
-- [ ] Esdel is a wanted man; nobody on the page may recognize him by his face (the decree has no description).
+- [ ] Esdel is a wanted man; nobody on the page may recognize him by his face (the decree has no description, because Aldric withheld it as bait, Ch97).
 - [ ] Festival names are exact: "Festival of Wishing Threads," "Festival of Flow," "Devotional Gathering."
 - [ ] House crests: Reng = silver serpent eating its tail. Hale = silver griffin. Wei = crane over the moon. Royal seal = brass lion's head.
 - [ ] Relative time matches §5. Don't invent calendar dates.

@@ -36,7 +36,9 @@ He sat back and looked at it.
 
 The other mouse — the one that had only water — was in the far corner of its basket, as far from him as it could get, glaring at him with bright suspicious eyes, the way any sensible mouse glares at the giant who has caught it.
 
-He tried it again in the morning. He had Pei come in and feed the dosed mouse its drop, from Pei’s own fingertip, while Esdel stood at the far side of the room. And afterward, when both men held out their hands to the basket, the mouse went — not to Esdel, who had fed it for two days, but to Pei.
+He tried it again in the morning. He fed the dosed mouse its drop himself, from his own fingertip, as he had from the start. Then he gave the basket to Pei and went out — to the market, to the stillroom, anywhere — and left the boy to sit with it through the long hours while the drop did its work. Pei talked to it. He could not help himself; he talked to everything. He named it, and told it about his sisters, and let it sleep in the hollow of his palm.
+
+At dusk Esdel came back. And when both men held out their hands to the basket, the mouse went — not to Esdel, who had fed it every drop for two days, but to Pei.
 
 It pressed its small body against Pei’s knuckles and closed its eyes.
 
@@ -56,9 +58,9 @@ He sat with his notes in the grey dawn, and looked at them, and understood what 
 
 *The paralytic softens her. Makes her pliant. Dulls her grief, and her anger, and her memory, and her will to resist.*
 
-*And the second thing — whatever it is — binds her to the hand that gives it.*
+*And the second thing — whatever it is — binds her to whoever is there while it works.*
 
-Not to the tonic. To the hand. To whoever poured it, every day, in the amber hour, and sat beside her, and spoke to her softly while it worked.
+Not to the tonic. Not even to the hand that poured it. To the face in front of her. To whoever sat beside her, every day, in the amber hour, and spoke to her softly, and was the only thing in the room while the gold went through her blood.
 
 He thought of Lady Anlan in the pavilion, holding the Count’s hand against her cheek. The warm, grateful, sleepy look in her eyes.
 
