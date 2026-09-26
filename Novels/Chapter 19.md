@@ -44,25 +44,15 @@ The words on the page stayed still. They didn’t turn away from him.
 
 The rest of the day moved like a dream — soft, distant, almost unreal. The villagers came and went; Esdel fixed shelves, fetched water, even helped an old man find a tonic for his joints. Esdel told him the tonic tasted like a boot, so it must be working, and measured it with the little horn spoon, level, never heaped. The old man laughed, and paid in eggs.
 
-In the afternoon, the young widow from the lower lane came in again.
+In the afternoon, a small boy from the mill lane came in by himself, with a copper clutched in his fist and a cough he was very proud of.
 
-She had come twice already that week — once for her little boy’s cough, once for nothing she could name. Today she carried a plate of honey cakes under a cloth, still warm, and set it on the counter in front of him rather than in front of Arwen.
+His mother had sent him, he said. For something for the cough. And she said — he screwed up his face to get it right — that the cake was her mother’s receipt, and did the apothecary copy it yet.
 
-“For your trouble,” she said. “You were so patient with my boy.”
+“Tell her I did,” said Esdel gravely, and filled the little bottle of thyme syrup, and showed the boy how to hold it upright all the way home, like a soldier carrying a flag. “In warm water. Never on an empty stomach. Can you remember that?”
 
-Her smile stayed on him a moment too long. Her fingers, too, on the edge of the plate.
-
-Esdel saw it. He saw it the way he had learned to see a leaf beginning to brown at the edge — early, and without any fuss.
-
-“That’s kind of you,” he said warmly, and lifted the cloth, and breathed in. “Arwen, they’re still warm. We’ll have them with tea. All of us.” He set the plate in the middle of the worktable, where every hand could reach it, and turned back to her. “How’s his cough at night? Still dry, or has it loosened?”
-
-She blinked. Then, slowly, she told him — about the boy, about the long nights — and he listened to every word, and filled a small bottle of thyme syrup, and told her: in warm water, never on an empty stomach.
-
-She went out into the light not embarrassed at all. Only a little quieter, and still smiling.
+The boy said it back to him twice, and coughed, magnificently, and went.
 
 Arwen said nothing. But when she passed behind him, she patted his shoulder twice, the way she settled a jar back on its shelf.
-
-Across the room, Lyora’s knife had stopped again. She looked at the plate of honey cakes for a long moment. Then she went back to her chopping, and did not take one.
 
 But through it all, his thoughts circled endlessly around her — the way her voice didn’t tremble, the way her smile never reached her eyes.
 
