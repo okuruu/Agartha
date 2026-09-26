@@ -1,141 +1,253 @@
 # **Chapter 37**
 
-The night stretched on quietly.  
-The faint scent of tea still lingered in the air, mingling with the last threads of candle smoke that curled toward the ceiling before fading into nothing. Outside, the cicadas sang their weary song — a fragile rhythm that made the silence between them feel even heavier.
+They came inside at last, away from the cold.
 
-They had come inside at last, away from the cold. Lyora sat beside Esdel at the kitchen table, a single candle between them, their shadows swaying together on the wall. Neither spoke for a long while. The quiet was too delicate to touch.
+She made tea, because it was something to do with her hands. He sat at the kitchen table and watched her do it — the kettle, the honey, the sprig of mint, the cup set down in front of him made the way she took hers. A single candle burned between them. Their shadows leaned together on the wall.
 
-Her eyes were swollen from crying, the faint redness refusing to fade even as her face calmed. But it wasn’t peace that had settled over her — it was the stillness that comes after breaking, when there’s nothing left to shatter.
+For a long time neither of them spoke. It was a good silence. The first good one all day.
 
-“Before you came,” Lyora whispered at last, her voice like a small wind in the dark, “this house used to be full of laughter.”
+“This house used to be loud,” she said at last.
 
-Her gaze wandered across the dim kitchen, the familiar scent of dried mint and lavender clinging to the air. “My parents lived here too. Father was a healer — he could mend wounds faster than anyone I knew. And Mother…” She smiled faintly, the kind that hurt more than tears. “She was an apothecary, like Grandmother. Always working late. Always smelling of herbs and sunshine.”
+He waited.
 
-Esdel said nothing. He only watched her lips tremble as she spoke, the candle painting golden halos in her hair.
+“My parents lived here too. Before.” She turned her cup slowly on the table. “Father was a healer. He could close a wound faster than anyone I ever saw. And Mother was an apothecary, like Grandmother. She was always up late, always smelling of — ” she moved her hand, “ — this. Herbs. Sunshine. She used to sing while she ground things, and she couldn’t sing at all.”
 
-She drew a quiet breath. “Then one day, soldiers came. They said they needed Father’s help at the frontlines. People were dying — no healers left. He didn’t want to go, but he couldn’t turn them down. And Mother… She followed him. Said she couldn’t let him face danger alone.”
+A small smile. It did not last.
 
-Her throat tightened. The flame quivered, and for a moment her reflection in the dark window looked like a stranger’s.
+“Then soldiers came. In the night, like tonight — with torches. They needed a healer at the front. Father didn’t want to go. But people were dying, and there was no one else, and he couldn’t say no.” She was quiet a moment. “Mother went with him. She said she wouldn’t let him face it alone.”
 
-“They promised to come back,” she said softly.  
-A pause.  
-“They never did.”
+The candle leaned in a draft.
 
-Esdel’s fingers clenched on his knees. His chest ached with something he didn’t understand. The pain in her voice stirred memories that didn’t belong to him — echoes of loss, of someone crying his name long ago. He didn’t know who she was, that woman in white, but hearing Lyora speak like this made him afraid of remembering.
+“They stood in that doorway,” said Lyora. “Both of them. And they said, *we’ll be back before the snow.*” She looked at the door. “They meant it. People always mean it.”
 
-He wanted to protect her. Even if he couldn’t explain why.
+He did not say anything. There was nothing to say that would be worth the silence it broke.
 
-He looked at her — the soft curve of her face, the way her fingers tightened around her arm, the trembling light that caught in her lashes. She looked so fragile, and yet her wet green eyes — gods, her eyes still burned with the stubborn fire of someone who refused to stop caring.
+“There are only two people left in my world now,” she said. “Grandmother.” Her voice went very small. “And—”
 
-His voice came low. “What would you do,” he asked, “If I disappeared one day? Like a withered flower?”
+She stopped.
 
-Lyora froze. The color drained from her face, the candlelight catching the faint tremor in her hands.
+She did not need to finish. He had already heard it. He reached across the table, slowly, and took her hand, and she let him, and they sat like that with the tea going cold between them and the candle burning down.
 
-“Why would you ask that?”
+*I’ll stay,* he had said, an hour ago, in the garden.
 
-Esdel’s gaze dropped to the tea between them. The steam had long gone cold.  
-“I don’t know,” he said softly. “Just… wondering.”
+He meant it. He had never meant anything so much.
 
-The air thickened.
+---
 
-Her breath came uneven, and when she turned to him again, her eyes shone with anger barely masking her fear. “Don’t say things like that. Don’t.”  
-She set her shawl down, the sound too loud in the quiet. “I already lost people I love once. I can’t—” Her voice cracked, the rest catching in her throat.
+It began with a sound on the river road.
 
-“There are only two people left in my world now,” she whispered. “Grandmother… and—”
+Boots. Many of them, out of step. The creak of harness, the low voices of tired men. Then light moving between the trees — torches — and Lyora’s hand went still in his.
 
-She stopped herself, but Esdel already saw it in her eyes before she could finish.
+“At this hour?” she whispered.
 
-“And you.”
+They went out. The whole village was going out — doors opening all down the lane, people in their nightclothes with shawls thrown over, children lifted onto hips. In the square beneath the great tree, a column of soldiers had halted, grey with dust. Some were being held up by others. One was being carried.
 
-The words sank deep, sharp as glass and gentle as rain. Esdel’s breath caught. His heart stuttered. He didn’t know how to hold something that pure without breaking it.
+A man with a captain’s knot on his shoulder stepped forward into the torchlight.
 
-He wanted to tell her he’d never leave, that he’d stay and protect her and never let another shadow touch her life again — but something inside him whispered *don’t*. A quiet, ancient warning that told him promises like that were not his to make.
+“Is there a healer here?” he called. His voice was hoarse. “An apothecary? Our camp was hit on the road. We lost our medic. We need someone who can march with us and keep these men alive till the Eastern Post.”
 
-So he didn’t speak.  
-He just reached for her hand, slow and hesitant, and let his fingers brush against hers. She didn’t pull away. Their hands intertwined under the flickering light — fragile, trembling, real.
+Arwen stepped out of the crowd.
 
-“You’re here,” she said quietly, her voice shaking. “That’s enough.”
+The captain looked at her — at her silver braid, and her slow careful step, and her hands, which were steady, but old — and something tired and kind went across his face.
 
-The world narrowed to that one truth. The warmth of her palm against his. The soft hum of cicadas beyond the walls. The faint glow of the candle swaying with their breaths.
+“Grandmother,” he said, very gently. “It’s thirty miles a day. Some days more.”
 
-For the first time in what felt like forever, Esdel felt peace — thin and delicate, like silk stretched too tight.
+Arwen did not argue. She knew. Everyone in the square knew.
 
-But peace never lasts.
+The captain’s eyes moved on. Over the crowd. And stopped on the girl beside the old woman — the one with the apron still on, and green stains on her fingers, and the look of someone who has spent her whole life in a house full of jars.
 
-It began with a distant sound — the sharp rhythm of boots on dirt, then the low murmur of men’s voices. The metallic scrape of armor carried through the trees. Lyora’s head lifted, eyes darting toward the window.
+“You,” he said. “You know herbs?”
 
-Light flickered beyond the branches.  
-Torches.
+Lyora did not answer at once.
 
-“That’s strange,” she murmured. “At this hour?”
+Esdel felt her go still beside him. Not frightened. Something worse than frightened. He felt her go still the way a person goes still when a thing they have been waiting for all their life finally arrives, and turns out to be exactly the shape they always knew it would be.
 
-Esdel rose. The air outside was colder, biting against his skin as they stepped into the night. Villagers were already gathering in the square, whispering, their faces pale and wary in the orange light.
+“Yes,” she said.
 
-A small battalion approached — weary, dust-covered soldiers with grim faces.
+“Can you set a bone? Stitch a wound?”
 
-“Is there a healer here?” one of them called out, voice rough. “An apothecary? We need help—badly!”
+“Yes.”
 
-From the crowd, Arwen stepped forward, Lyora close behind her.
+The captain looked at her a moment longer. Then he nodded.
 
-“What’s happened?” Arwen asked.
+“Then you’ll come,” he said. “We leave at dawn.”
 
-“Our camp was attacked,” said the captain, wiping sweat from his brow. “We lost our medic. We need someone who can tend to the wounded on the road.”
+And Lyora — standing in the torchlight in her apron, with her grandmother’s arm through hers — lifted her chin, very slightly, the way her mother must have lifted hers in that doorway, and said, quite steadily:
 
-Arwen hesitated. “We have few hands here, but—”
+“Yes. I’ll come.”
 
-“We just need one,” the captain interrupted. “Someone capable. Strong enough to travel with us.”
+Arwen made a sound. A very small sound. Esdel had never heard her make it before, and he never wanted to hear it again.
 
-Silence fell.  
-Esdel felt the weight of every gaze turn toward him.
+He saw the doorway. He saw it the way Lyora had shown it to him, an hour ago, across a kitchen table — two people standing in it, meaning it. *We’ll be back before the snow.* He saw the lamp on the second step, and no one to light it. He saw Arwen at the window with her mending, waiting, and waiting, and her hands getting older.
 
-The torchlight carved lines across his face — the faint shimmer of the scar over his temple, the quiet steadiness in his posture. He looked like someone who belonged to the world of battles, even if he didn’t remember why.
+He saw Lyora at the front, in a tent that smelled of blood, with no one beside her.
 
-The captain’s eyes narrowed. “Him. He looks steady enough. He’ll do.”
+He stepped forward.
 
-Lyora’s breath hitched. The world tilted.  
-“Wait—what? No. No, you can’t—he’s not—”
+“No,” he said.
 
-“We don’t have time,” the captain snapped. “Every minute we waste, more lives are lost. We just need one. We’ll return him safely.”
+The captain turned.
 
-Lyora stepped forward, shaking her head so hard her hair came loose from its braid. “Then take me instead! Please! I know herbs, I can treat wounds—let me go in his place!”
+“Take me,” said Esdel.
 
-The captain frowned. “Impossible. The frontlines are no place for women. We need someone who can endure the march. Someone who can defend themselves.”
+“And you are?”
 
-Tears filled her eyes before she could stop them. “Please… please, don’t take him. Take me instead.”
+“Her apprentice.” His voice did not shake. He was distantly surprised by that. “I know every jar on her shelves. I can set a bone and stitch a wound and dress a burn and measure a fever draught. And I can march thirty miles a day.” He looked at the captain, and not at anyone else. “She can’t. Not in those shoes, not with that ankle — it was broken this summer. Your men can’t wait for her.”
 
-Esdel’s fists clenched. He wanted to speak, but his throat refused. The villagers’ voices rose, some trying to argue, others murmuring prayers. The air throbbed with unease.
+It was not broken. It had been twisted, and it had healed. Lyora knew that. Arwen knew that. Half the village knew it.
 
-The captain’s voice cut through it. “If you stop him, more will die. Do you understand that? It’s for the greater good.”
+No one said a word.
 
-The words sliced clean through the noise.
+The captain studied him. The steady hands. The shoulders. The faint scar at the temple, pale in the torchlight. Whatever he saw there, it seemed to answer a question.
 
-Arwen looked at Esdel, her old eyes full of sorrow. “My child… is it truly all right with you?”
+“Him, then,” he said. “He looks like he can walk.” He turned to Arwen, and his voice gentled again. “We’ll return him safely, grandmother. You have my word.”
 
-Esdel met her gaze — then turned to Lyora. She was trembling, her hands gripping her dress as if it could hold him in place. The moonlight caught her tears, and something inside him broke all over again.
+“No,” said Lyora. “No — he’s not — *I* said I’d go. I *said*—”
 
-He smiled faintly.  
-“It’s fine,” he said. “A small price to pay… if it means everyone else can be happy.”
+Esdel did not look at her.
 
-Lyora’s voice shattered. “Don’t—don’t say that like it’s nothing!”
+He could not. He knew, with perfect clarity, that if he looked at her face now he would not be able to do it. So he looked at the captain, and at the dust on the captain’s boots, and at the torch, and at the great tree with the wishing ribbons still hanging from its branches, faded now at the end of the summer. He looked at everything in the square except her.
 
-He reached out, his thumb brushing away a tear from her cheek. Her skin was cold against his fingertips.
+“Dawn,” said the captain, and turned away.
 
-“You once told me not to disappear,” he murmured. “I’ll try not to. But if I must…”  
-He hesitated, eyes soft.  
-“I’ll come back. I promise.”
+---
 
-“You can’t promise that,” she choked. “You can’t.”
+They walked home in silence.
 
-He smiled again — that faint, broken smile that always hurt to see.  
+Arwen went up to bed without a word. At the foot of the stairs she stopped, and put her old hand against his cheek, and held it there for a long moment. Her eyes were wet. She did not say anything. Then she went up, slowly, one hand on the wall.
+
+Lyora went into her room and closed the door.
+
+He climbed to the attic and packed. It did not take long. He had very little. A spare shirt. His notebook. The slate, which he looked at for a long time and then left on the bed, because it was too heavy to carry and too foolish to explain. His knife. A small twist of calendula salve that he had made himself, the first one Arwen had let him make alone, which he put into his pocket and did not examine his reasons for.
+
+Then he sat on the edge of the bed in the dark, and listened.
+
+There was no sound from below. No crying. Nothing.
+
+He listened to the nothing for a long time.
+
+Then — the smallest sound. A door. Her step, crossing the shop. And then no more steps. Only silence at the foot of the stairs.
+
+He went down.
+
+---
+
+She was sitting on the second step.
+
+The lamp was beside her. She had lit it, and turned it low, the way she did every night — and then, it seemed, sat down beside it and forgotten to get up. Her knees were drawn up. Her arms were wrapped around them. She had not changed out of her apron.
+
+She looked up at him when he came down. Her eyes were dry.
+
+He sat on the step above her. Not close. The way he had sat on the night of the rain.
+
+For a long time she said nothing at all.
+
+Then she said, “You promised.”
+
+It was very quiet. Hardly more than a breath.
+
+“I know,” he said.
+
+“In the garden. Not even an hour.” She was looking at the lamp. “I asked you, and you said *I’ll stay*, and I said *promise*, and you said it. You *said* it.”
+
+“I know.”
+
+“Don’t.” Her voice caught — just slightly, on the edge of the word. “Don’t say *I know* like that. Like it’s a thing you’re sorry about. You’re not sorry. You did it on purpose. You stood there and you did it on purpose, and you didn’t even *look* at me—”
+
+“Lyora—”
+
+“You don’t get to decide that for me!”
+
+It came out of her all at once, loud in the sleeping house, and she put both hands over her mouth as if she could catch it back. Upstairs, nothing moved. Arwen’s door stayed as it was. Lyora sat with her hands pressed over her mouth and her eyes very wide and very bright, breathing hard through her fingers.
+
+When she took her hands away, her voice had changed. It was lower. It was shaking.
+
+“It was supposed to be me,” she said. “Do you understand? It was always going to be me. Since I was small. Since they stood in that door. I *knew*. I used to lie awake and think, one day the torches will come again, and it’ll be me in the doorway, and I’ll say *before the snow*, and I’ll mean it too.” The first tear went. She did not seem to feel it. “I was ready. I’ve been ready my whole life. It was the one thing — the *one* thing — I knew how to do. Go where I’m needed. Like her. And you—”
+
+Her breath broke.
+
+“You *took* it,” she said. “You took it out of my hands in front of the whole village, and you lied about my ankle, and you didn’t look at me, and now I don’t even get to be brave. I just — I just have to stay. I have to *stay*. I have to stand at that gate and watch someone walk up the road and *mean it*, and come home, and light a lamp for—”
+
+She could not finish.
+
+The sound that came out of her then was not a word. It was not anything. It came up from somewhere very deep, from under the ribs, from years down, and broke in her throat, and she bent forward over her knees with her arms wrapped around herself and it came again, and again — great ragged tearing sobs, the kind that do not stop when you tell them to, the kind that take the breath out of the body faster than the body can put it back.
+
+“Lyora—”
+
+“No — let me — I’m not finished—” She dragged in air. It would not come. It hitched, and hitched, and caught. “I’m not — finished — you let me *finish*—”
+
+He stopped.
+
+“Who will I leave the lamp for?” she said. The words came out in pieces, between the sobs, each one torn off and flung at him. “Tell me. Who? Who will — drink the tea wrong — who will I — who will fix the — who will I *wait* for, every night, on these stairs — I did it for them — I waited *years* — I stopped — I finally stopped — and then you came — you came up the lane on a stretcher with sand in your hair and I thought you were *dead* and you weren’t — you weren’t — and I let you — I let you *in* —”
+
+Her fist hit his chest. Not hard. There was nothing in it. It landed against him and stayed there, curled in his shirt, holding on.
+
+“You were supposed to be the one who *stays*,” she wept. “You *said*. You said. Everyone leaves this house — everyone — and I thought — I thought just *once* — just *once* someone would—”
+
+She could not breathe. He could hear it — the gasping, the terrible little catch at the top of each breath where the air would not go in. Her shoulders were heaving. Her whole body was shaking against the step, against his knees, against the wall. Tears were running off her chin onto her apron, onto his hand, onto the lamp-warmed wood of the stair.
+
+He opened his mouth.
+
+There was nothing in it.
+
+He tried again. *I did it because your mother went through that door and didn’t come back. I did it because I could not stand in that square and watch you become her. I did it because I would rather break every promise I have ever made to you than let this house lose you too.* All of it was true. All of it was right there. And none of it would come. It sat in his throat like a stone and would not move, and he understood that there were no words in any language he had ever known — or ever forgotten — that could be said to her now and not be too small.
+
+So he did not say anything.
+
+He came down off the step, onto his knees on the floor in front of her, and he took her into his arms.
+
+She fought him. For a moment. Her hands pushed at his chest, weakly, the way a child pushes — and then they stopped pushing and closed in his shirt instead, and held on, and she came apart against him completely.
+
+He had not known a person could cry like that.
+
+It went on and on. It did not get quieter. She sobbed into his shoulder with her whole body, great heaving breaths that shook them both, her fingers knotted in the back of his shirt, her face pressed so hard into his neck that he could feel her teeth. She was still trying to talk. He could feel the words against his skin, broken, wet, unintelligible — *promised* and *stay* and *why* and his name, his name, over and over, as if she were trying to hold on to him with the sound of it.
+
+He held her.
+
+That was all he could do. One hand flat between her shoulder blades. The other at the back of her head, her hair coming loose from its braid, soft and damp under his palm. He held her as tightly as he dared, and rocked her very slightly, without knowing he was doing it, the way you rock a child with a fever. He put his cheek against her hair. He breathed with her, slow, and slow, and slow, so that her body might remember how.
+
+He did not say *hush*. He did not say *it’s all right*. It was not all right. He would not lie to her. Not tonight.
+
+The lamp burned beside them on the second step.
+
+He did not know how long it went on. A long time. Long enough that his knees went numb on the boards. Long enough that the candle in the kitchen guttered out and the only light left was the small gold lamp, and the shadows of the two of them on the wall, one shadow, holding.
+
+And then, slowly — so slowly he did not notice when it began — it changed.
+
+The sobs came further apart. Then they were not sobs anymore, only breaths, long and shuddering, catching at the top. Then only the catching. Then nothing but her breathing, rough and exhausted, against his neck, and her whole body gone heavy and loose in his arms, the way a body goes when there is nothing left in it at all.
+
+She had cried herself empty. There was nothing left to come out.
+
+She lay against him and breathed.
+
+---
+
+After a long time, she lifted her head.
+
+Her face was ruined. Red and swollen and wet, her lashes stuck together, her lips cracked, a strand of dark hair plastered across her cheek. She looked up at him from very close — a hand’s width, no more — in the light of the small lamp.
+
+And their eyes met.
+
+Neither of them looked away.
+
+He did not know what she saw. He only knew that he let her see it. All of it. Everything he had not said on the stairs in the rain, and in the garden, and in the square. Everything he had not been able to say ten minutes ago with her fist in his shirt. He did not hide any of it. He let it stand there in his face, in the lamplight, for her to read, because it was the only thing he had left to give her that was not a promise.
+
+She saw it.
+
+He watched her see it. He watched it go into her — slowly, the way water goes into dry ground — and her face changed. Not easier. Not better. Only — answered. As if a question she had been carrying all summer had finally been set down in front of her, and she could see, now, that it had never been a question at all.
+
+Her hand came up, slowly, and touched his face. Her fingers were cold. They traced the line of his jaw, very lightly, as if she were memorizing it.
+
+“You’re crying,” she whispered. Her voice was gone. It was hardly a voice at all.
+
+He had not known.
+
+“I broke one promise to you tonight,” he said. It was the first thing that had come out of his mouth in an hour. It came out rough and low and not quite whole. “I won’t break another. I’ll come back.” He held her eyes. “I promise.”
+
+“You can’t promise that.” The smallest cracked sound. “You can’t.”
+
 “Then let’s pretend I can.”
 
-The captain gave a short nod. “We depart at dawn.”
+She looked at him for a long, long moment.
 
-Esdel turned toward the house. The lanterns still glowed softly inside, golden against the wooden walls. He memorized every detail — the smell of herbs, the warmth that clung to the air, the sound of her quiet sob behind him.
-
-Lyora watched him, the world blurring through her tears. Her knees gave way, and she fell onto the dirt road, hands clutching the earth as if she could anchor him there.
-
-“Please… don’t go,” she whispered, the words breaking in her throat.
-
-But Esdel didn’t turn back.  
-Because he knew — if he did, he would never find the strength to walk away.
+Then she leaned forward and rested her forehead against his, and closed her eyes. And he closed his. And they stayed like that, on the floor at the foot of the stairs, with the lamp burning beside them and her breath warm on his face and his hands still holding her as though the house might tip over if he let go — while outside, beyond the ivy and the lane and the sleeping village, the sky over the river road went slowly, slowly grey.
