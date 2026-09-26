@@ -57,7 +57,7 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - **Healing:** shallow wounds don't close right away, but they're gone by morning with no scar (Ch20→21). He healed seven arrow wounds within hours after using the Karunākṣa (Ch42). A knife graze under his jaw (Ch45) had no stated healing.
 - Has scarred, working hands (Ch9) and a faint scar over his temple (Ch36–37).
 - Wears **Lyora's mother's silver necklace** with a small flower charm (Ch38). It warms against his chest.
-- Promised Lyora "I'll stay" (Ch36), then "I'll come back" (Ch37). He's never broken this on the page.
+- Promised Lyora "I'll stay" in the garden (Ch36). **Broke it less than an hour later, by choice** (Ch37): the captain chose Lyora, she said yes as her mother once had, and Esdel stepped forward, lied that her ankle had been broken, and went in her place without looking at her. That night on the stairs she said "*You promised*," and he promised instead: "*I broke one promise to you tonight. I won't break another. I'll come back.*" He has kept that second promise (by staying away since Ch93) and carries the first as a wound (Ch39, 84, 91).
 - Fights by instinct, not memory (Ch35, 40–41). He can't use body-enhancement magic (Ch40).
 - Titles and nicknames: "the man who never complains" (Edenridge), "the apprentice" (Edenridge, Ch10–11, 23), "Apothecary" (camp), "Hero" (Ch42), "the backwater genius" (Ch47).
 - **Since Ch92 he is a declared traitor.** The decree names him "*the apothecary Esdel, of no family, formerly of the Third Logistic Company and the medical division of the North Ridge post, late of the village of Edenridge*." The bounty is **1,000 gold crowns, living or dead.** The decree has no description of his face. **Aldric withheld it on purpose** (Ch97): he told the Ministry's limner he "barely remembers him," so Esdel will feel safe and, in time, head home to Edenridge, where the watchers wait. Esdel wondered about it once (Ch98) and let it go.
@@ -78,12 +78,14 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 - Has never seen the ocean (Ch8). Hates tomato soup (Ch31). Loves cats. Made a potion with sugar instead of salt as a child, and glued a stray cat's fur at age five (Ch30–31).
 - Her childhood crush was **Eldric** (Ch17). She gave up on him. It was Esdel she said "love" to (Ch34, "For making me love you this much").
 - Almost strangled by a grieving soldier (Ch35).
+- **Volunteered to go to the front** when the captain asked her (Ch37): "Yes. I'll come." Esdel took it from her. On the second step she **cried until she was empty**, saying everything ("It was supposed to be me," "Who will I leave the lamp for?") until he couldn't say a word and could only hold her. Then their eyes met, and he let her see everything he hadn't said. He was crying too.
+- **Did not cry at the farewell** (Ch38): she had nothing left. She fastened the necklace on him herself ("you have to come back, to give it back to me"), then went home and **lit the lamp in broad daylight**. She didn't cry for weeks after (Ch39) and whispers "*You promised*" to the lamp, then "*Be safe*." 
 - **Jealous only once, and ashamed of it:** a stranger laughed with Esdel about a cart wheel (Ch26). She burned the tea twice (Ch26, 29). This is the "last time" teased in Ch32.
 - Twisted her right ankle on the ridge in a summer storm; Esdel carried her down on his back (Ch28). It healed in about a week (Ch30).
 - Said everything to Esdel on the stairs **except the word "love"** (Ch29). "Love" is first spoken in Ch34.
 - Wrote him unsent, unsigned letters all winter and keeps them in her worktable drawer under the ledger (Ch70).
 - Kept the lamp lit on the second step every night after he left, even through the winter (Ch70). Told Eldric "I'm waiting" (Ch82).
-- Heard the decree read under the great tree (Ch95) and understood he can never come back, and that he'll stay away for her.
+- Heard the decree read under the great tree (Ch95). That night she **doubted him**, beside the lamp: his name was listed after the Maiden's, and she wondered whether a man who forgets could remember one village girl. This is **fear of being forgotten, explicitly not jealousy** (she has been jealous only once, Ch26). She let the lamp burn down to a blue bead. At dawn the watchers sat down outside the inn and she understood the snare: he'll stay away *because* he remembers. She turned the lamp up brighter than ever, and it "never went that low again." The cord (Ch98) answers the doubt: "He had not forgotten the knot."
 - **Received the three-knot cord** from a peddler in autumn of Year 2 and tied it to the base of the lamp on the stairs (Ch98). She knows it's from him. She has told no one, and Arwen never asked.
 
 **The apothecary house (canon since Ch29)**
@@ -165,7 +167,7 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 ### The war
 | Name | Role and key facts | First seen |
 |---|---|---|
-| **Captain Erven** | Captain of the 3rd Logistic Company. Led the 70 survivors of 500. Chose Esdel in Edenridge ("We'll return him safely"). | Ch37 (named Ch42) |
+| **Captain Erven** | Captain of the 3rd Logistic Company. Led the 70 survivors of 500. In Edenridge he chose **Lyora**; Esdel stepped forward in her place and the captain took him instead ("We'll return him safely"). | Ch37 (named Ch42) |
 | Bearded older soldier | Kind eyes. His wife was pregnant when he left "just before the frost." Called Esdel "Hero." | Ch39 |
 | **Dr. Halden** | Elderly grey-haired field surgeon, Eastern Post. Gruff, then fond. Drinks "strong" coffee. Gave Esdel a glowing **blue emergency stimulant vial**, used at the ford (Ch91). Keeps the folded decree in his apron pocket over his heart: "*Idiot.*" (Ch94). | Ch43 |
 | **Benn** | Halden's young assistant. **Male**, dark hair, sarcastic. | Ch44 |
@@ -244,11 +246,11 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch31**: Night kitchen talk: tomato soup, cats, Lyora's wish for a simple wedding.
 - **Ch32**: The "lovebirds" teasing, "You're beautiful when you panic." At sunset, wounded soldiers collapse on the southern path.
 - **Ch33**: A tent in the square. A soldier recognizes Esdel from a siege. Lyora: "You don't owe the past anything."
-- **Ch34**: Walking home. Lyora breaks down: "Please don't leave… For making me love you this much."
+- **Ch34**: Walking home. Quietly, dry-eyed: "Please don't leave… For making me love you this much." She cries behind her closed door; he sits on the second step all night listening and doesn't knock.
 - **Ch35**: Next day. A young soldier dies; his brother strangles Lyora; Esdel drops him on instinct. "He moved like a soldier." Arwen: "Let that fear guide you."
-- **Ch36**: The garden at night. He tells her of the woman in white; she begs him not to look for her. **He promises to stay.**
-- **Ch37**: The kitchen at night. Lyora's parents' story. "Grandmother… and you." Hands held. Torches: a battalion needs a healer and the captain takes Esdel. **"I'll come back. I promise."**
-- **Ch38**: Dawn farewell. Lyora gives him her mother's necklace: "Come back to me." "I'll be waiting."
+- **Ch36**: The garden at night. He tells her of the woman in white; one tear: "Then don't remember her." **He promises to stay.** It lasts "less than an hour."
+- **Ch37**: The kitchen at night. Lyora's parents' story. "Grandmother… and you." Hands held. Torches: the captain chooses **Lyora** and she says yes; **Esdel steps forward and goes in her place**, breaking "I'll stay." On the stairs: "*You promised*," her complete breakdown, his wordless holding, their eyes meeting. **"I broke one promise to you tonight. I won't break another. I'll come back. I promise."**
+- **Ch38**: Dawn farewell. Lyora, cried out, doesn't cry. She fastens her mother's necklace on him: "Come back to me." "I'll be waiting." Reyn gives him bamboo splints. He looks back from the first rise; she hasn't moved. She lights the lamp in daylight.
 
 ### Part III: The War (Ch39–50)
 - **Ch39**: The march: 70 left of 500. The bearded soldier's pregnant wife. *Scene break:* Lyora waiting in Edenridge.
@@ -318,7 +320,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch92**: *The Decree.* The Hall of Clear Waters. Xueyao is declared a traitor (5,000 crowns). Fifteen Lián soldiers and "**the apothecary Esdel… late of the village of Edenridge**" (1,000 each). The King tells Ardbert it "never happened" and writes "*For now*" on the dragon map.
 - **Ch93**: *Nowhere to Return.* A shepherd's hut, three days of fever, the wound closed. "I didn't want to be the kind of man who would." Seven left. A trader: "*Edenridge. Pretty name.*" Esdel understands he can never go back. Xueyao releases him; **he stays so the hunt never turns south.**
 - **Ch94**: *Interlude, The Backwater Genius.* Halden: "*Idiot.*" At North Ridge **the dragon keens for days, looking south, and doesn't rise**; the front loses a mile and three hundred men. Loryn, wounded, hears the name.
-- **Ch95**: *Interlude, The Crier.* The herald under the great tree. Esdel's name, and the silence. **Reyn: "We only knew an apothecary. And he was a good man."** Two men in grey at the inn. Lyora understands he'll stay away *for her*, and turns the lamp up.
+- **Ch95**: *Interlude, The Crier.* The herald under the great tree. Esdel's name, and the silence. **Reyn: "We only knew an apothecary. And he was a good man."** Two men in grey at the inn. **Lyora's night of doubt:** the lamp burns down to a blue bead. At dawn she understands the snare, that he'll stay away *for her*, and turns the lamp up brighter than ever.
 - **Ch96**: *White on the Ridge.* The borderlands. At dawn Xueyao cuts her hair and wears white. For a breath she is **the woman in white**, and then only Xueyao. "Who are you?" "**Esdel.** For now, I think it's enough." She calls him by his name for the first time.
 - **Ch97**: *What the Kingdom Says.* Legends: she wanders in white; **the dragon sleeps and won't wake for anyone** (the court magicians failed). The King's white pin on Edenridge. Aldric refuses the limner a likeness of Esdel ("*a man with no face… every road… runs home*"). Aldric's ruined hand and the empty cot, speaking to something. Rowan adds "*Vale*." Ardbert at the north gate at night.
 - **Ch98**: *The Knot.* A border market. **Three knots on a plain brown cord**, carried by a peddler whose sister never got a letter. Autumn in Edenridge: "Found this in my pack." Lyora's thumb finds the first knot. She ties the cord to the lamp. *Waiting.*
@@ -506,6 +508,11 @@ The following were corrected while splitting `Novel.md` into `Novels/`. The orig
 - Inserted between the nightmare (Ch24) and the laughing village day (now Ch30). The old Ch25–61 were renumbered to **Ch30–66**. Every chapter reference in this bible has been updated.
 - Knock-on edits: **Ch30** gained a line placing it a week after the storm, with the ankle healed and the lamp still lit. **Ch31** changed "festival still ringing in my head" to "market still ringing."
 - Design rules the arc follows: nobody is a villain; Esdel is never close with other women (Lyora's jealousy is her reaction to one passing exchange); no promises and no "love" before Ch34–37; Esdel takes no injuries; nothing about the woman in white or the Karunākṣa.
+
+### *The Broken Promise* (revision of Ch34–39, plus Ch70, 84, 91, 95, 98), Sept 2026
+- Goal: make the hurt pass *between* Esdel and Lyora, not only happen *to* them, and make it quieter and more painful.
+- Ch34, 36 and 38 rewritten in Ch29's quiet register (one tear, no collapses). Ch37 carries the one great breakdown. Ch38 is dry-eyed on purpose.
+- Esdel leaves by **choice**, breaking "I'll stay" to keep Lyora from repeating her mother's road. Knock-ons: Ch39 (both carry "You promised"), Ch70 ("in my place"), Ch84 (he tells Xueyao), Ch91 (a flash of the stairs when the spear goes in), Ch95 (Lyora's night of doubt), Ch98 (the cord answers it).
 
 ### *The Apprentice* (revision of Ch5–31), Sept 2026
 - Plan: `Ideas/Done/[DONE] Arc Plan - The Apprentice (Ch5-31 revision).md`. **Status: DONE**, archived.
