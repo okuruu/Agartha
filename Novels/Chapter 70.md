@@ -66,7 +66,7 @@ He was alone, on foot, with a bandaged hand and a pack on his back, walking home
 
 Her hands did not stop moving on the bandage. She was proud of that, afterward.
 
-“There was a man,” she said. “From here. Last summer. Captain Erven took him for a medic. His name was Esdel.”
+“There was a man,” she said. “From here. Last summer. He went with Captain Erven as a medic.” Her hands kept moving. “In my place. His name was Esdel.”
 
 The soldier frowned, thinking. Then his face cleared.
 

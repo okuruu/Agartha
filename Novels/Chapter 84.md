@@ -132,11 +132,11 @@ Xueyao was watching him. In the dim light under the tree, with her wet face and 
 
 He looked down at his hands.
 
-“There’s a village,” he said slowly. “Near the desert. A long way south and west of here. Where the caravan brought me, when I woke. There was an apothecary there. An old woman, and her granddaughter.” He did not say the name. He found he could not. “They took me in. They didn’t ask me where I came from. I lived in their attic for a year.” A breath. “When the soldiers came to take me, she— the granddaughter — she gave me this.”
+“There’s a village,” he said slowly. “Near the desert. A long way south and west of here. Where the caravan brought me, when I woke. There was an apothecary there. An old woman, and her granddaughter.” He did not say the name. He found he could not. “They took me in. They didn’t ask me where I came from. I lived in their attic for a spring and a summer.” A breath. “When the soldiers came, they wanted her. I went instead. And in the morning she — the granddaughter — she gave me this.”
 
 He touched the chain at his throat. The small silver flower.
 
-“It was her mother’s. Her mother went to the war, and didn’t come back. She said if she gave it away, it would mean the person wearing it would come home.” He was quiet. “I promised I would. I’ve never broken a promise to her. I don’t know how.”
+“It was her mother’s. Her mother went to the war, and didn’t come back. She said if she gave it away, it would mean the person wearing it would come home.” He was quiet. “I promised I would.” He was quiet a moment. “I’d already broken one promise to her that night. I promised her I’d stay, and less than an hour later I stood in the square and let them take me instead of her. She cried until she couldn’t breathe.” He looked at his hands. “I won’t break the other one. I don’t think I would survive it.”
 
 Xueyao said nothing for a long time.
 

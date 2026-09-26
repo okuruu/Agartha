@@ -30,7 +30,7 @@ For a moment, it almost felt like peace.
 
 Esdel sat a little apart, cleaning his blade beneath the fire’s glow. The silver necklace beneath his tunic caught faint glimmers from the flames, pulsing with warmth as if it remembered whose hands had given it to him.
 
-He could still hear her voice — soft, trembling, *“Come back to me.”*
+He could still hear her voice — worn to nothing, *“Come back to me.”* And under it, the other one, from the stairs, in the dark. *You promised.*
 
 The fire crackled.  
 Then a voice came from across it.
@@ -86,8 +86,8 @@ But for now — beneath the ashen sky — Esdel closed his eyes and dreamed of E
 Of laughter.  
 Of hands that once trembled when they touched his.
 
-And of the promise he hadn’t dared to make —  
-but still meant with everything in him.
+And of two promises. The one he had broken in a square full of torches, less than an hour after he made it.  
+And the one he had made instead, on his knees at the foot of the stairs — and meant with everything in him.
 
 ---
 
@@ -105,7 +105,12 @@ Arwen never said it aloud, but Lyora could feel it — the quiet understanding i
 
 The days passed like that: soft, slow, deliberate. She worked. She waited. She prayed to no one in particular.
 
-And each night, when she blew out the candles, her hand would rest against her chest — where the necklace had once been — and she would whisper into the dark:  
+She did not cry. Not once, in all those weeks. Arwen watched for it, and it did not come. It was as if she had used up all her tears in one night on the stairs, and there were simply none left.
+
+But each night, when she set the lamp on the second step, her hand would rest against her chest — where the necklace had once been — and she would whisper into the dark:  
+“You promised.”
+
+And then, after a while, more gently:  
 “Be safe.”
 
 Even though she didn’t know if the wind could carry that far.
