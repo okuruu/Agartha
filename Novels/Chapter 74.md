@@ -36,7 +36,7 @@ Then he smiled.
 
 “General,” he said, pleasantly. “Your mother’s tonic. You know she has it every afternoon.”
 
-“I know what it is.” Xueyao’s voice was not loud. It did not need to be. In the silence beneath the peach tree, it carried to every corner of the garden. “I know it is greyveil root. I know that given every day, for months, it softens the will and weakens the heart. I know you have been giving it to her since the week my father died.” She did not blink. “You are poisoning my mother, Count Reng. And you will put that bottle down.”
+“I know what it is.” Xueyao’s voice was not loud. It did not need to be. In the silence beneath the peach tree, it carried to every corner of the garden. “I know it is greyveil root. I know that given every day, for months, it softens the will and weakens the heart. I know you have been giving it to her since the weeks after my father died.” She did not blink. “You are poisoning my mother, Count Reng. And you will put that bottle down.”
 
 Someone gasped. Someone else dropped a cup; it rang on the stones.
 

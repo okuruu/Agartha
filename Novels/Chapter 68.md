@@ -34,7 +34,7 @@ He looked at the fire. It was a fair question. It was, he thought, the only ques
 
 Her eyes narrowed very slightly. He went on before she could speak.
 
-“That isn’t an evasion. It’s the truth.” He turned the cup in his hands. “A little more than a year ago, I woke in the desert. East of here — far east. I don’t know how I came there. I didn’t know my own name until it came out of my mouth, days later, to a stranger. *Esdel.* That was all there was. Everything before the sand is—” He searched for the word. “Blank. Not dark. Not hidden. Blank. Like a page no one has written on.”
+“That isn’t an evasion. It’s the truth.” He turned the cup in his hands. “A little more than a year ago, I woke in the desert. South and west of here — far. I don’t know how I came there. I didn’t know my own name until it came out of my mouth, days later, to a stranger. *Esdel.* That was all there was. Everything before the sand is—” He searched for the word. “Blank. Not dark. Not hidden. Blank. Like a page no one has written on.”
 
 The rain ticked through the broken roof.
 

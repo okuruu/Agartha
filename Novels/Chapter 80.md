@@ -14,7 +14,7 @@ Xueyao said, “It’s the tonic. It will pass.”
 
 He did not know what his face was doing. He hoped it was nothing.
 
-“I believe so,” he said. “In time.”
+“I don’t know,” he said. “I hope so.”
 
 Lady Anlan looked at him for a long moment. Then she held out her hand for the cup. And when she took it from him, her fingers closed over his, briefly — dry, cool, very steady — and she said, so low that her daughter could not hear:
 
@@ -58,7 +58,7 @@ Lady Anlan broke the seal. She read it by the window, in the good light, with he
 
 Xueyao took the letter. She burned it in the brazier while her mother watched.
 
-That night, for the first time, Xueyao did not sleep on the floor. Her mother sent her away — *go and sleep in a bed, you look like a corpse, you’re frightening the baby* — and she went, protesting, to her own room across the corridor. Changli stayed in the chair. Han Ruo sat in the corridor with his sword across his knees.
+That night, for the first time, Xueyao did not sleep on the floor. Her mother sent her away — *go and sleep in a bed, you look like a corpse, you’re frightening the baby* — and she went, protesting, to Changli’s empty bed across the corridor. Changli stayed in the chair. Han Ruo sat in the corridor with his sword across his knees.
 
 Esdel, at the end of the wing, lay awake a long time and listened to the house.
 

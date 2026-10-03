@@ -30,7 +30,7 @@ Xueyao stopped at the top of the steps. She did not come in. She did not sit. Es
 
 He did not seem troubled by her tone. He never did.
 
-“I’ll be plain, then,” he said. “You prefer it. I’ve noticed.” He leaned on his cane, looking at her with his clear grey eyes. “You are in a very difficult position, Xueyao. I think you know that. You accused a peer of the realm before forty witnesses, and the college found no cause. You have been seen — forgive me — to be unwell. Your mother, may she rest, begged you publicly to stop. And now your mother is gone, and your brother is my ward by the King’s own decree, and you—” He spread one hand. “You have three months’ leave, a handful of your father’s old soldiers, and a name that half the court still thinks of as a traitor’s.”
+“I’ll be plain, then,” he said. “You prefer it. I’ve noticed.” He leaned on his cane, looking at her with his clear grey eyes. “You are in a very difficult position, Xueyao. I think you know that. You accused a peer of the realm before forty witnesses, and the college found no cause. You have been seen — forgive me — to be unwell. Your mother, may she rest, begged you publicly to stop. And now your mother is gone, and your brother is my ward by the King’s own decree, and you—” He spread one hand. “You have a mourning leave the Crown extended and can end with a word, a handful of your father’s old soldiers, and a name that half the court still thinks of as a traitor’s.”
 
 Xueyao said nothing.
 

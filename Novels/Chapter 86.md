@@ -22,7 +22,7 @@ He dipped his pen. Beside *Reng*, he wrote: *The estate. The boy. The Maiden, if
 
 He looked at it.
 
-Beside *Lián*, he wrote: *A dead lord. A dead lady. A girl with no friends at court and three months’ leave. A child in a nursery. And a beast at North Ridge that will do anything she asks.*
+Beside *Lián*, he wrote: *A dead lord. A dead lady. A girl with no friends at court and a mourning leave that can be ended with a word. A child in a nursery. And a beast at North Ridge that will do anything she asks.*
 
 He looked at that longer.
 

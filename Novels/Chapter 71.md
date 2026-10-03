@@ -22,7 +22,7 @@ And every day, the Count would let her.
 
 They were in Esdel’s narrow room at the end of the east wing, with the door shut. Changli stood by the window, looking out at the wall. She had come to him, as she said, *for a headache powder*, and had closed the door behind her with her foot.
 
-“Not the maids, not the steward. Not even his own physician, who brews it.” She turned her head. “Master Corwin Vale. A small grey man who lives in the west wing and never comes to meals. He makes it — the Count collects it from him himself, one bottle at a time — and the Count keeps it on his person. I have never once seen it leave his coat.”
+“Not the maids, not the steward. Not even his own physician, who brews it.” She turned her head. “Master Corwin Vale. A small grey man who lives in the west wing and never comes to meals. He makes it — one bottle at a time — and the Count keeps it on his person. I have never once seen it leave his coat.”
 
 “Then how,” said Esdel, “am I meant to see what’s in it?”
 

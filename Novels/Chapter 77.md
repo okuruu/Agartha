@@ -28,7 +28,7 @@ Xueyao was silent.
 
 They both looked at her.
 
-She had not moved from the table. She sat with her hands folded before her, her beautiful face composed and thoughtful, the way it had been on the night in the barracks when she reported the result of her test.
+She had not moved from the table. She sat with her hands folded before her, her beautiful face composed and thoughtful, the way it had been the night she tested him.
 
 “The Count carries the bottle in his coat,” she said. “And every tenth day, the old bottle goes back to the west wing, and a new one comes up from Master Vale.” She tilted her head. “Master Vale sends it up by way of the steward’s tray. I have become very familiar with the steward’s tray.” A faint smile. “What if the bottle that came up from the west wing were not quite the bottle Master Vale had filled? What if it were the same color, and the same thickness, and the same smell — but with half the greyveil? And the next one, half of that?”
 
@@ -48,7 +48,7 @@ He did not say it.
 
 “And then?”
 
-“And then she’ll be herself again,” said Esdel. “As much as anyone can be, after a year of that.”
+“And then the greyveil will be gone,” said Esdel. “Her mind will be her own again — as much as anyone’s can be, after a year of that.”
 
 Xueyao looked at him for a long moment. Then at Changli. Then back at the window, and the orchids on the sill, and beyond them the garden, where in the long amber light of the afternoon a maid was already carrying the white tea things down the path to the pavilion.
 

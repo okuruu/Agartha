@@ -84,7 +84,7 @@ He sat with them in his lap for a long time.
 
 Then he fed them, one by one, into the flame of the lamp, and held each until it caught, and set it burning in the copper dish on the floor, and watched it curl and blacken and go to ash. He did not read them first. He knew what they said.
 
-The last one he held longest. It was the last one he had written, in the ruined inn on the road, the night the General told him to send them before he was somewhere they couldn’t reach.
+The last one he held longest. It was the newest of them, written in the ruined inn on the road, the night the General told him to send them before he was somewhere they couldn’t reach.
 
 It had only one line.
 

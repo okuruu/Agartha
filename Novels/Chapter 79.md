@@ -2,7 +2,7 @@
 
 The rumor reached the Lián house before the Count did.
 
-It came in with the morning bread, as rumors in that city always did — with the baker’s boy, who had it from the fishmonger, who had it from a clerk of the Ministry of Rites who drank at the tavern by the bridge. By the time the Count’s carriage came clattering through the great gate, every servant in the kitchens knew it, and by the time he had climbed the steps and handed his cane to the steward, it had gone up the back stairs and along the galleries and into the east wing, where Pei Lun heard it in the corridor and came running to Esdel’s door with his face gone white.
+It came in with the morning bread, as rumors in that city always did — with the baker’s boy, who had it from the fishmonger, who had it from a clerk of the Ministry of Rites who drank at the tavern by the bridge. By the time the Count’s carriage came clattering through the great gate, every servant in the kitchens knew it, and by the time he had climbed the steps and handed his cane to the steward, it had gone up the back stairs and along the galleries and into the east wing, where Pei Lun heard it in the corridor and came running to find Esdel with his face gone white.
 
 *The King is going to make the Count guardian of the Lián heir.*
 
@@ -44,7 +44,7 @@ Han Ruo made a sound in his throat.
 
 ---
 
-The Count did not come to the east wing that day. He did not come to the pavilion at the amber hour, either — for the first time since Esdel had lived in that house. He sent word by the steward that the Lady was indisposed and must rest, and that her physician would attend her.
+The Count did not come to the east wing that day. He did not come to the pavilion at the amber hour, either — and did not ask to see her. He sent word by the steward that the Lady was indisposed and must rest, and that her physician would attend her.
 
 Master Vale came at dusk. Xueyao met him at the door of her own rooms.
 
