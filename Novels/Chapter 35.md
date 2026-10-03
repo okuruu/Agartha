@@ -95,7 +95,7 @@ The words struck something deep in him. He met her gaze but found no accusation 
 
 Lyora’s gaze flickered toward him then — brief, hesitant. The look in her eyes was strange: gratitude tangled with fear, and something softer that neither dared name. She wanted to thank him, yet her throat still ached with the ghost of the soldier’s grip. The words wouldn’t come.
 
-Esdel took a step closer. “You should rest,” he murmured. “I’ll take the night watch here.”
+Esdel took a step closer. “You should rest,” he murmured. “I’ll stay with him until the watch comes.”
 
 “I can manage—” she began, but he shook his head.
 
@@ -117,7 +117,7 @@ Esdel didn’t answer. He didn’t need to.
 
 She placed the lantern beside him, its flame soft but unwavering. “Then let that fear guide you. Not destroy you.”
 
-When she left again, the night grew still.
+When she left again, the night grew still. Near moonrise two of Reyn’s men came to take the watch, and Esdel walked home.
 
 That night, the small house of the apothecaries was unusually quiet.  
 Dinner was subdued — only the sound of spoons scraping wooden bowls.
@@ -130,7 +130,7 @@ Esdel didn’t respond at first. His eyes were fixed on his food, though he hadn
 
 But everyone knew that wasn’t true.
 
-Lyora sat in silence, unable to meet his eyes. Her hands clenched together tightly in her lap, her throat still sore. She remembered what the wounded soldier had said the night before — about recognizing him.
+Lyora sat in silence, unable to meet his eyes. Her hands clenched together tightly in her lap, her throat still sore. The word she had said to him last night, by the lamp on the counter, lay somewhere on the table between them too, and neither of them reached for it. She remembered what the wounded soldier had said the night before — about recognizing him.
 
 She remembered the way Esdel’s tone changed, the way his movements didn’t belong to a gentle villager but to something… sharp. Trained. Deadly.
 

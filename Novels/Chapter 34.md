@@ -2,17 +2,21 @@
 
 The moon hung low over Edenridge, veiled in a thin silver haze. The fires in the square had burned down to embers. Somewhere behind them, in the tents, a wounded man was talking in his sleep.
 
+Near midnight Arwen came back from the river tents with two of Reyn’s men to take the watch. She looked once at Esdel’s face and sent him home. “I’ll follow when the fever turns,” she said. “Go.”
+
+Lyora was waiting at the edge of the square, her basket at her feet. She had not gone home after all.
+
 They walked home side by side. Neither spoke.
 
 The lane was pale under the moon. Their steps sounded too loud on it. Lyora kept her hands folded in her apron, the way she did when she had been grinding all day and did not trust them to be still.
 
 At the well, she stopped pretending.
 
-“Do you believe him?” she said. “The soldier.”
+“What you said in the tent,” she said. “*Someone who didn’t deserve to be remembered.* You don’t believe that.”
 
 Esdel did not answer at once.
 
-“I don’t know,” he said. “He knew my face. I didn’t know his.” A pause. “I don’t know mine either, most days.”
+“I don’t know what I believe,” he said. “He knew my face. I didn’t know his.” A pause. “I don’t know mine either, most days.”
 
 She almost smiled at that. Almost. It was the kind of thing he said to make people smile, and she could hear, tonight, how much it cost him to say it.
 
@@ -64,7 +68,7 @@ He did not go up to the attic.
 
 He sat down on the stairs, on the second step, in the dark, with his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
 
-Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother would not wake, and so that the man on the stairs would not hear.
+Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother, home at last and asleep across the hall, would not wake, and so that the man on the stairs would not hear.
 
 He heard.
 

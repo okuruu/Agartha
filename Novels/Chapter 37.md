@@ -14,7 +14,7 @@ He waited.
 
 A small smile. It did not last.
 
-“Then soldiers came. In the night, like tonight — with torches. They needed a healer at the front. Father didn’t want to go. But people were dying, and there was no one else, and he couldn’t say no.” She was quiet a moment. “Mother went with him. She said she wouldn’t let him face it alone.”
+“Then soldiers came. In the night, with torches. They needed a healer at the front. Father didn’t want to go. But people were dying, and there was no one else, and he couldn’t say no.” She was quiet a moment. “Mother went with him. She said she wouldn’t let him face it alone.”
 
 The candle leaned in a draft.
 
@@ -40,7 +40,7 @@ Boots. Many of them, out of step. The creak of harness, the low voices of tired 
 
 “At this hour?” she whispered.
 
-They went out. The whole village was going out — doors opening all down the lane, people in their nightclothes with shawls thrown over, children lifted onto hips. In the square beneath the great tree, a column of soldiers had halted, grey with dust. Some were being held up by others. One was being carried.
+They went out. The whole village was going out — doors opening all down the lane, people in their nightclothes with shawls thrown over, children lifted onto hips. In the square beneath the great tree, past the tents where the first wounded still lay, a column of soldiers had halted, grey with dust. Some were being held up by others. One was being carried.
 
 A man with a captain’s knot on his shoulder stepped forward into the torchlight.
 

@@ -4,13 +4,13 @@ The chaos of war rolled like thunder through the forest.
 The air was thick with iron — the sting of blood, the stink of smoke, and the heat of breath from men who had already forgotten what it meant to fear. Steel screamed against steel. The ground trembled beneath their feet.
 
 Esdel moved through it like someone half-dreaming.  
-He wasn’t supposed to be here. He was supposed to tend the wounded, not join them.  
-And yet something heavier than reason had pulled him forward — that ache in his chest, that soundless command that said: *Fight.*
+He wasn’t supposed to be here. He was supposed to tend the wounded, not join them. He had not chosen to be outside the ring — the circle had simply closed without him.  
+But now that he was, something heavier than reason held him there — that ache in his chest, that soundless command that said: *Fight.*
 
 It wasn’t courage. It wasn’t duty. It was compulsion — the same kind that grips the heart before the mind can protest.  
 So he obeyed.
 
-The first man fell easily — a soldier in dark armor, blade raised too slow. Esdel’s sword met him mid-motion, slipping through the gap between ribs. The man gasped once, then crumpled.  
+The next man came in too slow — a soldier in dark armor, blade raised a heartbeat late. Esdel’s sword met him mid-motion, slipping through the gap between ribs. The man gasped once, then crumpled.  
 Esdel stood over him, his breath unsteady, the world spinning around the sound of his own heartbeat. His body *remembered* this — how to strike, how to step back, how to breathe.  
 But his mind? Blank.
 
@@ -48,7 +48,7 @@ He turned, too slow.
 
 Each found its mark.
 
-Shoulder. Thigh. Side. Back.  
+Shoulder. Thigh. Side. Back — twice. Hip.  
 The last pierced his arm, driving through flesh and fabric, pinning his sleeve to his skin.
 
 The force spun him. He fell hard, the mud cool against his face. The world blurred around the edges — shouts distant, shapes dissolving. He tried to lift his sword. His hand shook. Blood dripped down his wrist, black in the shifting light.
@@ -92,7 +92,7 @@ the world caught up.
 Blood burst outward, sudden and bright. The man collapsed.  
 Time rushed back in. The noise returned in a roar — steel, shouting, terror.
 
-Esdel dropped to his knees, gasping. His vision dimmed; the glow in his eyes flickered and died. What remained was ruin — smoke curling through air heavy with death.
+Esdel dropped to his knees, gasping. His vision dimmed; the glow in his eyes guttered low, but did not go out. What remained was ruin — smoke curling through air heavy with death.
 
 He could hear someone shouting behind him.  
 His name, perhaps.  

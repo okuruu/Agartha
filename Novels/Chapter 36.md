@@ -76,11 +76,13 @@ She reached out, then. Only her fingertips, on the back of his hand. The lightes
 
 He looked at her hand on his.
 
+“I asked you last night,” she said. “You didn’t answer.”
+
 “Stay,” she said again, so softly he almost did not hear it. “Please. Don’t chase ghosts.”
 
 And he looked at the red marks on her throat, and the single tear drying on her cheek, and the small brave line of her mouth, and he heard himself say it.
 
-“I’ll stay.”
+“I’m answering now. I’ll stay.”
 
 She let out a breath. “Promise?”
 

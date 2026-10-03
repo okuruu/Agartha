@@ -8,9 +8,9 @@ Their closeness was something the whole village hummed along to — soft, famili
 
 “Don’t burn the tea again like last time!”
 
-Esdel nearly tripped over his own feet. “That was her fault,” he protested, a touch too fast.
+Esdel nearly tripped over his own feet. “That was her,” he protested, a touch too fast. “Twice. She told me.”
 
-Lyora gasped, eyes wide. “You’re the one who forgot to add water!”
+Lyora gasped, eyes wide. “That was *one time*!”
 
 Laughter erupted around them, echoing between the stone walls and warm shopfronts. Even Arwen, standing by the well with a basket of herbs, shook her head with a smile. “Ah, young hearts,” she murmured, her tone rich with quiet amusement. “Too stubborn to realize they’re already dancing.”
 

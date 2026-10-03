@@ -1,6 +1,6 @@
 # **Chapter 39**
 
-The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy.
+The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy — a dozen of them on litters, and the Eastern Post’s medicine cart creaking along between them.
 
 The rest remained behind — scattered across the broken fronts of a war that demanded too much and gave too little in return.
 
@@ -28,7 +28,7 @@ When the campfire bloomed, its warmth spread through the dark like a fragile def
 
 For a moment, it almost felt like peace.
 
-Esdel sat a little apart, cleaning his blade beneath the fire’s glow. The silver necklace beneath his tunic caught faint glimmers from the flames, pulsing with warmth as if it remembered whose hands had given it to him.
+Esdel sat a little apart, cleaning the sword the quartermaster had pressed on him that first morning — “An apothecary who can’t defend his cart is just a cart,” the man had said — beneath the fire’s glow. The silver necklace beneath his tunic caught faint glimmers from the flames, pulsing with warmth as if it remembered whose hands had given it to him.
 
 He could still hear her voice — worn to nothing, *“Come back to me.”* And under it, the other one, from the stairs, in the dark. *You promised.*
 

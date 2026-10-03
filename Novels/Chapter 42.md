@@ -1,12 +1,12 @@
 # **Chapter 42**
 
-The world had gone still, as if time itself held its breath. The headless body of the enemy captain collapsed in slow motion — blood arcing through the dusk like molten glass before it darkened the soil. And at its heart stood Esdel.
+He was still on his knees when the enemy line began to break. A few paces away, the headless body of the enemy captain lay where it had fallen, its blood darkening the soil. And beside it knelt Esdel.
 
-His blade hung loose at his side, dripping red.  
+His blade lay across his thighs, dripping red.  
 Seven arrows jutted from his body, each one trembling slightly with the faint rhythm of his breath. His eyes, a quiet brown in any other light, now burned dimly with that cursed crimson glow — the Karunākṣa still pulsing faintly behind them.
 
 He didn’t speak. He didn’t even move.  
-He was a silhouette against the dying sun — battered, alone, and somehow still standing.
+He was a silhouette against the dying sun — battered, alone, and somehow still alive.
 
 Then came the sound.  
  A single gasp.  
@@ -66,7 +66,7 @@ Esdel tried to smile, but it faltered.
 
 The soldier’s gaze fell to the dried blood streaking Esdel’s face, the faint crimson web in his eyes. For a moment, he looked as if he might speak, then thought better of it. Instead, he placed a steadying hand on Esdel’s shoulder.
 
-“You scared us,” he said with a tired chuckle. “Running into the thick like that — gods, I thought we’d lost you.”
+“You scared us,” he said with a tired chuckle. “Caught out past the ring like that — gods, I thought we’d lost you.”
 
 Esdel’s voice came hoarse, heavy.  
 “I didn’t think. I just moved.”
