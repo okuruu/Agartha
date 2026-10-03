@@ -36,7 +36,7 @@ He ground the dried yarrow until it went to a green dust finer than flour, and s
 
 Lyora didn’t laugh. But her knife paused on the board for a heartbeat before it went on.
 
-At midday he took Arwen’s old receipt book to the far end of the worktable — the one with the cracked spine and the pages gone soft as cloth — and bent over it. Her faded, looping hand. *For a cough that sits low. For a child’s colic. For burns, not blistered.* He copied each one slowly into his notebook, and beside each he wrote the question he would ask her later.
+At midday he took the cedar box to the far end of the worktable and went on copying where he had left off. Arwen’s firm, upright hand, faded now. *For a cough that sits low. For a child’s colic. For burns, not blistered.* He copied each one slowly, and beside each he wrote the question he would ask her later.
 
 *Why honey, not sugar? Why steep, and not boil?*
 

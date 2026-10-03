@@ -20,7 +20,7 @@ Here, people *laughed*.
 
 Children chased each other along the stream. An old man carved small wooden charms under the shade of a willow. Women hung herbs from their porches, their laughter mingling with the hum of bees. Life moved slowly, peacefully — as if the world beyond these forests had long ceased to exist.
 
-When the caravan arrived, the villagers gathered around the strange, unconscious man they carried. His clothes were scorched, his skin marred by wounds that defied reason. Yet beneath the dirt and blood, something about him felt *ancient*.
+When the caravan arrived, the villagers gathered around the strange, unconscious man they carried. His clothes were scorched, his skin scoured raw by sand and sun. Yet beneath the dirt and blood, something about him felt *ancient*.
 
 They laid him in the care of the local apothecary — a humble building draped in ivy, its walls lined with bottles that caught the sunlight like gems. The scent of crushed mint and dried lavender filled the air.
 

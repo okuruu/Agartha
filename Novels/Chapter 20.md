@@ -76,7 +76,7 @@ His heart jolted. “What?”
 
 She nodded toward his sleeve. A tiny bloom of red had soaked through the fabric near his wrist.
 
-Esdel froze. Then he forced a laugh, awkward and brittle. “Ah, that. Just a scratch. I— I dropped something sharp last night.”
+Esdel froze. Then he forced a laugh, awkward and brittle. “Ah, that. It’s only a cut. I’ve seen to it.”
 
 Lyora didn’t look convinced. “Let me see.”
 

@@ -40,7 +40,7 @@ Esdel looked up. It was Marin, the miller — a kindly man with deep smile lines
 
 “You’ll tire yourself out before the Festival of Wishing Threads even begins,” Marin chuckled.
 
-Esdel blinked, lowering the sack to the ground. “The Festival of… Wishing Threads?”
+Esdel blinked, lowering the sack to the ground. “Wishing Threads? Is that what it’s called?”
 
 Marin’s eyebrows rose. “Ah, right. You’re still new to us. You’ve never seen it.”
 

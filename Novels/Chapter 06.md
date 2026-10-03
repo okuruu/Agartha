@@ -16,7 +16,7 @@ He swept the apothecary’s floor, fetched water from the river, and helped hang
 
 Then Arwen gave him the jars.
 
-There were more of them than he had thought. Rows upon rows along the shelves, clay and glass and stoppered horn, each with a scrap of paper pasted to its belly in her slanting hand. He washed the empty ones in a basin in the yard, set them mouth-down on a cloth to dry in the sun, and read the labels on the full ones while he worked.
+There were more of them than he had thought. Rows upon rows along the shelves, clay and glass and stoppered horn, each with a scrap of paper pasted to its belly in her upright hand. He washed the empty ones in a basin in the yard, set them mouth-down on a cloth to dry in the sun, and read the labels on the full ones while he worked.
 
 Marshmallow root. Feverfew. Willow bark. Comfrey. Elder flower and elder berry, in separate jars, side by side like quarrelling sisters.
 

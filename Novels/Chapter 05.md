@@ -14,7 +14,7 @@ His *arm.*
 
 Whole. Real.
 
-The memory of the creature’s bite, the unbearable pain, the heat of blood pouring into the sand — it all came rushing back like a fever. He stared in disbelief, flexing his fingers. The flesh looked unbroken, perfectly normal, save for a faint pattern of dark, thumb-sized marks running from his elbow to his wrist. They pulsed once — faintly, rhythmically — before fading back into stillness.
+The memory of the creature’s claws, the unbearable pain, the heat of blood pouring into the sand — it all came rushing back like a fever. He stared in disbelief, flexing his fingers. The flesh looked unbroken, perfectly normal, save for a faint pattern of dark, thumb-sized marks running from his elbow to his wrist. They pulsed once — faintly, rhythmically — before fading back into stillness.
 
 His stomach twisted. “What…?”
 

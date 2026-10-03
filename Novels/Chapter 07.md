@@ -46,7 +46,7 @@ Then the weeks slipped by, quicker than he expected.
 
 ---
 
-At the end of the month came the Devotional Gathering — a night the villagers awaited all year.
+At the end of the month came the Devotional Gathering — a night the villagers awaited all month.
 
 It began at dusk. The entire settlement gathered by the riverbank, holding slender wooden lanterns shaped like flowers. The air shimmered with anticipation, and the scent of burning oil mingled with the sweetness of blooming lilies.
 
