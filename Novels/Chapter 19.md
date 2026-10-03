@@ -48,7 +48,7 @@ In the afternoon, a small boy from the mill lane came in by himself, with a copp
 
 His mother had sent him, he said. For something for the cough. And she said — he screwed up his face to get it right — that the cake was her mother’s receipt, and did the apothecary copy it yet.
 
-“Tell her I did,” said Esdel gravely, and filled the little bottle of thyme syrup, and showed the boy how to hold it upright all the way home, like a soldier carrying a flag. “In warm water. Never on an empty stomach. Can you remember that?”
+“Tell her I’d like to, if she’ll lend it to me,” said Esdel gravely, and filled the little bottle of thyme syrup, and showed the boy how to hold it upright all the way home, like a soldier carrying a flag. “In warm water. Never on an empty stomach. Can you remember that?”
 
 The boy said it back to him twice, and coughed, magnificently, and went.
 
@@ -56,7 +56,7 @@ Arwen said nothing. But when she passed behind him, she patted his shoulder twic
 
 But through it all, his thoughts circled endlessly around her — the way her voice didn’t tremble, the way her smile never reached her eyes.
 
-By the time dusk fell, the shop had gone quiet again. Arwen retired early, leaving only the faint glow of lamplight flickering against the bottles. Lyora tidied the last of the herbs, her motions careful, deliberate.
+By the time dusk fell, the shop had gone quiet again. Arwen sat on by the hearth with her mending, and there was only the faint glow of lamplight flickering against the bottles. Lyora tidied the last of the herbs, her motions careful, deliberate.
 
 “You should rest,” Esdel said, his voice low.
 

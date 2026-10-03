@@ -47,7 +47,7 @@ When he opened it, Lyora stood there — her hair loose, her robe light against 
 
 Esdel hesitated before taking the cup. The warmth seeped into his fingers, grounding him.
 
-“I’m fine,” he murmured. “Just… thinking.”
+“I can’t settle,” he murmured. “Just… thinking.”
 
 She didn’t press for more. She never did.
 

@@ -2,7 +2,7 @@
 
 For three days after the night of the dream, the house was careful with itself.
 
-Nothing had changed, and everything had. Arwen still rose before the light and set the kettle on the hearth. The jars still stood in their long rows along the shelves, catching the morning like water caught in glass. The cat still pretended not to be waiting for him at the foot of the stairs.
+Nothing had changed, and everything had. Arwen still rose before the light and set the kettle on the hearth. The jars still stood in their long rows along the shelves, catching the morning like water caught in glass. The house cat, as ever, pretended not to be waiting for him at the foot of the stairs.
 
 But Lyora set his cup down a little closer to his hand than she used to. Close enough that he did not have to reach.
 

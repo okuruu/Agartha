@@ -223,7 +223,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch9**: Mends the western fences. The river shrine. "Morning, friend." "He belonged. Or at least… he was starting to."
 - **Ch10**: Reyn recruits him. Bamboo irrigation with no magic. His reflection wavers, eyes too bright. *"You were never meant to stay."* [early summer; the enchanter left 3 winters ago]
 - **Ch11**: A week later: the Chief's gathering and village gratitude.
-- **Ch12**: Festival of Flow (once a decade), three weeks after the river was tamed; the formal honoring was Ch11's, not repeated. "You've changed how *we* live too."
+- **Ch12**: Festival of Flow (once a decade), three weeks after Ch11's honoring; the formal honoring was Ch11's, not repeated. "You've changed how *we* live too."
 - **Ch13**: Marks faded to pale traces. Reyn's workshop and water wheel. Reyn: "the way you look at her."
 - **Ch14**: Evenings on the stone bench by the pond. A tremor in the river.
 - **Ch15**: Midsummer feast. A boy asks how the water flows: "Physic?" Esdel realizes he's different.

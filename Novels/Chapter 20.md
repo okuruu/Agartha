@@ -80,7 +80,7 @@ Esdel froze. Then he forced a laugh, awkward and brittle. “Ah, that. It’s on
 
 Lyora didn’t look convinced. “Let me see.”
 
-“It’s fine.”
+“It’s seen to.”
 
 “Esdel.” Her tone was firmer now — still gentle, but edged with the authority she inherited from Arwen. “Please.”
 
@@ -92,7 +92,7 @@ She unwound the strip slowly, and lifted the folded pad, and there beneath it wa
 
 When she saw the cut itself — straight, shallow, deliberate — her breath hitched faintly.
 
-“This isn’t just a scratch,” she whispered. “You did this to yourself.”
+“This wasn’t an accident,” she whispered. “You did this to yourself.”
 
 Then, before he could speak, her voice sharpened. “And then you dressed it.” She held up the linen pad between two fingers. “Washed it. Yarrow, thin. A pad. Two fingers’ slack. Grandmother’s knot.” Something that was not quite a laugh caught in her throat. “You did everything right, Esdel. Everything. You knew exactly what you were doing.”
 
@@ -108,7 +108,7 @@ Lyora’s voice trembled. “You’ve been acting strange for days. Keeping to y
 
 Her eyes flashed with something — hurt, frustration, fear. “You can’t ask me to do that. You’re bleeding, Esdel. You’re—”
 
-“I said I’m fine.” His voice rose without meaning to, and the silence that followed was immediate, suffocating.
+“Please. Not now.” His voice rose without meaning to, and the silence that followed was immediate, suffocating.
 
 Lyora flinched, then stepped back, her lips parting as if to say something — but she didn’t. She only looked at him, her eyes glimmering with the kind of sadness that said *she didn’t believe him, but she would stop anyway.*
 

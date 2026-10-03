@@ -45,11 +45,11 @@ Before she could answer, Eldric caught her hand and led her toward them. She gla
 
 “Is it… all right if I go?”
 
-Esdel’s throat tightened. Still, he managed a faint smile. “It’s fine. Go on.”
+Esdel’s throat tightened. Still, he managed a faint smile. “Go on. They’re waiting for you.”
 
 She lingered, searching his expression for something—permission, perhaps, or reassurance—but found only restraint. His smile faltered, softer now.
 
-“Really,” he murmured. “Have fun.”
+“Have fun,” he murmured.
 
 She nodded gently and turned away, her hand still caught in Eldric’s. Halfway there, she tried, with quiet grace, to slip free. Eldric’s hold only tightened, unaware of the small unease that flickered through her eyes.
 

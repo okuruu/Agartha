@@ -110,7 +110,7 @@ But some part of him — the part that still remembered the burning desert and t
 
 ---
 
-That night, as he walked home beneath the sound of crickets and distant laughter, Esdel paused by the river.
+That night, walking down to the river before bed beneath the sound of crickets and distant laughter, Esdel paused by the water.
 
 The water reflected the moon perfectly — calm, silver, undisturbed. Yet when he stepped closer, something rippled beneath the surface. A tremor, almost like a breath.
 

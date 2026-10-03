@@ -41,7 +41,7 @@ The farmer flexed his bound hand, frowning at it, then at him.
 
 “Fences, and now this,” he said. “What else are you hiding?”
 
-“Only the nail,” Esdel said, and held it up. “I’m keeping it. Evidence.”
+“The nail,” Esdel said, and held it up. “I’m keeping it. Evidence.”
 
 ---
 

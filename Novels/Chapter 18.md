@@ -6,7 +6,7 @@ Arwen brought it out one morning and set it in front of him with a small thump, 
 
 “If you’re going to keep asking me why,” she said, “you may as well ask the dead.”
 
-Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in a third hand, quick and slanting, that crowded the margins and ran off the edges of the page, as if whoever wrote it had always been in a hurry to get somewhere. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
+Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in another hand, quick and slanting, that crowded the margins and ran off the edges of the page, as if whoever wrote it had always been in a hurry to get somewhere. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
 
 “Nobody’s read these in years,” Arwen said.
 
@@ -44,7 +44,7 @@ Behind him, Arwen had come to the storeroom doorway, a bundle of drying sage in 
 
 “Kindly done,” she said at last.
 
-“I don’t know what you mean.”
+“It was a very good cake.”
 
 “No,” said Arwen. “Of course you don’t.”
 
@@ -76,7 +76,7 @@ Then she appeared.
 
 Lyora was coming down the lane, her long dark brown hair catching the sun, a basket of herbs cradled in her arms. The faint breeze stirred her dress, scattering the scent of mint and sage in her wake. She froze when she saw them — Esdel and Eldric — walking side by side, laughter still lingering in the air between them.
 
-“Ah, hey!” Eldric called, waving. “We were just talking about you! I didn’t realize this guy’s been living above your place!”
+“Ah, hey!” Eldric called, waving. “We were just talking about you! She said there was a new apprentice — she never said it was *you*, the bamboo man!”
 
 Her steps faltered. “Oh… really?” Her voice was soft — too soft — her eyes flicking to Esdel for the briefest moment before dropping to the ground.
 
