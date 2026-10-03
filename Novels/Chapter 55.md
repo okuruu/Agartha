@@ -16,7 +16,7 @@ He could still hear the king’s decree ringing in his skull.
 
 Ten names struck like thunder.
 
-Brothers. Cousins. Uncles. All of them to hang.
+Brothers. Cousins. Uncles. All of them to die.
 
 And yet, Aldric was spared. Not because he was innocent, but because he was useful — a man the king wanted to keep alive long enough to humiliate with survival. The irony twisted like a knife in his ribs.
 

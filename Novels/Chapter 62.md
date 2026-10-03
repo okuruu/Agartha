@@ -6,7 +6,7 @@ The King, his face etched with shadows cast by days spent in deliberation, sat b
 
 In his hand, slick with nervous perspiration, rested the **decree**. It was a compact sheaf of the finest vellum, its edges crisp and unforgiving. Scrawled within, in the careful, solemn hand of the Royal Scribe, were two names, now reduced to targets: **Lián Hengzhi**, once a pillar of the Kingdom.
 
-And **Garron Reng**, the thief of House Reng — the single life the Crown would now accept in place of ten.
+And **Garron Reng**, the thief of House Reng — the one of the ten the Crown would still take; the other nine were spared.
 
 The justification for this necessary violence was woven into the ornate script beneath the names, a silk cord of officialdom meant to choke back public outcry: “For the **absolute safety** of the realm, for the unshakeable **stability** of the throne, and for the purity of the Sovereign’s lineage.”
 

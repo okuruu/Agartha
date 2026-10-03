@@ -2,7 +2,7 @@
 
 Two months had passed since the docks drowned in rumor and blood.
 
-Two months since Lord Lián Hengzhi’s name was blackened, his power stripped bare—while the ten of House Reng, sentenced long before, still waited beneath the blade—a calculated sacrifice to prove the loyalty of the one who remained. 
+Two months since Lord Lián Hengzhi’s name was blackened, his power stripped bare—while the ten of House Reng, sentenced long before, still waited beneath the blade, their lives the price by which the one who remained would prove his loyalty. 
 
 The capital had already moved on — merchants gossiping of rising grain prices near the city gates, courtiers whispering of the severity of the coming winter in the protected halls of the palace. But in the throne hall, beneath the tall arches of carved river stone and hammered gold, memory lingered not as a fading echo, but as smoke that refused to dissipate, clinging to the heavy velvet draperies and the very air the King breathed. Aldric Reng entered the chamber alone.
 

@@ -1,6 +1,6 @@
 # **Chapter 64**
 
-After that first evening in the rain, he did not stay away.
+After that first visit in the rain, he did not stay away.
 
 The Lián manor, once a center of attention, had collapsed inward, growing soundless and hollow—like breath eternally withheld by the very stone and timber of the walls. The servants, their faces gaunt with shared despair, moved like ghosts, speaking only in soft, barely audible whispers that died instantly in the high ceilings. 
 

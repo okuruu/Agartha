@@ -2,7 +2,7 @@
 
 The night was still burning faintly in the distance — streaks of red crawling against the horizon, the scent of smoke clinging to every breath. Esdel sat on a crate beside the road, exhaustion weighing down his limbs. The horse beside him twitched nervously, its flanks slick with sweat.
 
-He looked up as she approached — the woman with the bearing of nobility and a gaze that seemed to pierce the night itself.
+He looked up as she slowed and turned back — the woman with the bearing of nobility and a gaze that seemed to pierce the night itself.
 
 “...You’re from the main post,” he murmured, voice hoarse.
 
@@ -16,13 +16,13 @@ But she had seen something a moment before — when he’d looked up under the m
 
 Her tone cooled. “Your eyes.”
 
-Esdel frowned slightly, confused. “My eyes?”
+Esdel went still. “My eyes,” he repeated quietly.
 
 She took a step closer. Even in the dimness, her presence carried weight — quiet, regal authority. The faint shimmer of gold embroidery traced her figure, and the wind lifted a few strands of her midnight hair.
 
 “Do not play ignorant,” she said. “I saw it. The mark of the **Karunākṣa.**”
 
-The name struck Esdel like a blow. He froze. “You… you mean my eyes?”
+The name struck Esdel like a blow. He froze. “You know what they are?”
 
 For the first time, something shifted in her expression — not surprise, but memory. A flicker of old reminiscence.
 

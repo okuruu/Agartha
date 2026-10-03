@@ -17,7 +17,7 @@ But just as the first word reached his throat, the fragile moment broke.
 
 A maid had appeared at the edge of the torchlight from the camp, bowing with the precision of someone well-trained to vanish into the background. “Your private chamber is ready.”
 
-Xueyao’s gaze lingered on Esdel for a moment longer — not quite piercing, not quite distant — a faint glimmer of gold reflecting in the dim light. Somewhere far off, the Dragon stirred again, restless in her mind, and her jaw tightened.
+Xueyao’s gaze lingered on Esdel for a moment longer — not quite piercing, not quite distant — a faint glimmer of gold reflecting in the dim light. Somewhere far off, the Dragon stirred again.
 
 “This is not finished,” she said. Then she turned away. The hem of her robes brushed the ground like whispered silk as she left.
 
@@ -45,7 +45,7 @@ Her breath left her as a sigh, her eyes drifting upward to the wooden ceiling wh
 
 No answer came, of course — only the soft ripple of water and the distant cry of night insects outside her window.
 
-Her mind wandered back to the day’s wounded — the endless moaning, the trembling hands, the way their blood mixed with the rain. She had long learned to steady her heart, to keep her tone even, but lately it had grown heavier to hold. The weight of command was not just orders and strategies — it was the memory of every pair of eyes that had once looked up at her, pleading for life.
+Her mind wandered back to the day’s wounded — the endless moaning, the trembling hands, the way their blood mixed with the ash. She had long learned to steady her heart, to keep her tone even, but lately it had grown heavier to hold — and beneath it all lay the letter from home she had not yet answered: her father under guard, *treason* written beside his name. The weight of command was not just orders and strategies — it was the memory of every pair of eyes that had once looked up at her, pleading for life.
 
 She laughed softly — a hollow, private sound that broke too quickly.
 
@@ -80,7 +80,7 @@ He pressed it tightly between his palms, feeling the cool metal bite into his sk
 
 The silence that answered him was kind in its cruelty.
 
-He remembered her laughter — how it used to rise above the sound of rain — and the way she used to fix his collar, her fingers brushing herbs like an afterthought. He remembered her last smile, the one that didn’t reach her eyes.
+He remembered her laughter — how it used to rise above the sound of rain — and the way she used to fix his collar, her fingers brushing herbs like an afterthought. He remembered the last sight of her from the first rise — standing in the road, not moving.
 
 He swallowed. The lump in his throat stayed.
 

@@ -53,7 +53,7 @@ The sun rose higher, pushing back the mist, revealing the wide courtyards and fl
 
 But above it all, the Lord and Lady sat in stillness, two hearts woven by time, waiting for the return of the one thread that had gone missing.
 
-A bell tolled faintly from the western gate. A messenger, perhaps. Hengzhi did not turn. He closed his eyes, listening to the rustle of the garden — the hush before change.
+A bell tolled faintly from the western gate. Hengzhi did not turn. He closed his eyes, listening to the rustle of the garden — the hush before change.
 
 Anlan reached out, brushing her fingers against his hand.
 
