@@ -106,7 +106,7 @@ No one took it down. No one touched it. It stayed there in the white heat of the
 
 That evening, two men came up the river road on foot and took a room at the inn.
 
-They were not soldiers. They wore plain grey clothes and carried plain packs and said they were wool buyers from the eastern valleys, come to look at the summer clip. They paid in good silver. They were polite. They drank a cup of wine each in the common room and went up early to bed.
+They were not soldiers. They wore plain grey clothes and carried plain packs and said they were wool buyers from the eastern valleys, come to look at the summer clip. They paid in good silver. They were polite. They drank a cup of wine each in the common room and went up early to bed. Reyn mentioned them at the kitchen door on his way home — two wool buyers at the inn, in high summer, which was a strange time to be buying wool.
 
 In the morning, they did not go to look at any sheep.
 

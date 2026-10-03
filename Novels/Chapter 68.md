@@ -64,7 +64,7 @@ He shook his head.
 
 She turned the cup again.
 
-“What my dragon showed me was simpler. Men and women who could not be touched. Who saw the blade before the hand that held it knew it would move. One of them against ten, and the ten lying in the grass.” Her voice was very even. “Not a healer’s eye, Esdel. A soldier’s. Whatever mercy there was in it, they had to bring themselves.”
+“What my dragon showed me was simpler. Men and women who could not be touched. Who saw the blade before the hand that held it knew it would move. One of them against ten, and the ten lying in the grass.” Her voice was very even. “Not a healer’s eye, Apothecary. A soldier’s. Whatever mercy there was in it, they had to bring themselves.”
 
 The fire cracked. Across the room, Pei Lun lost another round of pebbles, loudly.
 

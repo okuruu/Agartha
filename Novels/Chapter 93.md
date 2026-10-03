@@ -84,13 +84,13 @@ The others came in, one by one, as the day went on. Gao, with a rag wrapped roun
 
 Esdel put his hand on the boy’s shoulder and left it there.
 
-Seven of them. That was what was left. The General, the apothecary, Gao, four old soldiers, and a boy. Seven, out of eighteen who had ridden out of North Ridge in the spring.
+Eight of them. That was what was left. The General, the apothecary, Gao, four old soldiers, and a boy. Eight, out of eighteen who had ridden out of North Ridge in the spring.
 
 ---
 
 The trader came on the fifth day.
 
-He was a thin, cheerful, bow-legged man with a string of mules loaded with salt and needles and cheap tin pots, working his way up through the hill country toward the northern passes the way he did every summer. He came up the goat track in the late afternoon and found them there — seven ragged people and a handful of worn-out horses in a shepherd’s hut at the edge of a pine wood — and did not seem surprised at all. He had seen a great many strange things in the hills.
+He was a thin, cheerful, bow-legged man with a string of mules loaded with salt and needles and cheap tin pots, working his way up through the hill country toward the northern passes the way he did every summer. He came up the goat track in the late afternoon and found them there — eight ragged people and a handful of worn-out horses in a shepherd’s hut at the edge of a pine wood — and did not seem surprised at all. He had seen a great many strange things in the hills.
 
 He shared their fire. He shared his salt. He told them the news, the way traders do, in exchange for a bowl of stew — the price of grain in the lowlands, a flood in the river towns, a fire in a monastery.
 
@@ -116,7 +116,7 @@ He could not see anything. Only hills — green and grey and gold, rolling away 
 
 His name. On a decree. Nailed to the door of every magistrate’s house in the Kingdom. Read out by criers in every market square. With the name of the village beside it, where anyone could hear.
 
-He understood it all at once, the way he understood the slope of a field. Standing at the edge of the pine wood with his hand on the bark, he understood it completely.
+Under the peach tree it had been one man watching, and he had known then that he could not go home. Now it was the whole Kingdom, and it was written down. He understood it all at once, the way he understood the slope of a field. Standing at the edge of the pine wood with his hand on the bark, he understood it completely.
 
 The Count had not needed to send a rider on the south road. He had not needed a letter, or a spy, or a map. He had only needed to put one word into a decree. And now every soldier and every bounty-hunter and every magistrate’s man in the Kingdom knew that the traitor’s apothecary, worth a thousand gold crowns, living or dead, had come from a village called Edenridge.
 

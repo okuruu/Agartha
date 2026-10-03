@@ -64,7 +64,7 @@ Changli had known. Esdel saw it — saw that she had known before any of them, p
 
 Changli did not move.
 
-“You’ll raise him,” said Xueyao. “Far from this city. Far from me. You’ll give him another name. You’ll teach him to read and to ride and to be kind, and you won’t tell him who he is until he’s old enough to choose what to do with it.” Her voice did not waver. “Let him live free of our name, Changli. That’s all I want for him. That’s all my mother wanted.”
+“You’ll raise him,” said Xueyao. “Far from this city. Far from me. You’ll give him another name. You’ll teach him to read and to ride and to be kind, and you won’t tell him who he is until he’s old enough to choose what to do with it.” Her voice did not waver. “That’s all I want for him. That’s all my mother wanted.”
 
 For a long moment Changli said nothing. The lamp hissed. Somewhere in the stables, a horse shifted in its stall.
 
@@ -72,7 +72,7 @@ Then she said, very quietly, “You’re sending me away.”
 
 “I’m giving you the only thing I have left that matters.”
 
-“You’re sending me *away*.” Changli’s voice broke, just slightly, on the last word. “Seventeen years. Since we were six. I followed you to the front. I followed you into the *mud*, Xueyao, into the camp, into the — and now you want me to go down the river with your brother and a stranger’s name and never—”
+“You’re sending me *away*.” Changli’s voice broke, just slightly, on the last word. “Down the river with your brother and a stranger’s name and never—”
 
 She stopped. She pressed her lips together. Her folded hands on the table were white.
 

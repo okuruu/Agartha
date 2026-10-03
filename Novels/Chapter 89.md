@@ -42,7 +42,7 @@ And he smiled.
 
 Xueyao did not answer him.
 
-She turned in the saddle, instead, and looked at her soldiers — fifteen old men and a boy, on their horses, in the gateway of her father’s house, with the storm behind them and the torches in front.
+She turned in the saddle, instead, and looked at her soldiers — thirteen old men and a boy, on their horses, in the gateway of her father’s house, with the storm behind them and the torches in front.
 
 “There’s another way out,” said Han Ruo, low. “The river gate. We could go down the stair, along the wall—”
 
@@ -132,7 +132,7 @@ The sixth was running. Esdel let him run.
 
 He blinked again, and the world crashed back in around him — noise, and rain, and the bell, and the torches roaring, and pain. Pain like needles driven through both eyes at once. He staggered. Something warm was running down his face that was not rain. He put up his hand and it came away red.
 
-“*Esdel.*”
+“*Apothecary.*”
 
 The General was beside him. On foot. She had her hand on his arm. Behind her, Pei Lun was scrambling up off the cobbles, white-faced, staring at the five men lying around them in the rain. At Esdel.
 

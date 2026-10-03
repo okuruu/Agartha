@@ -24,7 +24,7 @@ No one asked the General’s apothecary what he had found. It was not his place.
 
 ---
 
-The funeral was held on the ninth day.
+The funeral rites began on the ninth day.
 
 The Count spared nothing. The Lián house was hung in white from the gate to the peach tree — white silk on every pillar, white lanterns on every eave, white paper flowers heaped along the galleries until the whole estate seemed to have been buried in a soft, silent snow. Monks came from three temples to chant. Musicians played the old laments on the long flutes, day and night, so that the thin high sound drifted out over the walls and along the river and the whole eastern quarter of the city could not sleep for it.
 

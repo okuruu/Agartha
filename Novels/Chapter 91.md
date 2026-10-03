@@ -158,7 +158,7 @@ Then he turned his horse’s head back toward the Count’s men, and the river, 
 
 ---
 
-Esdel did not remember reaching the far bank. He did not remember the pines. He remembered only a voice — the General’s, very close, very sharp, saying his name over and over in a tone he had never heard her use. And hands on his side, pressing hard. And Pei Lun somewhere, crying. And the smell of pine needles and blood and river water. And over all of it, in the back of his skull, the cold blue fire going out — slowly, slowly, like a lamp being turned down — until there was only dark.
+Esdel did not remember reaching the far bank. He did not remember the pines. He remembered only a voice — the General’s, very close, very sharp, saying *Apothecary* over and over in a tone he had never heard her use. And hands on his side, pressing hard. And Pei Lun somewhere, crying. And the smell of pine needles and blood and river water. And over all of it, in the back of his skull, the cold blue fire going out — slowly, slowly, like a lamp being turned down — until there was only dark.
 
 In the dark, before he went all the way down into it, he felt his hand go to his throat. To the silver chain. The small flower. The scrap of paper tucked behind it, with one word on it, in his own strange hand.
 

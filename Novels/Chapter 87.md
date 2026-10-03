@@ -24,7 +24,7 @@ He stood up.
 
 ---
 
-Han Ruo was in the corridor, in his armor, with his sword at his hip and his helmet under his arm. Behind him stood the soldiers of House Lián — fourteen of them, for Suyin was already with Changli — in the dark, silent, their armor wrapped in black cloth so it would not ring. Pei Lun at the back, very pale, with a bow in his hands that was too big for him.
+Han Ruo was in the corridor, in his armor, with his sword at his hip and his helmet under his arm. Behind him stood the soldiers of House Lián — thirteen of them, for Suyin was already with Changli — in the dark, silent, their armor wrapped in black cloth so it would not ring. Pei Lun at the back, very pale, with a bow in his hands that was too big for him.
 
 No one spoke. Han Ruo only looked at Esdel, and nodded once, and turned.
 
@@ -132,7 +132,7 @@ They went down the south gallery toward the river gate. Esdel watched them go �
 
 Beside him, the General stood in the doorway of the empty nursery and did not move.
 
-He looked at the candle stub in his hand. He had lit it from the night-lamp. The fourth notch was burning.
+He looked at the candle in his hand — the notched one from his table; he had carried it out without noticing. The fourth notch was burning.
 
 “General,” he said quietly.
 

@@ -223,7 +223,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch9**: Mends the western fences. The river shrine. "Morning, friend." "He belonged. Or at least… he was starting to."
 - **Ch10**: Reyn recruits him. Bamboo irrigation with no magic. His reflection wavers, eyes too bright. *"You were never meant to stay."* [early summer; the enchanter left 3 winters ago]
 - **Ch11**: A week later: the Chief's gathering and village gratitude.
-- **Ch12**: Festival of Flow (once a decade). "You've changed how *we* live too."
+- **Ch12**: Festival of Flow (once a decade), three weeks after the river was tamed; the formal honoring was Ch11's, not repeated. "You've changed how *we* live too."
 - **Ch13**: Marks faded to pale traces. Reyn's workshop and water wheel. Reyn: "the way you look at her."
 - **Ch14**: Evenings on the stone bench by the pond. A tremor in the river.
 - **Ch15**: Midsummer feast. A boy asks how the water flows: "Physic?" Esdel realizes he's different.
@@ -248,7 +248,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch31**: Night kitchen talk: tomato soup, cats, Lyora's wish for a simple wedding.
 - **Ch32**: The "lovebirds" teasing, "You're beautiful when you panic." At sunset, wounded soldiers collapse on the southern path.
 - **Ch33**: A tent in the square. A soldier recognizes Esdel from a siege. Lyora: "You don't owe the past anything."
-- **Ch34**: Walking home. Quietly, dry-eyed: "Please don't leave… For making me love you this much." She cries behind her closed door; he sits on the second step all night listening and doesn't knock.
+- **Ch34**: Arwen relieves Esdel at the tent near midnight; Lyora has waited for him. Walking home, picking up from the tent talk. Quietly, dry-eyed: "Please don't leave… For making me love you this much." She cries behind her closed door; he sits on the second step all night listening and doesn't knock.
 - **Ch35**: Next day. A young soldier dies; his brother strangles Lyora; Esdel drops him on instinct. "He moved like a soldier." Arwen: "Let that fear guide you."
 - **Ch36**: The garden at night. He tells her of the woman in white; one tear: "Then don't remember her." **He promises to stay.** It lasts "less than an hour."
 - **Ch37**: The kitchen at night. Lyora's parents' story. "Grandmother… and you." Hands held. Torches: the captain chooses **Lyora** and she says yes; **Esdel steps forward and goes in her place**, breaking "I'll stay." On the stairs: "*You promised*," her complete breakdown, his wordless holding, their eyes meeting. **"I broke one promise to you tonight. I won't break another. I'll come back. I promise."**
@@ -320,7 +320,7 @@ Each line gives the plot, then **[continuity facts to check]**.
 - **Ch90**: *Blue Eyes at the North Gate.* Ten riders. **Ardbert and Khalid open the gate** ("Crown's orders"). "I remember how you looked at people too." Torches coming up the Hundred Steps.
 - **Ch91**: *The Blue Vial.* The Greenwater ford. Gao and two veterans hold it. A spear in Esdel's side, **Halden's vial, and the full Karunākṣa**: he reads every heart's fear and next move, and sees that **only Aldric is unafraid**, calm under a face of fierce joy. He spares Aldric's life and cuts his sword hand; the grey horse goes into the river and Aldric's men go in after him. Two veterans die.
 - **Ch92**: *The Decree.* The Hall of Clear Waters. Xueyao is declared a traitor (5,000 crowns). Fifteen Lián soldiers and "**the apothecary Esdel… late of the village of Edenridge**" (1,000 each). The King tells Ardbert it "never happened" and writes "*For now*" on the dragon map.
-- **Ch93**: *Nowhere to Return.* A shepherd's hut, three days of fever, the wound closed. "I didn't want to be the kind of man who would." Seven left. A trader: "*Edenridge. Pretty name.*" Esdel understands he can never go back. Xueyao releases him; **he stays so the hunt never turns south.**
+- **Ch93**: *Nowhere to Return.* A shepherd's hut, three days of fever, the wound closed. "I didn't want to be the kind of man who would." Eight left. A trader: "*Edenridge. Pretty name.*" Esdel understands he can never go back. Xueyao releases him; **he stays so the hunt never turns south.**
 - **Ch94**: *Interlude, The Backwater Genius.* Halden: "*Idiot.*" At North Ridge **the dragon keens for days, looking south, and doesn't rise**; the front loses a mile and three hundred men. Loryn, wounded, hears the name.
 - **Ch95**: *Interlude, The Crier.* The herald under the great tree. Esdel's name, and the silence. **Reyn: "We only knew an apothecary. And he was a good man."** Two men in grey at the inn. **Lyora's night of doubt:** the lamp burns down to a blue bead. At dawn she understands the snare, that he'll stay away *for her*, and turns the lamp up brighter than ever.
 - **Ch96**: *White on the Ridge.* The borderlands. At dawn Xueyao cuts her hair and wears white. For a breath she is **the woman in white**, and then only Xueyao. "Who are you?" "**Esdel.** For now, I think it's enough." She calls him by his name for the first time.

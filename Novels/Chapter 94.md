@@ -50,7 +50,7 @@ At North Ridge, the dragon had not slept in a week.
 
 The soldiers did not understand it. They had lived beneath it for three years — a vast golden shape coiled on the high rock of the eyrie above the post, like a mountain that breathed — and they had learned its moods the way sailors learn the sea. It slept for days after a battle, heavy and sated, and the whole post slept easier with it. It woke before a storm and lifted its great head and tasted the wind. It stirred, sometimes, in the night, and made a sound like distant thunder rolling in its throat, and the horses screamed in their lines and the new recruits wet their bedrolls, and the old soldiers turned over and said, *it’s dreaming. Go back to sleep.*
 
-It had never been like this.
+It had been restless since spring, pacing the eyrie at night. But it had never been like this.
 
 It had begun on a night in early summer — the soldiers did not know which, afterward; they argued about it. A night with no moon. Some said there had been a storm in the south; they had seen lightning flicker on the horizon, very far away. That night, near midnight, the dragon had lifted its head from the rock of the eyrie, all at once, as though someone had called its name.
 

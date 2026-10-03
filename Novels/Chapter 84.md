@@ -80,7 +80,7 @@ For a long moment, nothing happened.
 
 And then something in her face moved.
 
-It was very small. A tremor at the corner of the mouth. A tightening around the eyes. But it was the first thing that had moved in her face since the pavilion — since the funeral, since the dawn when Changli screamed — and he watched it spread, slowly, the way a crack spreads through ice on a river in spring. Down from her eyes. Into her jaw. Into her shoulders, which began, very slightly, to shake.
+It was very small. A tremor at the corner of the mouth. A tightening around the eyes. But it was the first thing that had moved in her face since the pavilion — since the funeral, since the dawn when Changli cried out — and he watched it spread, slowly, the way a crack spreads through ice on a river in spring. Down from her eyes. Into her jaw. Into her shoulders, which began, very slightly, to shake.
 
 She put her hands over her face.
 
