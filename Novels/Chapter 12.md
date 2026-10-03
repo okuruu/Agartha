@@ -4,7 +4,7 @@ Three weeks later, the night came alive with color.
 
 Lanterns of every hue swayed above the village square — red, amber, and pale green, their light trembling like captured stars. Music drifted on the air, the low hum of flutes and the steady rhythm of drums echoing through the forest edge.
 
-It was the *Festival of Flow*, held once every decade — but this year, it carried a new meaning. The fields had not just survived the dry season; they had *thrived*. And all because of a few lines of hollowed bamboo and one quiet man who believed the world could be reasoned with.
+It was the *Festival of Flow*, held once every decade — but this year, it carried a new meaning. The fields, so lately parched, had turned green again in a month; they had not just survived, they had *thrived*. And all because of a few lines of hollowed bamboo and one quiet man who believed the world could be reasoned with.
 
 The villagers gathered with joy that seemed to outshine the moon. Children ran barefoot, carrying lanterns shaped like fish and birds. The smell of roasted rice and sweet herbs filled the air. Laughter rolled like a tide — unrestrained, alive.
 

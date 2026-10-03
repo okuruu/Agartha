@@ -44,7 +44,7 @@ They went out. The whole village was going out — doors opening all down the la
 
 A man with a captain’s knot on his shoulder stepped forward into the torchlight.
 
-“Is there a healer here?” he called. His voice was hoarse. “An apothecary? Our camp was hit on the road. We lost our medic. We need someone who can march with us and keep these men alive till the Eastern Post.”
+He glanced once toward the tents, where the village healers were already worn to the bone. “Is there a healer here who can travel?” he called. His voice was hoarse. “An apothecary? Our camp was hit on the road. We lost our medic. We need someone who can march with us and keep these men alive till the Eastern Post.”
 
 Arwen stepped out of the crowd.
 

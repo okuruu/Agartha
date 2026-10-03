@@ -49,7 +49,7 @@ Arrows rained from the treeline, black shafts hissing through the gloom. The fir
 
 Esdel threw himself behind a tree. His heart hammered against his ribs.  
 The captain’s voice cut through the noise:  
-“Form the circle! Protect the supplies! Don’t scatter!”
+“Form the circle! Litters and supplies inside! Don’t scatter!”
 
 The soldiers moved with precision, shields locking, spears braced, magic still glowing faint beneath their skin. It was a formation born from habit and horror alike.
 

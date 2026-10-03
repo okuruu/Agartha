@@ -12,7 +12,7 @@ So she sat outside. And near the grey hour, the crying on the other side of the 
 
 Lady Wei Anlan went down to the garden alone that morning, in her nightrobe, with her hair loose and her feet bare on the cold stones.
 
-No one stopped her. The maid at the door had fallen asleep on her stool at last. The household was not yet stirring. The Count, who walked beneath the peach tree every morning before the house woke, had been called away the night before to the palace, and had not returned. The gardens were empty and grey and silver with dew, and the peach tree stood in the middle of them like something out of a dream, its blossoms beginning to fall now, drifting down onto the dark water of the pond.
+No one stopped her. The maid at the door had fallen asleep on her stool at last. The household was not yet stirring. The Count, who walked beneath the peach tree every morning before the house woke, had been called away the night before to the palace, and had not returned. The gardens were empty and grey and silver with dew, and the peach tree stood in the middle of them like something out of a dream, its last blossoms falling now, drifting down onto the dark water of the pond.
 
 Xueyao followed her at a distance. She did not dare come closer. Esdel, who had been in the stillroom all night and had seen them pass the stables, followed Xueyao — and stopped at the edge of the gallery, as he always did, where the shadows were.
 
