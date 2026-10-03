@@ -48,7 +48,7 @@ Then it was gone.
 
 She did not come back up the stair.
 
-Esdel waited. He counted — his heartbeat, the rain, the knock of a loose shutter somewhere in the house behind them. He looked at the candle stub in his hand, sheltered in the lee of the wall. The fourth notch was almost gone.
+Esdel waited. He counted — his heartbeat, the rain, the knock of a loose shutter somewhere in the house behind them. He looked at the candle in his hand, sheltered in the lee of the wall. The fourth notch was almost gone.
 
 She did not come.
 
@@ -74,7 +74,7 @@ The river roared past below them.
 
 “Yes,” said Esdel.
 
-She turned her head then, finally, and looked at him — standing on the step above her with the candle stub in his hand and the rain running off his hair.
+She turned her head then, finally, and looked at him — standing on the step above her with the candle in his hand and the rain running off his hair.
 
 “You know what that’s like,” she said.
 
@@ -94,6 +94,6 @@ He hoped they got there. He found he was praying it, without meaning to — to w
 
 Then he went up the stair after her, and closed the iron door behind them, and they went back through the roaring garden toward the stables, where the soldiers of House Lián were waiting with the horses in the rain.
 
-Behind them, in the house, the candle in Esdel’s narrow room at the end of the east wing burned down past its fourth notch, and began on the fifth.
+In Esdel’s hand, shielded under his coat, the candle burned down past its fourth notch, and began on the fifth.
 
-And far across the gardens, above the west gallery, in a bedchamber where the curtains were drawn and the lamp was out, a man who had not eaten from the main kitchen opened his clear grey eyes in the dark, and lay very still, and listened to the silence of his house.
+And far across the gardens, above the west gallery, in a bedchamber where the curtains were drawn and the lamp was out, a man who had not eaten from the main kitchen opened his clear grey eyes in the dark, and lay very still, already dressed, and listened to the silence of his house.

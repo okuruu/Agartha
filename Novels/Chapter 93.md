@@ -88,7 +88,7 @@ Eight of them. That was what was left. The General, the apothecary, Gao, four ol
 
 ---
 
-The trader came on the fifth day.
+The trader came on the eighth day.
 
 He was a thin, cheerful, bow-legged man with a string of mules loaded with salt and needles and cheap tin pots, working his way up through the hill country toward the northern passes the way he did every summer. He came up the goat track in the late afternoon and found them there — eight ragged people and a handful of worn-out horses in a shepherd’s hut at the edge of a pine wood — and did not seem surprised at all. He had seen a great many strange things in the hills.
 

@@ -459,7 +459,7 @@ Don't reread all 98 files. Pick the pass you need:
 - [ ] Hair: Lyora dark brown, Xueyao black, Arwen silver, Aldric silver, Ardbert dark, Reyn copper beard.
 - [ ] Benn is **he**. The crimson-eyed man can't see in the dark.
 - [ ] Place names: Edenridge, Eastern Post, North Ridge, Lián estate, western harbor, Nanyue, Iskar, Redmere, Hall of Clear Waters, Hall of Remedies, Hundred Steps, Street of Lanterns, Temple of the Moon, Greenwater ford, Harrowmere.
-- [ ] Headcounts: 15 Lián guards left North Ridge with Xueyao, Changli, and Esdel (18 total). 4 died at the gate, 2 in the Street of Lanterns, 2 at the ford; Suyin went south. **Seven exiles:** Xueyao, Esdel, Pei Lun, Gao, and four old soldiers.
+- [ ] Headcounts: 15 Lián guards left North Ridge with Xueyao, Changli, and Esdel (18 total). 4 died at the gate, 2 in the Street of Lanterns, 2 at the ford; Suyin went south. **Eight exiles:** Xueyao, Esdel, Pei Lun, Gao, and four old soldiers.
 - [ ] Esdel is a wanted man; nobody on the page may recognize him by his face (the decree has no description, because Aldric withheld it as bait, Ch97).
 - [ ] Festival names are exact: "Festival of Wishing Threads," "Festival of Flow," "Devotional Gathering."
 - [ ] House crests: Reng = silver serpent eating its tail. Hale = silver griffin. Wei = crane over the moon. Royal seal = brass lion's head.

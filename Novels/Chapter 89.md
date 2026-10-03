@@ -8,7 +8,7 @@ Han Ruo swore. Pei Lun, who had been holding the General’s horse, was nearly d
 
 “He didn’t drink,” said Xueyao.
 
-She said it calmly. She was already swinging up into the saddle, her cloak streaming. “He didn’t sleep. He’s ringing it himself.”
+She said it calmly. She was already swinging up into the saddle, her cloak streaming. “He didn’t sleep. He’s had it rung.”
 
 “Who’ll come?” Pei gasped, fighting the reins. “Everyone’s asleep—”
 
@@ -157,6 +157,8 @@ And something else, beneath it. Something he did not have a name for.
 “Then ride.”
 
 He rode.
+
+Near the top of the Street of Lanterns, torches came out of the alleys again. Two of the old soldiers turned their horses without a word, as Han Ruo had, and rode back into them, and did not come back.
 
 Behind them, far back across the eastern quarter, the great bronze bell on the gatehouse of the Lián estate rang on, and on, into the storm. And then, all at once, in the middle of a stroke, it stopped.
 

@@ -110,7 +110,7 @@ The others followed her. One by one, under the rising iron teeth, into the passa
 
 As he passed the Prince, standing alone in the street with the rain on his dark hair, Ardbert looked up at him.
 
-It was a brief look. A curious one. The look of a man seeing a stranger for the first time and wondering, idly, who he might be.
+It was a brief look. A curious one. The look of a man who had seen him once, behind a table in a cold hall, and never thought to wonder who he was.
 
 Esdel inclined his head, very slightly.
 

@@ -22,7 +22,7 @@ He bought the salt and the flour and the cloth. He bought thread from an old wom
 
 And then, at the far end of the market, where the traders from the south had set up their stalls beside the ford, he saw a man with a string of mules.
 
-He was a peddler. A thin, weathered, cheerful man with a patched coat and a long grey beard, sitting on an upturned crate beside his mules and whittling a stick. His packs were half-empty; he had sold most of what he had carried up from the south. He was going home. Esdel could see it in the way he sat — easy, idle, with his face turned toward the ford and the long road beyond it, running down out of the hills toward the plains.
+He was a peddler. Not the trader from the hut — an older man, heavier and slower, weathered and cheerful, with a patched coat and a long grey beard, sitting on an upturned crate beside his mules and whittling a stick. His packs were half-empty; he had sold most of what he had carried up from the south. He was going home. Esdel could see it in the way he sat — easy, idle, with his face turned toward the ford and the long road beyond it, running down out of the hills toward the plains.
 
 Esdel stopped.
 
@@ -56,7 +56,7 @@ He sat looking at them for a long time.
 
 He thought of all the letters he had burned. The thin sheaf of them, soft at the folds, going to ash in a copper dish in a narrow room at the end of the east wing. The last one, in the stillroom, torn into pieces too small to hold a word. He thought of the decree. *Late of the village of Edenridge.* He thought of the men who would be watching, in the village, on the river road, at the inn. Waiting for a letter. Waiting for a word. Waiting for anything at all that might lead them to the traitor’s apothecary, worth a thousand gold crowns, living or dead.
 
-A letter could be followed. A letter could be opened, and read, and carried to a man in a nursery with a ruined hand, who would know exactly what it meant.
+A letter could be followed. A letter could be opened, and read, and carried to a man with a ruined hand, who would know exactly what it meant.
 
 A piece of cord could not.
 
@@ -82,7 +82,7 @@ The peddler looked at the cord. Three small neat knots on a length of plain brow
 
 “No message?”
 
-“No.” Esdel held it out. “If anyone asks — anyone at all — tell them the truth. It’s a piece of cord. For tying herbs. That’s all it is.” He paused. “I won’t ask you to lie for me. Only don’t say more than that. Don’t tell her who gave it to you. Don’t describe me. Don’t say where you were. Just give it to her, and go.”
+“No.” Esdel held it out. “If anyone asks — anyone at all — tell them the truth. It’s a piece of cord. For tying herbs. That’s all anyone needs to know.” He paused. “I won’t ask you to lie for me. Only don’t say more than that. Don’t tell her who gave it to you. Don’t describe me. Don’t say where you were. Just give it to her, and go.”
 
 The peddler was silent for a long time. The ford ran over its stones. Somewhere behind them in the market, a goat was complaining.
 

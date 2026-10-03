@@ -130,7 +130,7 @@ Then she stood looking at it for a long time. At the small gold flame. At the th
 
 *Late of the village of Edenridge.*
 
-He was alive. She held on to that. She sat down on the second step beside the lamp and held on to it with both hands, the way she had held on to the edge of the worktable in the spring when the soldier said *alive and working*.
+He was alive. She held on to that. She sat down on the second step beside the lamp and held on to it with both hands, the way she had held on at the kitchen table in the spring, her face in her hands, when the soldier said *alive and working*.
 
 And then, because the house was very quiet, and the night was very long, the other thing came.
 
