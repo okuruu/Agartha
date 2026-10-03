@@ -94,7 +94,7 @@ He knew what it was. He had seen it once before, in the tent at the Eastern Post
 
 Esdel sat back on his heels.
 
-He looked at the cup on the table beside the bed. It was his own cup, the plain clay one he had brought her bitter bark tea in last night, before she sent them all away. It was empty. He picked it up and held it to his face.
+He looked at the cup on the table beside the bed. It was his own cup, the plain clay one he had brought her bitter bark tea in last night, before she sent Xueyao to bed. It was empty. He picked it up and held it to his face.
 
 Beneath the bark, beneath the bitterness, very faint — sweet. Slow. Amber.
 
@@ -110,7 +110,7 @@ The Count had noticed. Of course he had noticed. He had held her hand in the pav
 
 A woman like that could not be allowed to wake.
 
-And so, while she slept, someone had come — someone who knew the house, who knew the doors, whom the maids would not question — and had poured into the cup at her bedside, the cup Esdel had left there, a dose of greyveil a hundred times what Vale had ever given her. And she had woken in the night, thirsty, as the sick do, and reached for the cup, and drunk it. And lain back. And her muscles had quieted, one by one, very gently. Until the ones that breathed.
+And so, while she slept, someone had come — someone who knew the house, who knew the garden door to the bedchamber that no one had thought to bar — while Changli slept in the chair and Han Ruo, in the corridor, heard nothing — and had poured into the cup at her bedside, the cup Esdel had left there, a dose of greyveil a hundred times what Vale had ever given her. And she had woken in the night, thirsty, as the sick do, and reached for the cup, and drunk it. And lain back. And her muscles had quieted, one by one, very gently. Until the ones that breathed.
 
 *He did it to her,* Xueyao had said in the garden. *You didn’t choose it.*
 

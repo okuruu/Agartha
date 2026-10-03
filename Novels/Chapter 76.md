@@ -10,7 +10,7 @@ The Count knocked, and waited, and when Esdel opened the door, he smiled.
 
 It was not a question. Esdel stood aside.
 
-The Count came in and looked around the narrow room with polite interest. At the bed. At the chests. At the table beneath the window, cleared now — the flasks washed and packed away, the tin sheet scoured, the baskets gone. The mice had been released in the kitchen garden, at dusk, the morning after the hearing. Pei had done it. He had not said anything about it, and neither had Esdel.
+The Count came in and looked around the narrow room with polite interest. At the bed. At the chests. At the table beneath the window, cleared now — the flasks washed and packed away, the tin sheet scoured, the baskets gone. The mice had been released in the kitchen garden, at dusk, the day after the hearing. Pei had done it. He had not said anything about it, and neither had Esdel.
 
 “Plain,” the Count said, approvingly. “I like a plain room. It tells you a man isn’t hiding anything.” He lowered himself onto the single chair, the cane across his knees, and looked up at Esdel with his clear grey eyes. “Please. Sit.”
 
@@ -84,7 +84,7 @@ He sat with them in his lap for a long time.
 
 Then he fed them, one by one, into the flame of the lamp, and held each until it caught, and set it burning in the copper dish on the floor, and watched it curl and blacken and go to ash. He did not read them first. He knew what they said.
 
-The last one he held longest. It was the first one he had written, in the ruined inn on the road, the night the General told him to send them before he was somewhere they couldn’t reach.
+The last one he held longest. It was the last one he had written, in the ruined inn on the road, the night the General told him to send them before he was somewhere they couldn’t reach.
 
 It had only one line.
 

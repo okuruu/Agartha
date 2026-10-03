@@ -26,7 +26,7 @@ Her fingers moved along it. Down to the base, where it met the stem. There was a
 
 Her hand stopped.
 
-“He trimmed too much,” she whispered. “She always said he trimmed too much.”
+“He trimmed too much,” she whispered. “I always said he trimmed too much.”
 
 And then she bent forward over the orchids, and put her hands over her face, and made a sound Esdel would not forget. It was not weeping. It was lower than weeping, and older. It was the sound of something that had been frozen for a year beginning, all at once, to break.
 

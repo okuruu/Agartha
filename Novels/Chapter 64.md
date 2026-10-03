@@ -1,8 +1,6 @@
 # **Chapter 64**
 
-The first time he came, it was with an air of gentleness that seemed almost misplaced among the heavy, quiet corridors of mourning. It was not the boisterous, self-important kindness of the well-meaning, but a meticulous, almost surgical politeness that cut through the silence.
-
-Lady Wei Anlan was still shrouded in white, the coarse fabric of her mourning robes feeling perpetually stiff against her skin, her sleeves untouched by any color, any pigment of life, since the execution that had broken the world. 
+After that first evening in the rain, he did not stay away.
 
 The Lián manor, once a center of attention, had collapsed inward, growing soundless and hollow—like breath eternally withheld by the very stone and timber of the walls. The servants, their faces gaunt with shared despair, moved like ghosts, speaking only in soft, barely audible whispers that died instantly in the high ceilings. 
 
@@ -10,15 +8,7 @@ In every room, the incense burned low, day after day, sticks of rich, dark sanda
 
 Aldric Reng stepped into that suffocating silence as if it were a room built solely for him, an environment that welcomed and required his specific, controlled presence.
 
-He brought with him not the usual vulgar display of food or silk, but an **intricately carved ornate box** of lacquered rosewood. The wood glowed a deep, oily crimson, polished so finely that it would later mirror the grief-stricken face of the young maid who carried it to her chamber. Inside, nestled securely in dark, midnight-blue velvet, were two small, perfectly smooth vials of amber liquid. The glass was heavy and cool to the touch, and the contents, thick and slow-moving, caught the dwindling afternoon light, giving off a warm, misleading shimmer.
-
-He said his physician had prepared a specific brew for her shattered nerves, formulated from the rare, calming essence of mountain lotus and the grounding stability of amber root. “A mere palliative, Lady Wei,” he stated, his voice so measured it sounded less like human speech and more like the calm, steady tick of a distant clock. 
-
-He called it a kindness, and insisted it was nothing more than a token of sympathy from himself.
-
-Lady Wei, exhausted not just by the weight of her grief but by the endless, meaningless cycle of formalized condolence visits, accepted it without the slightest flicker of suspicion. Her mind was too fogged, her spirit too crushed to question the sincerity of a man who had stood on the opposite side of her husband’s trial. She simply needed respite from the agonizing clarity of her pain.
-
-Each week, with the consistency of a season turning, he came again. Always at dusk, when the shadows were long and the Estate's isolation was deepest, and always with something new. The first week, it was a second set of vials; the next, a tincture for the searing headaches that plagued her nights; later, a salve for the sleeplessness that kept her pacing until dawn. His manner never changed: a soft-spoken inquiry about her physical health, a courteous bow, and a promise of improved rest. 
+Each week, with the consistency of a season turning, he returned. Always at dusk, when the shadows were long and the Estate's isolation was deepest, and always with something new. The first week, it was a second set of vials; the next, a tincture for the searing headaches that plagued her nights; later, a salve for the sleeplessness that kept her pacing until dawn. His manner never changed: a soft-spoken inquiry about her physical health, a courteous bow, and a promise of improved rest. 
 
 He never stayed long—perhaps fifteen minutes at most—but it was always long enough for the sound of his low, careful voice to fill the space and linger long after he’d gone, an aftertaste of quiet warmth in a house of cold ashes.
 

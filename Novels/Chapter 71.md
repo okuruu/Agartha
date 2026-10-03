@@ -34,7 +34,7 @@ From her sleeve, she took a small bottle of dark glass and set it on the windows
 
 Esdel stared at it.
 
-“He changes his coat for dinner,” Changli said. “Every night. Master Vale sends up a new bottle on the tenth day of each month, and the old one goes back to the west wing to be refilled. The old one had a little left in it. It was on the steward’s tray on the way back, among a great many other small things.” She shrugged. “Trays are very crowded in this house.”
+“He changes his coat for dinner,” Changli said. “Every night. Master Vale sends up a new bottle every tenth day, and the old one goes back to the west wing to be refilled. The old one had a little left in it. It was on the steward’s tray on the way back, among a great many other small things.” She shrugged. “Trays are very crowded in this house.”
 
 “If he counts them—”
 

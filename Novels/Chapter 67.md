@@ -48,7 +48,7 @@ Esdel shook his hand. “Esdel.”
 
 Esdel’s hands paused on the linen.
 
-“The whole escort knows,” Pei went on cheerfully. “Suyin saw her go to your tent. And then she saw her come out again, *fast*. Captain Han laughed so hard he pulled something in his back.” He leaned closer, lowering his voice. “Is it true you said *my focus is solely on my commission*?”
+“The whole escort knows,” Pei went on cheerfully. “Suyin saw her find you by your tent. And then she saw you walk off and leave her standing there. Captain Han laughed so hard he pulled something in his back.” He leaned closer, lowering his voice. “Is it true you said *my focus is solely on my commission*?”
 
 “Hold still,” said Esdel.
 
