@@ -24,7 +24,7 @@ He paused, letting the words hang in the air like smoke.
 
 At that, the King’s gaze lifted — faint, questioning.
 
-Rowan inclined his head, as though reluctant to say more. “During the inspection, when the treasonous crates were discovered, several of Lord Hengzhi’s retainers turned violent. They accused Aldric of framing their lord and drew blades against the Crown’s envoy. Aldric was struck in the shoulder — bled badly — but he subdued the rebels and prevented greater loss of life.”
+Rowan inclined his head, as though reluctant to say more. “During the inspection, when the treasonous crates were discovered, several of Lord Hengzhi’s retainers turned violent. They accused Aldric of framing their lord and drew blades against the Crown’s envoy. Aldric was cut across the hand and struck in the leg — bled badly — but he subdued the rebels and prevented greater loss of life.”
 
 He sighed. “It was chaos, Your Majesty. The docks burned with accusation and fear. By the time order was restored, the people already believed what they saw.”
 
@@ -42,7 +42,7 @@ The King leaned back, his face half hidden in shadow. His fingers traced the car
 
 “Very well,” he said quietly. “For the safety of the realm.”
 
-He reached for the ink brush beside him and signed the order — arrest, tribunal, the seizure of every Lián ship in harbor. His hand trembled only once.
+He reached for the ink brush beside him and signed the order — the tribunal, the seizure of every Lián ship in harbor. His hand trembled only once.
 
 Rowan bowed deeply, his expression unreadable. “You have done what must be done, Your Majesty. History will remember your mercy.”
 

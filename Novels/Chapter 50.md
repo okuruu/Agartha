@@ -1,11 +1,11 @@
 # **Chapter 50**
 
-The question hung in the air like mist.  
-Formal, almost soft — yet heavy with the kind of weight that does not belong to words alone.
+The question still hung between them, cold as the night air.  
+Not soft — she had not meant it softly — yet heavy with the kind of weight that does not belong to words alone.
 
-“Who are you?”
+*Who are you?*
 
-Lián Xueyao’s voice carried neither suspicion nor gentleness, but something quieter — a pause between thoughts, a tremor of curiosity wrapped in composure. Her golden eyes caught the lantern light, and for an instant, they gleamed like molten dusk — poised, unreadable, and faintly sorrowful.
+Lián Xueyao did not repeat it. She did not need to. Beneath the frost of her voice there had been something else — a tremor of curiosity wrapped in composure. Her golden eyes caught the moonlight, and for an instant, they gleamed like molten dusk — poised, unreadable, and faintly sorrowful.
 
 Esdel froze.
 
@@ -15,9 +15,11 @@ But just as the first word reached his throat, the fragile moment broke.
 
 “My lady,” a voice interrupted softly.
 
-A maid had appeared at the edge of the lamplight, bowing with the precision of someone well-trained to vanish into the background. “Your private chamber is ready.”
+A maid had appeared at the edge of the torchlight from the camp, bowing with the precision of someone well-trained to vanish into the background. “Your private chamber is ready.”
 
-Xueyao’s gaze lingered on Esdel for a moment longer — not quite piercing, not quite distant — a faint glimmer of gold reflecting in the dim light. Then, without a word, she turned away. The hem of her robes brushed the ground like whispered silk as she left.
+Xueyao’s gaze lingered on Esdel for a moment longer — not quite piercing, not quite distant — a faint glimmer of gold reflecting in the dim light. Somewhere far off, the Dragon stirred again, restless in her mind, and her jaw tightened.
+
+“This is not finished,” she said. Then she turned away. The hem of her robes brushed the ground like whispered silk as she left.
 
 That single look was neither dismissal nor acknowledgment — it was something suspended in between.
 

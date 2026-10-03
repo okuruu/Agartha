@@ -44,11 +44,11 @@ The nobles’ gazes shifted, turning from mere curiosity to cold, hard suspicion
 
 Lady Anlan’s gift—the parcel wrapped in white silk—sat unnoticed on a nearby barrel, a fragile, vibrant symbol of innocence amid the cold machinery of deceit.
 
-By midday, the official guards arrived, the king’s personal security, who moved with practiced, unhurried efficiency to seize the evidence. Hengzhi did not resist. He simply watched the rebel banners being carried away, the twin Lián-Wei crests on his own mast fluttering in the damp sea breeze, as if the very wind mocked his family’s honor.
+By midday, the harbor guards arrived and moved with practiced, unhurried efficiency to seize the evidence. Hengzhi did not resist. He simply watched the rebel banners being carried away, the twin Lián-Wei crests on his own mast fluttering in the damp sea breeze, as if the very wind mocked his family’s honor.
 
 Aldric bowed, a final, perfect gesture, concealing the minute flicker of cold satisfaction in his eyes. He had played his part flawlessly. The wheel of political fortune had turned, and the Lián name—once considered pure as the snow of the northern peaks—now stood irrevocably tainted before the whole kingdom.
 
-But when Hengzhi was finally escorted away from his ship, his last glance toward the misty harbor was not one of utter despair. It was quiet understanding, a realization settling in his tired eyes that the destruction was complete, but the truth—like all buried things—would one day surface again.
+But when Hengzhi was finally escorted away from his ship, detained pending the Crown’s word, his last glance toward the misty harbor was not one of utter despair. It was quiet understanding, a realization settling in his tired eyes that the destruction was complete, but the truth—like all buried things—would one day surface again.
 
 The thickening sea mist swallowed his figure whole as he was led away. And by evening, the rumors of Lián treason spread like wildfire through the capital—whispered in taverns, shouted in courtyards, and chillingly discussed in noble halls.
 

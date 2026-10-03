@@ -2,7 +2,7 @@
 
 The stench inside the medical tent was suffocating. Sweat, blood, rotting flesh, and the sour tang of medicine that had failed to save too many. The moans of soldiers—half delirious, half begging—hung thick in the humid air.
 
-Esdel stood among the chaos, his hands trembling slightly as he tied a bandage around a soldier’s arm. The feverish man muttered nonsense, eyes glassy, sweat dripping from his temples. The basin of water beside Esdel was clouded with filth.
+Esdel stood among the chaos, his hands trembling slightly as he tied a bandage around a soldier’s arm. The feverish man muttered nonsense, eyes glassy, sweat dripping from his temples. The basin of water beside Esdel was clouded with filth. The smiling dead from the cave had been burned at noon; no one in the tent spoke of them.
 
 Across the tent, a sudden crash silenced everything.
 

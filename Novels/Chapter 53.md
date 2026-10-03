@@ -26,7 +26,7 @@ That stillness, unbothered by crowns or gold.
 
 The carriage hit a small bump, and the prince blinked, the sound of the countryside returning to him. The air outside was changing — the green giving way to stone roads, the gentle expanse of farmland yielding to watchtowers and banners.
 
-He turned his gaze outward once more. Farmers bowed as the royal insignia came into view; soldiers stood straighter at the roadside. The smell of rain lingered faintly, mixed with the scent of wheat and smoke.
+He turned his gaze outward once more. Farmers bowed as the royal insignia came into view; soldiers stood straighter at the roadside. Children ran along an irrigation ditch beside the road, laughing, chasing ripples in the morning sun. The smell of rain lingered faintly, mixed with the scent of wheat and smoke.
 
 There were times, Ardbert thought, when the weight of the crown felt lighter here, away from marble halls and whispered schemes. Here, where life grew simple and real. He could almost imagine a world where titles didn’t exist — where he could walk among them without the burden of name or expectation.
 

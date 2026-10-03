@@ -62,7 +62,7 @@ He clenched his jaw, every muscle trembling.
 
 But before he could move — a blinding flame scorched the air.
 
-From the heavens descended a **Dragon** — long and serpentine, its scales like liquid gold reflecting hellfire. Its roar made the ground quake as it dove, breathing an inferno upon the Titan’s back.
+The Imperial **Dragon** plunged back from the heavens — long and serpentine, its scales like liquid gold reflecting hellfire. Its roar made the ground quake as it dove, breathing an inferno upon the Titan’s back.
 
 The Titan wailed, staggering, molten flesh burning deeper. It swung its arm in fury, but the Dragon coiled away, dancing midair like a ribbon of fire.
 
@@ -176,7 +176,7 @@ She didn’t notice the young man at first — blood-smeared, dust-covered, one 
 
 He looked up when she passed.
 
-Brown eyes — weary, human, terribly human — met her golden ones. There was no divine spark, no glow, no slit pupils. Just a dull, exhausted look.
+Brown eyes — weary, human, terribly human — met her golden ones. For a heartbeat something red seemed to flicker there — then it was gone. Just a dull, exhausted look.
 
 For a brief moment, something unfamiliar stirred in her chest.
 

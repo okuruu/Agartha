@@ -201,7 +201,7 @@ The soldier was young, maybe twenty at most, with a calm yet tired look in his e
 
 Esdel mounted the horse behind him. “Appreciated.”
 
-They set off at once, hooves pounding the dirt road, the rising sun staining the sky red — an omen, if one believed in such things.
+They set off at once, hooves pounding the dirt road, the rising sun staining the sky red — an omen, if one believed in such things. They rode through the whole of the day; dusk was falling by the time they neared the safe-zone border.
 
 For a time, it was peaceful. The wind was brisk, carrying the scent of pine and burnt gunpowder from far away. The landscape rolled by — empty fields, trampled paths, and the faint echo of distant war drums.
 
