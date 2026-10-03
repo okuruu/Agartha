@@ -68,7 +68,7 @@ He did not go up to the attic.
 
 He sat down on the stairs, on the second step, in the dark, with his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
 
-Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother, home at last and asleep across the hall, would not wake, and so that the man on the stairs would not hear.
+Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother, home at last and asleep upstairs, would not wake, and so that the man on the stairs would not hear.
 
 He heard.
 

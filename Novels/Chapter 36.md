@@ -32,7 +32,7 @@ They sat.
 
 “Thank you,” she said, after a while.
 
-“Anyone would have—”
+“I only—”
 
 “No.” Not sharp. Only certain. “Not anyone.”
 

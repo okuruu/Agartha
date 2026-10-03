@@ -62,7 +62,7 @@ Hours passed until the faint sound of rushing water echoed through stone. They r
 
 Esdel nodded. “Be careful. Don’t go too deep.”
 
-One by one, they squeezed through the opening. The last soldier turned back, giving a thumbs-up before vanishing into the darkness.
+One by one, they squeezed through the opening. The last soldier struck a light, turned back, giving a thumbs-up before vanishing into the darkness.
 
 Then… silence.
 
@@ -112,7 +112,7 @@ The man laughed — low, amused. “So the dog bares its teeth.”
 
 He drew a curved blade, its edge glinting wet in the torchlight.
 
-Esdel shifted his stance, eyes narrowing.
+Esdel shifted his stance, drawing his knife, eyes narrowing.
 
 The cave fell silent, save for the drip of water and the crackle of flame.
 

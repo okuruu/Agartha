@@ -38,7 +38,7 @@ His fingers brushed the torch’s handle. He hesitated. The man’s words echoed
 
 “Why did you come here?”
 
-Esdel swallowed hard. “I didn’t come for war,” he said, his voice steady despite his fear. “I’m an apothecary. I save lives, not take them.”
+Esdel swallowed hard. “I didn’t come for war,” he said, his voice steady despite his fear. “I’m an apothecary. I came to save lives, not take them.”
 
 A quiet chuckle answered him — not mocking, but faintly bitter.  
 “An apothecary… here, knee-deep in blood. Do you even know what this war’s for?”
@@ -59,7 +59,7 @@ Then the man spoke again, his tone colder.
 Esdel’s grip tightened on the blade. He didn’t respond.  
 His mind turned inward, fast, calculating.
 
-He retraced the steps in his head—the sound of boots when the soldiers entered, the light of their torches, the timing of the first scream.  
+He retraced the steps in his head—the sound of boots when the soldiers entered, the glow of the light they struck once they were through the gap, and how quickly the silence had come after.  
 The ambush happened the moment they lit the cave.
 
 *He couldn’t see them before that.*

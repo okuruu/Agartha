@@ -28,7 +28,7 @@ She stopped.
 
 She did not need to finish. He had already heard it. He reached across the table, slowly, and took her hand, and she let him, and they sat like that with the tea going cold between them and the candle burning down.
 
-*I’ll stay,* he had said, an hour ago, in the garden.
+*I’ll stay,* he had said, not an hour ago, in the garden.
 
 He meant it. He had never meant anything so much.
 
@@ -108,7 +108,7 @@ The captain’s jaw moved. “A daughter.”
 
 The captain said nothing.
 
-“They didn’t come back,” said Esdel. “That house has given this war two people already. The girl is what’s left of them. And the old woman beside her has been waiting at that window ever since.” He did not look at either of them. He could not. “I have no family. No one in this Kingdom has ever had to bury anyone of mine. Let it cost me, this time. Not them.”
+“They didn’t come back,” said Esdel. “That house has given this war two people already. The girl is what’s left of them. And the old woman beside her has been waiting at that window ever since.” He did not look at either of them. He could not. “I have no family that I know of. No one in this Kingdom has ever had to bury anyone of mine. Let it cost me, this time. Not them.”
 
 He stopped. He did not say anything else. He had told the truth, all of it, and it lay in the torchlit square for everyone to hear — the thing Lyora had told him only an hour ago, across a kitchen table, that she had never said aloud to anyone.
 
@@ -226,7 +226,7 @@ He held her.
 
 That was all he could do. One hand flat between her shoulder blades. The other at the back of her head, her hair coming loose from its braid, soft and damp under his palm. He held her as tightly as he dared, and rocked her very slightly, without knowing he was doing it, the way you rock a child with a fever. He put his cheek against her hair. He breathed with her, slow, and slow, and slow, so that her body might remember how.
 
-He did not say *hush*. He did not say *it’s all right*. It was not all right. He would not lie to her. Not tonight.
+He did not say *hush*. He did not say *it’s all right*. It was not all right. He would not lie to her.
 
 The lamp burned beside them on the second step.
 

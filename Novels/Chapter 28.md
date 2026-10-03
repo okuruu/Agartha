@@ -56,7 +56,7 @@ He was beside her before she finished. He knelt in the mud. Her right ankle was 
 
 Her teeth were chattering. Her lips had gone a pale, frightening blue. He took off his coat — soaked through, nearly useless, but it was something — and put it around her shoulders, and she let him, which frightened him more than anything.
 
-Neither of them said anything about the fields, or the hedgerow, or the word *nothing*. There was no room for it. There was only the rain.
+Neither of them said anything about the week behind them — the fields, the silences, the suppers gone cold. There was no room for it. There was only the rain.
 
 He turned his back to her and knelt low.
 

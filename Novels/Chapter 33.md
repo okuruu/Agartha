@@ -28,7 +28,7 @@ Esdel turned to her, his expression pale. “He says he saw me… on the battlef
 
 Arwen’s brows furrowed. “The battlefield…? You mean, you were a soldier?”
 
-“I— I don’t know.” Esdel’s voice trembled slightly, as if the weight of the unknown was pressing against his chest. “I can’t remember anything before waking up here.”
+“I— I don’t know.” Esdel’s voice trembled slightly, as if the weight of the unknown was pressing against his chest. “I can’t remember anything before the desert.”
 
 The soldier coughed, gripping the blanket tight. “You saved us that day… even though everything was falling apart. You stood on that hill when everyone was retreating. I never forgot that face.”
 

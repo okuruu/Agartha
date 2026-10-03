@@ -22,7 +22,7 @@ He lifted his sword, chipped and old but steady.
 
 And the roar that followed was thunder.
 
-They charged — what was left of seventy weary souls, half-broken, half-starved, but still alive — into a hundred who had already begun to doubt. Steel struck. Spears met shields. The air filled with the heat of men who refused to die quietly.
+They charged — what was left of seventy weary souls, half-broken, half-starved, but still alive — into twice their number, who had already begun to doubt. Steel struck. Spears met shields. The air filled with the heat of men who refused to die quietly.
 
 When the sun sank completely, the field was no longer a place of war, but of ghosts.
 

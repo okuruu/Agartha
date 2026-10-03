@@ -1,16 +1,16 @@
 # **Chapter 39**
 
-The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy — a dozen of them on litters, and the Eastern Post’s medicine cart creaking along between them.
+The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy — a dozen of them on litters, and the medicine cart bound for the Eastern Post creaking along between them.
 
 The rest remained behind — scattered across the broken fronts of a war that demanded too much and gave too little in return.
 
 The captain’s words echoed still:
 
-“Too many moving at once draws eyes we can’t afford. Seventy men will move faster, quieter. We’ll deliver the supplies, tend the wounded, and return before the moon turns twice.”
+“Seventy’s what we have left. Maybe it’s a mercy — seventy move faster, quieter, and draw fewer eyes. We’ll deliver the supplies, tend the wounded, and return before the moon turns twice.”
 
 And so they marched.
 
-Days bled into one another — sky shifting from pale gray to burning gold to violet dusk, and back again. Soldiers spoke little. Their language was rhythm: the crunch of boots on dirt, the creak of leather, the faint rattle of armor. In their silence, there was a strange unity — the kind that only came from men who had survived together for too long to need words.
+The first days passed in rhythm — sky shifting from pale gray to burning gold to violet dusk, and back again. Soldiers spoke little. Their language was rhythm: the crunch of boots on dirt, the creak of leather, the faint rattle of armor. In their silence, there was a strange unity — the kind that only came from men who had survived together for too long to need words.
 
 When dusk fell, the captain’s hand lifted, and the formation slowed to a halt. Orders came short, practiced:
 
@@ -61,7 +61,7 @@ Esdel looked at him — saw the trembling hands, the hollow exhaustion, the stub
 
 The soldier smiled at that — small, tired, but grateful. “You sound sure.”
 
-“I am.”
+“I believe it.”
 
 And for a long while, they said nothing more. The wind sighed through the grass. The stars hung sharp and cold, scattered across the dark like distant lanterns.
 

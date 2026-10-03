@@ -83,7 +83,7 @@ Esdel took a slow step back, his chest tightening. The whispers around him grew 
 
 Their murmurs stung worse than accusation — because they were *true.*
 
-He swallowed hard, turning away. “He’s restrained now,” he said quietly, nodding toward the unconscious soldier lying by the entrance. “When he wakes… he’ll need to be watched. He’s grieving, not malicious.”
+He swallowed hard, turning away. “He’s down now,” he said quietly, nodding toward the unconscious soldier lying by the entrance. “When he wakes… he’ll need to be watched. He’s grieving, not malicious.”
 
 Reyn appeared at the doorway, dusty and disheveled, his brow furrowed as he glanced between the chaos and the quiet aftermath. “Grieving or not,” he muttered, “he almost killed her.” His tone wasn’t cruel — just weary. “We’ll make sure he doesn’t try it again.”
 
@@ -126,9 +126,9 @@ Arwen glanced across the table at Esdel. The lamplight reflected in her tired ey
 
 Esdel didn’t respond at first. His eyes were fixed on his food, though he hadn’t taken a single bite. His shoulders were slightly hunched — a man caught between guilt and confusion.
 
-“I just reacted,” he finally said. His voice was calm, but the calm didn’t sound natural — it was a stillness born of restraint. “Anyone would’ve done the same.”
+“I just reacted,” he finally said. His voice was calm, but the calm didn’t sound natural — it was a stillness born of restraint. “I didn’t decide anything. My body did.”
 
-But everyone knew that wasn’t true.
+No one at the table found that comforting.
 
 Lyora sat in silence, unable to meet his eyes. Her hands clenched together tightly in her lap, her throat still sore. The word she had said to him last night, by the lamp on the counter, lay somewhere on the table between them too, and neither of them reached for it. She remembered what the wounded soldier had said the night before — about recognizing him.
 
@@ -136,10 +136,8 @@ She remembered the way Esdel’s tone changed, the way his movements didn’t be
 
 Dinner ended without laughter, without the usual warmth. Even the crackle of the hearth seemed muted, wary of stirring the air between them.
 
-When Arwen and the others retired, Esdel quietly stood and stepped outside — the motion almost a retreat. He sat on the grass near the dim lantern, the cold air brushing against his skin.
+When Arwen had gone up, Esdel quietly stood and stepped outside — the motion almost a retreat. He sat on the stone bench in the garden, the cold air brushing against his skin.
 
 Above him, the stars stretched wide and indifferent — thousands of distant fires that neither judged nor comforted. He leaned forward, elbows on his knees, staring at his open hands. They still remembered the motion — the way the blow had landed, the sound it made. The ease of it.
 
 It was not the act of a healer.
-
-From the doorway, a faint creak broke the quiet. Lyora stood there, half-shadowed by the lantern light. She didn’t speak right away. The silence between them had weight — fragile, uncertain, and alive.
