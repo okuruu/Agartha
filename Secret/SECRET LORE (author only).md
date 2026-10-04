@@ -38,7 +38,7 @@
 
 ## 5. The Karunākṣa and the Kālākṣa
 - **Revised Oct 2026: the Karunākṣa is simply red, fox-slit-pupil eyes.** They let him take in and process far more information than a normal mind can. The cost is **brain overload**: headaches, nausea, lost words, confusion, and with extreme overuse, days of it. **Recoverable, painful, annoying.** No bleeding eyes, no ruptured veins.
-- **Open:** whether the eyes were implanted (earlier idea: he wasn't born with them, which would explain why the overload hits so hard) or are a trait of the Kālākṣa. Don't state either on the page.
+- **Confirmed: the eyes were implanted.** They come from the Kālākṣa clan, but Esdel wasn't born with them, so his brain was never built to handle the load. That's why the overload hits so hard. Never state this on the page.
 - **The Kālākṣa** are the clan that can use the Karunākṣa. It is a gift, but only a few could use it to the full.
 - **It is a battle eye, and not more than that.** At full power it predicts even a wrist's movement, giving a huge advantage even when outmatched. **Paired with battle IQ, unmatched.** It does **not** see life spans, souls, or the Earth's heart. (The "healer who sees how long a heart has left" is only a legend in the Kingdom, Ch68.)
 
