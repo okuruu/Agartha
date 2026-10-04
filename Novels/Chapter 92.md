@@ -24,7 +24,7 @@ He did not speak of it. He did not need to. The court had heard the story alread
 
 *The Count rode after her himself. With his own men. Through the storm.*
 
-*At the ford of the Greenwater, her people turned on him. Her apothecary — the nameless one, the one from the college hearing — some kind of demon, they say, his eyes bled — he cut the Count’s hand to the bone and threw him into the river. His own men had to pull him out. Half-drowned.*
+*At the ford of the Greenwater, her people turned on him. Her apothecary — the nameless one, the one from the college hearing — some kind of demon, they say, his eyes went red as a fox's in the dark — he cut the Count’s hand to the bone and threw him into the river. His own men had to pull him out. Half-drowned.*
 
 *And the boy. They say she has the boy still. No one knows where.*
 

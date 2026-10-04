@@ -38,7 +38,7 @@ Xueyao went very still in her saddle.
 
 Prince Ardbert looked up at her.
 
-He looked at all of them — the ten riders, wet and filthy and bloodied, on steaming horses, at the top of the Hundred Steps in the dawn. At Pei Lun’s split lip. At Esdel, and the faint red still staining the whites of his eyes. At the drawn sword across the General’s saddle. At the place beside her where a captain should have been riding, and was not.
+He looked at all of them — the ten riders, wet and filthy and bloodied, on steaming horses, at the top of the Hundred Steps in the dawn. At Pei Lun’s split lip. At Esdel, and the faint red still lingering in his eyes, the pupils not yet quite round, and the way he held his head, as if it were made of glass. At the drawn sword across the General’s saddle. At the place beside her where a captain should have been riding, and was not.
 
 His face did not change. But Esdel, who had learned in a year to read the space between people, saw his hands, at his sides. They were shaking, very slightly.
 

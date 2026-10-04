@@ -3,7 +3,7 @@
 He was still on his knees when the enemy line began to break. A few paces away, the headless body of the enemy captain lay where it had fallen, its blood darkening the soil. And beside it knelt Esdel.
 
 His blade lay across his thighs, dripping red.  
-Seven arrows jutted from his body, each one trembling slightly with the faint rhythm of his breath. His eyes, a quiet brown in any other light, now burned dimly with that cursed crimson glow — the Karunākṣa still pulsing faintly behind them.
+Seven arrows jutted from his body, each one trembling slightly with the faint rhythm of his breath. His eyes, a quiet brown in any other light, now burned dimly with that cursed crimson glow, the pupils pinched into thin vertical slits like a fox's — the Karunākṣa still pulsing faintly behind them.
 
 He didn’t speak. He didn’t even move.  
 He was a silhouette against the dying sun — battered, alone, and somehow still alive.
@@ -41,9 +41,9 @@ He could see everything — the curve of every ember as it fell, the minute trem
 And with that, he forced it shut.
 
 The world returned — violently.  
-Sound rushed back in, colors crashed together, the weight of reality slammed through his bones. He choked, coughing blood onto his palms. His body convulsed. The glow in his eyes flickered and died, leaving veins of red tearing through the whites.
+Sound rushed back in, colors crashed together, the weight of reality slammed through his bones. He choked, retching onto the dirt. His body convulsed. The glow in his eyes flickered and died, and the slits in them opened back into ordinary round pupils.
 
-The pain came like fire — searing, molten, merciless — splitting through his head until the world blurred. He pressed his hand to his face, trembling, breathing through clenched teeth until it dulled.
+The pain came like fire — searing, molten, merciless — splitting through his head until the world blurred. His skull felt overfilled, a vessel that had taken in a flood. He pressed his hand to his face, trembling, breathing through clenched teeth until it dulled.
 
 When he finally lifted his gaze, the firelight caught something in his expression — not strength, not peace — but a quiet horror.
 
@@ -64,7 +64,7 @@ The soldier who had spoken of his pregnant wife earlier — a man with kind eyes
 
 Esdel tried to smile, but it faltered.
 
-The soldier’s gaze fell to the dried blood streaking Esdel’s face, the faint crimson web in his eyes. For a moment, he looked as if he might speak, then thought better of it. Instead, he placed a steadying hand on Esdel’s shoulder.
+The soldier’s gaze fell to the dried blood streaking Esdel’s face, to the strange, unfocused look in his eyes. For a moment, he looked as if he might speak, then thought better of it. Instead, he placed a steadying hand on Esdel’s shoulder.
 
 “You scared us,” he said with a tired chuckle. “Caught out past the ring like that — gods, I thought we’d lost you.”
 
@@ -96,7 +96,7 @@ He didn’t even know if he wanted to.
 When the soldier’s footsteps faded, Esdel was alone again.  
 The night pressed close — damp, silent, smelling of iron and ash.
 
-He touched his face. The blood was already drying. The faint red lines beneath his skin were fading like ghosts returning to sleep. He looked at his reflection in the flickering emberlight — eyes still faintly glimmering, not with rage, nor divine power, but something softer.
+He touched his face. The blood was already drying. The pounding in his skull was fading, slowly, like a storm moving off over the hills. He looked at his reflection in the flickering emberlight — eyes still faintly glimmering, not with rage, nor divine power, but something softer.
 
 Something *human.*
 

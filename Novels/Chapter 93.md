@@ -36,7 +36,7 @@ He put his hand, slowly, to his left side. Beneath his shirt, beneath a thick pa
 
 He did not say anything.
 
-“Your eyes bled for a day,” she said. “Then they stopped. The fever broke this morning.” She was quiet a moment. “Gao says you took the Count’s hand. And put him in the river. And his men went in after him, all of them, and forgot us, and that’s how we reached the trees.”
+“Your eyes stayed red for a day,” she said. “The pupils like a fox's, even asleep. Then they went back. For two days you didn't know my name, or Pei's. You called the fire *the bright one*.” She was quiet a moment. “The fever broke this morning.” She was quiet a moment. “Gao says you took the Count’s hand. And put him in the river. And his men went in after him, all of them, and forgot us, and that’s how we reached the trees.”
 
 “Is he dead?”
 
@@ -50,9 +50,9 @@ The fire crackled.
 
 He thought about it for a long time.
 
-He thought about the red world, and the frozen river, and the thirty small lights. About the Count’s heart, beating slow and unafraid, right there in front of him. About how easy it would have been.
+He thought about the red world, and the frozen river, and the thirty held breaths. About the Count’s calm breathing, slow and unafraid, right there in front of him. About how easy it would have been.
 
-“I don’t know,” he said at last. And then, because she deserved more than that: “Everyone in that river was afraid. Your men. His men. Me.” He looked at the smoke-hole in the roof. “He wasn’t. His heart was as calm as a man at supper, and his face was — glad. Lit up. I’ve seen that look before. On the dying, in the tents.” He paused. “And on your mother. When she turned to him.”
+“I don’t know,” he said at last. And then, because she deserved more than that: “Everyone in that river was afraid. Your men. His men. Me.” He looked at the smoke-hole in the roof. “He wasn’t. He was breathing as calm as a man at supper, and his face was — glad. Lit up. I’ve seen that look before. On the dying, in the tents.” He paused. “And on your mother. When she turned to him.”
 
 She was very still.
 

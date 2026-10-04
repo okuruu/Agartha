@@ -67,17 +67,17 @@ Esdel stood inside that stillness, his breath catching.
 
 He could *see.*
 
-Every heartbeat in the air, every trembling motion beneath armor, every intention waiting to become movement. The forest was no longer sound — it was pulse.
+Every held breath, every trembling motion beneath armor, every intention waiting to become movement. His eyes drank in all of it at once, more than any mind should have been able to hold, and somehow his head kept pace. The forest was no longer sound — it was motion, laid bare.
 
-And amid those frozen fragments, one rhythm burned brighter than the rest.  
-A heartbeat stronger, steadier. Commanding.
+And amid those frozen fragments, one figure stood apart from the rest.  
+A stance stronger, steadier. Commanding.
 
 The enemy captain.
 
 Something inside him screamed *go.*  
 And his body obeyed.
 
-He moved through the still world like a blade through water. Each step tore fire through his veins. The Karunākṣa pulsed — every motion sharper, every breath drawn from a place deeper than instinct. The light from his eyes painted the ground in red veins.
+He moved through the still world like a blade through water. Each step tore fire through his veins. The Karunākṣa pulsed — every motion sharper, every breath drawn from a place deeper than instinct. The light from his eyes, red, the pupils pinched to narrow slits like a fox's in the dark, cut two thin glints across the ground.
 
 He reached the captain.  
 His sword rose — or perhaps it was already falling.
@@ -100,7 +100,7 @@ A familiar voice.
 
 But it was faint, distant — as though it belonged to another life.
 
-The Karunākṣa’s power left him hollow. His muscles trembled. His heartbeat slowed.  
+The Karunākṣa left him hollow. His muscles trembled, and behind his eyes his skull throbbed as though it had been stretched too wide and was only now snapping back.  
 All around him, confusion spread — the enemy reeling at their fallen leader, the formation breaking. For a moment, the battle tilted in their favor.
 
 But Esdel didn’t see it.

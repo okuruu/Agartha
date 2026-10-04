@@ -2,7 +2,7 @@
 
 The Kingdom told stories about her. It could not help it.
 
-By the end of the summer, they were in every tavern and every market and every barracks from the western harbor to the ridges of the north. The Maiden of the Heavenly Dragon, who had gone mad at the front and come home and stolen her brother out of his cradle, and cut down the brave Count on the banks of the Greenwater, and vanished into the night with a handful of her father’s old soldiers and an apothecary with bleeding eyes.
+By the end of the summer, they were in every tavern and every market and every barracks from the western harbor to the ridges of the north. The Maiden of the Heavenly Dragon, who had gone mad at the front and come home and stolen her brother out of his cradle, and cut down the brave Count on the banks of the Greenwater, and vanished into the night with a handful of her father’s old soldiers and an apothecary with a beast's red eyes.
 
 No one knew where she had gone. That was what made the stories grow.
 

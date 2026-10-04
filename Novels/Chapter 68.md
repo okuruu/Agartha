@@ -46,7 +46,7 @@ He stopped the thought there.
 
 “And the eyes,” Xueyao said.
 
-“And the eyes.” He set the cup down. “I didn’t know what they were called until you told me. I only know that when I think I’m going to die, the world stops. And I can see—” He hesitated. “Everything. Every heartbeat. Every intention, before it moves. And afterward, it feels as though someone has pushed needles through my skull.”
+“And the eyes.” He set the cup down. “I didn’t know what they were called until you told me. I only know that when I think I’m going to die, the world stops. And I can see—” He hesitated. “Everything. Every breath. Every intention, before it moves. They go red, Xueyao, and the pupils pinch to a slit, like a fox's. I've seen them in a basin of water. And afterward, it feels as though someone has pushed needles through my skull, and I can't find my words for a day. Once, if I use it too long, for three.”
 
 She was quiet for a long time.
 
@@ -60,7 +60,7 @@ He shook his head.
 
 “Why terrible?”
 
-“Because of what it sees.” She finally looked at him. “The stories say the House of Kālākṣa could look at a living thing and see how long its heart had left. The span of it, the way you or I might see a candle and know how much wax remains. That they were healers, once, the finest in the world, and spent their mercy accordingly. The eye that knows where mercy is still of use.” Her mouth moved, not quite a smile. “Stories grow in the telling. Especially about the dead.”
+“Because of what it sees, and what it costs to see it.” She finally looked at him. “The stories say the House of Kālākṣa could look at a living thing and see how long its heart had left. The span of it, the way you or I might see a candle and know how much wax remains. That they were healers, once, the finest in the world, and spent their mercy accordingly. The eye that knows where mercy is still of use.” Her mouth moved, not quite a smile. “Stories grow in the telling. Especially about the dead.”
 
 She turned the cup again.
 

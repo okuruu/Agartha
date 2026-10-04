@@ -116,7 +116,7 @@ And then, deliberately — slowly — he blinked.
 
 The rain slowed. He could see it falling — each separate drop, hanging, turning in the torchlight like a bead of glass. The men’s faces slowed. The torches slowed, their flames stretching and curling like silk in water. The man standing over Pei Lun slowed, his sword coming up — up — with the terrible drowsy leisure of a thing in a dream.
 
-Esdel could see his heart. He could see all their hearts — six small dark red lights beating in the dark, each at its own pace. He could see which ones were afraid. He could see which one was about to strike, and where.
+Esdel could see their breath. He could see all six of them at once — the held breaths, the pulses jumping in six throats, each man at his own pace. He could see which ones were afraid. He could see which one was about to strike, and where.
 
 He could see the rest, too. The weak knee. The wrist that would open too wide. The half-breath each man took before he committed, so that every blow was already written in the body before it came.
 
@@ -130,7 +130,7 @@ Four. Five.
 
 The sixth was running. Esdel let him run.
 
-He blinked again, and the world crashed back in around him — noise, and rain, and the bell, and the torches roaring, and pain. Pain like needles driven through both eyes at once. He staggered. Something warm was running down his face that was not rain. He put up his hand and it came away red.
+He blinked again, and the world crashed back in around him — noise, and rain, and the bell, and the torches roaring, and pain. Pain like needles driven through both eyes at once, and behind them a swollen, ringing pressure, as if his skull had been packed with too much of the world. He staggered. The rain on his face was suddenly too loud, too bright, too much. He put up his hand and it shook.
 
 “*Apothecary.*”
 
@@ -140,11 +140,11 @@ The General was beside him. On foot. She had her hand on his arm. Behind her, Pe
 
 “I know.”
 
-“They’re bleeding.”
+“They’re still red.” The pupils, in the torchlight, were still pinched to narrow slits, like a fox's caught in a lantern.
 
-“I know.” He blinked, hard. The world swam, and steadied. “It passes. It always passes.” He looked at the men on the cobbles. They were breathing. All of them. He counted, to be sure. “They’ll live.”
+“I know.” He blinked, hard. The world swam, and steadied. The slits loosened, slowly, back to something round and brown. “It passes. It always passes. I'll be stupid for a day, and I'll have a head like a split melon. But it passes.” He looked at the men on the cobbles. They were breathing. All of them. He counted, to be sure. “They’ll live.”
 
-Xueyao looked at him. Blood on his face, and the rain washing it down. The red slowly fading from the whites of his eyes.
+Xueyao looked at him. Rain on his face, and his hand pressed hard against his temple. The red slowly fading from his eyes.
 
 She did not say anything. She did not need to. He saw it in her face — the same thing he had seen by the fire in the ruined inn, when she had told him about the Kālākṣa, and the dragon that hated them. A careful, wary, old look, like someone stepping around ground she knew was mined.
 

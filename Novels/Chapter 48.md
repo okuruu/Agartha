@@ -6,7 +6,7 @@ He could feel its eyes — heavy, hateful — staring right into him. His pulse 
 
 *Weeks earlier, in the quiet of the medical post.*
 
-Moonlight filtered through the open tent flap. Everyone was asleep. Only Esdel sat awake, his eyes bloodshot and trembling.
+Moonlight filtered through the open tent flap. Everyone was asleep. Only Esdel sat awake, his eyes red-rimmed and tired.
 
 On the table before him, there was a small scalpel, a bowl of water, and the faint shimmer of determination in his reflection.
 
@@ -34,11 +34,12 @@ He could **feel** it: the invisible harmony between nerve and light, blood and t
 He didn’t understand the science, not fully. Only later would he realize the secret lay in **neural conductivity**, **hormonal balance**, and **ocular bio-resonance** — making his brain and his eyes pulse at the same rhythm.
 
 But it came with a cost.  
-Blood vessels ruptured.  
-His sclera turned crimson.  
-The pain was unbearable.
+His eyes took in more than a mind was built to carry, and his brain labored to keep up.  
+Headaches that split his skull. Nausea. Words that slipped away mid-sentence.  
+Once, for an entire morning, he could not remember the name of a single herb on the shelf.  
+The pain was unbearable, and the stupor afterward was worse, slow and humiliating.
 
-Yet he endured.
+Yet he endured. It passed each time. It always passed.
 
 And after weeks of quiet trial and agony, he found stability. Not the full version — not the godlike speed that nearly killed him before — but a **Veil Form**. A state of heightened clarity where time slowed to a crawl, where reaction existed before thought.
 
@@ -50,7 +51,7 @@ Sound dulled. The rhythm of the battlefield stretched thin, and his senses sharp
 
 The **Karunākṣa** awoke — its lesser form, the one his body could bear.
 
-Esdel’s eyes glimmered faintly red as he took in the field before him. The Titan’s movements, massive yet readable; the trajectories of debris; the arcs of flaming arrows.
+Esdel’s eyes glimmered faintly red, the pupils narrowed to slits like a fox's, as he took in the field before him. The Titan’s movements, massive yet readable; the trajectories of debris; the arcs of flaming arrows.
 
 His breath steadied.
 

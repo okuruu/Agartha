@@ -10,7 +10,7 @@ The air carried the faint tang of iron, smoke, and damp earth — the scent of a
 
 Esdel walked near the rear, the weight of his satchel pressing faintly against his side. Every few steps, his vision wavered — a brief, sharp darkness that cut through the edges of his sight. Beneath his skin, something pulsed too deep, too alive.
 
-The ache behind his eyes whispered of the Karunākṣa, of the price that still lingered in his veins.
+The ache behind his eyes whispered of the Karunākṣa, of the price his overworked mind was still paying.
 
 He said nothing. He simply walked.
 

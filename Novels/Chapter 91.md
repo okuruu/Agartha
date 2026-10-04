@@ -100,19 +100,19 @@ Not slowed. *Stopped.* The river hung in the air in great frozen sheets of brown
 
 And he could see.
 
-He could see every heart in the ford. Every one. Thirty small red lights beating in the frozen world, each at its own pace. He could see which were afraid. He could see which were angry. He could see which would strike next, and where, and how hard — the lance on the left already committed, the sword on the right a half-breath behind it, the oldest soldier’s guard sagging on the side where his shoulder had been broken years ago. Every movement in the ford was written in the bodies before it came.
+He could see every man in the ford. Every one. Thirty bodies in the frozen world, thirty held breaths and jumping pulses, each at its own pace. He could see which were afraid. He could see which were angry. He could see which would strike next, and where, and how hard — the lance on the left already committed, the sword on the right a half-breath behind it, the oldest soldier’s guard sagging on the side where his shoulder had been broken years ago. Every movement in the ford was written in the bodies before it came.
 
 He looked for the Count.
 
 The Count was in the second rank. On his grey horse, in his white coat, with his sword raised and his face — Esdel saw it, frozen in the red light — alight with a kind of fierce, radiant joy. The look of the men in the field tents in their last hour. The fever-brightness.
 
-And his heart—
+And his breathing—
 
 Esdel stopped.
 
-Of the thirty lights in the ford, twenty-nine were afraid. Even Gao’s. Even his own.
+Of the thirty men in the ford, twenty-nine were afraid. Even Gao. Even himself.
 
-The Count’s was not. It beat slow and even and unhurried, the heart of a man sitting down to supper — while his face, above it, blazed with that terrible joy. The two did not belong together. Esdel had seen that look before, on the pallets in the field tents. He had seen it, softer, on a woman in a pavilion, turning toward a man like a flower toward the light.
+The Count was not. His chest rose slow and even and unhurried, the breath of a man sitting down to supper, and the pulse in his throat beat as calm as a sleeper's — while his face, above it, blazed with that terrible joy. The two did not belong together. Esdel had seen that look before, on the pallets in the field tents. He had seen it, softer, on a woman in a pavilion, turning toward a man like a flower toward the light.
 
 Esdel stared at him.
 
@@ -122,7 +122,7 @@ Then the frozen world began, very slowly, to move again, and he did not have tim
 
 He moved through it the way he had moved through the rain in the Street of Lanterns — but faster, much faster, a blade through water. The spear was still in him. He did not feel it. He felt only the cold blue fire, and the red light, and the slow terrible drift of the world around him.
 
-He did not go for the Count’s heart. He could have. It was there in front of him, beating slow and even and unafraid, and his short sword was in his hand, and there was no one in the frozen ford who could have stopped him. Afterward, lying in the dark, he would think about that for a long time. About how easy it would have been. About Han Ruo, and Gao, and Lady Anlan with her folded hands, and a dead lord with no grave.
+He did not go for the Count’s heart. He could have. It was there in front of him, breathing slow and even and unafraid, and his short sword was in his hand, and there was no one in the frozen ford who could have stopped him. Afterward, lying in the dark, he would think about that for a long time. About how easy it would have been. About Han Ruo, and Gao, and Lady Anlan with her folded hands, and a dead lord with no grave.
 
 He did not go for the heart.
 
@@ -134,7 +134,7 @@ Then Esdel blinked, and the world came crashing back.
 
 ---
 
-Noise. Water. Pain — pain like nothing he had ever known, pain in his side and his skull and his eyes, pain so vast it did not feel like pain at all but like weather. He was on his knees on the causeway in the rushing water. He did not know how he had got there. The spear was gone; he had pulled it out, or it had fallen. There was blood in his mouth. There was blood running out of his eyes.
+Noise. Water. Pain — pain like nothing he had ever known, pain in his side and his skull and his eyes, pain so vast it did not feel like pain at all but like weather. He had held the red world open too long, and his head was a bell struck too hard, ringing and ringing with everything it had taken in. He was on his knees on the causeway in the rushing water. He did not know how he had got there. The spear was gone; he had pulled it out, or it had fallen. There was blood in his mouth. He could not think of the word for the river.
 
 And in front of him, in the ford, the grey horse was down.
 
@@ -150,7 +150,7 @@ Gao. Bleeding from the scalp, his lean grey face streaked red, his horse gone. H
 
 Esdel tried to say something. It came out as blood.
 
-Behind them, the oldest soldier — the one who had held the left edge alone — was still sitting his horse in the middle of the ford. He was not fighting anymore. There was no one left to fight; they were all in the river with their lord. He was only sitting there, very straight, with his sword across his knees, watching them go. His heart, Esdel had seen, in the red light, had been very short. Shorter than Gao’s.
+Behind them, the oldest soldier — the one who had held the left edge alone — was still sitting his horse in the middle of the ford. He was not fighting anymore. There was no one left to fight; they were all in the river with their lord. He was only sitting there, very straight, with his sword across his knees, watching them go. His breath, Esdel had seen, in the red light, had been very short. Shorter than Gao’s.
 
 He raised his sword to them, once, in salute.
 
