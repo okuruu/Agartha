@@ -1,98 +1,93 @@
 # **Chapter 19**
 
-When morning came, sunlight spilled gently through the cracks in the attic window. Dust motes drifted in the golden air like fragments of dreams refusing to fade. Esdel blinked awake to the faint clatter below — the familiar rhythm of glass jars being moved, the scrape of wood, the soft murmur of voices.
+The night was very still.
 
-Everything sounded normal. But something — something in the air — had changed.
+Even the cicadas sang low. The moon came and went behind thin cloud, and each time it came, it laid a little silver across the garden — the rosemary, the bean poles, the stone bench by the wall where Esdel sat with his hands on his knees.
 
-He lingered on the edge of his bed for a long moment, staring at the worn floorboards. The peace that usually filled this hour felt brittle, as though a single breath might shatter it.
+He was looking at them. His hands.
 
-When he finally descended the creaking steps, Lyora was already at the worktable, sleeves rolled up, sunlight threading through her hair. She turned at the sound of his footsteps, offering a small, practiced smile.
+They had been steady all day. Steady on the soldier’s ribs. Steady on the twist that had put a grown man on the ground before anyone else in the tent had understood what was happening. Steady afterward, cleaning the scrape on his own knuckles with calendula, the way Arwen had taught him.
 
-“Good morning,” she said softly.
+They were not steady now.
 
-Her voice was gentle, even — so steady it almost hurt.
+He could still hear it. The small, dry, terrible sound of her breath stopping. He could still see her hands clawing at a stranger’s wrists, and her eyes finding his across the tent — not asking for help. Only finding him. As if, whatever was about to happen, she wanted his face to be the last thing.
 
-“Morning,” Esdel replied, studying her face. It was the same calm expression he had seen a hundred times before, but the warmth was gone. The familiar spark in her green eyes had dimmed to something quieter, colder — the way light fades when it passes through glass.
+He had moved before he knew he was moving. And the part of him that had moved had not been afraid at all.
 
-They worked together in silence.
+That was what he could not stop looking at.
 
-Arwen moved about cheerfully, humming to herself as she organized the tinctures, occasionally asking Esdel to fetch a bundle or grind an herb. Lyora spoke little, her focus unbroken even when their hands brushed while reaching for the same jar. She didn’t flinch. She didn’t smile. She simply continued, as though the touch had never happened.
+---
 
-Esdel wanted to say something — to break the silence that pressed like a weight against his chest — but the words refused to come. Everything he thought to say sounded wrong, too shallow for the ache between them.
+The kitchen door opened behind him.
 
-At one point, Lyora asked quietly, “Could you hand me the camphor, please?”
+He knew her step. He did not turn round.
 
-He passed it to her. Their fingers almost touched again, but she withdrew too quickly, avoiding his gaze.
+“You’re still awake,” she said.
 
-“Thank you,” she said.
+“So are you.”
 
-“You’re welcome.”
+She came across the grass in her shawl and sat down on the bench beside him — not close. A hand’s width. There were red marks on her throat, going dark at the edges now. She had not covered them. He did not let himself look at them for long.
 
-And that was all.
+They sat.
 
-So he did the one thing he knew how to do. He worked.
+“Thank you,” she said, after a while.
 
-He ground the dried yarrow until it went to a green dust finer than flour, and sifted it twice, because Arwen liked it sifted twice. He scrubbed the stained mortars at the pump. He wrote new labels in his small, strange hand and pasted them square on the jars, and when Arwen squinted at one and said it looked as if a spider had walked through the ink, he told her the spider was at least very accurate. She snorted into her tea.
+“I only—”
 
-Lyora didn’t laugh. But her knife paused on the board for a heartbeat before it went on.
+“No.” Not sharp. Only certain. “Not anyone.”
 
-At midday he took the cedar box to the far end of the worktable and went on copying where he had left off. Arwen’s firm, upright hand, faded now. *For a cough that sits low. For a child’s colic. For burns, not blistered.* He copied each one slowly, and beside each he wrote the question he would ask her later.
+He said nothing.
 
-*Why honey, not sugar? Why steep, and not boil?*
+“When his hands were on me,” she said, “I thought, *so this is how.* That was all. Not frightened, even. Just — *oh. So this is how.*” She looked at the bean poles. “And then you were there.”
 
-The words on the page stayed still. They didn’t turn away from him.
+“I didn’t think,” he said. “My body just moved.” He turned his hand over in the moonlight. “It didn’t feel like saving you. It felt like remembering something.”
 
-The rest of the day moved like a dream — soft, distant, almost unreal. The villagers came and went; Esdel fixed shelves, fetched water, even helped an old man find a tonic for his joints. Esdel told him the tonic tasted like a boot, so it must be working, and measured it with the little horn spoon, level, never heaped. The old man laughed, and paid in eggs.
+She was quiet.
 
-In the afternoon, a small boy from the mill lane came in by himself, with a copper clutched in his fist and a cough he was very proud of.
+“Sometimes,” he said, “when I close my eyes, I see a woman. In white. Standing a long way off, looking at the horizon. I can’t see her face.” He had never said it aloud. It came out of him very plainly, like a stone set down on a table. “But I know she’s waiting. For me.”
 
-His mother had sent him, he said. For something for the cough. And she said — he screwed up his face to get it right — that the cake was her mother’s receipt, and did the apothecary copy it yet.
+Lyora did not move. The moon went behind a cloud and came out again.
 
-“Tell her I’d like to, if she’ll lend it to me,” said Esdel gravely, and filled the little bottle of thyme syrup, and showed the boy how to hold it upright all the way home, like a soldier carrying a flag. “In warm water. Never on an empty stomach. Can you remember that?”
+“Do you want to find her?” she said.
 
-The boy said it back to him twice, and coughed, magnificently, and went.
+“I don’t know.” He pressed the heel of his hand against his chest, where it had ached all summer, for no reason anyone could find. “Part of me does. And part of me thinks if I remember her, I’ll lose something I can’t ever get back.”
 
-Arwen said nothing. But when she passed behind him, she patted his shoulder twice, the way she settled a jar back on its shelf.
+She sat very still beside him.
 
-But through it all, his thoughts circled endlessly around her — the way her voice didn’t tremble, the way her smile never reached her eyes.
+Then she said, quite quietly, “Then don’t remember her.”
 
-By the time dusk fell, the shop had gone quiet again. Arwen sat on by the hearth with her mending, and there was only the faint glow of lamplight flickering against the bottles. Lyora tidied the last of the herbs, her motions careful, deliberate.
+He turned his head.
 
-“You should rest,” Esdel said, his voice low.
+She was not crying. Her face was pale and composed in the moonlight, and her hands were folded in her lap. Only her voice gave her away — very low, and very careful, the voice of someone walking across ice.
 
-She nodded, not looking at him. “You too.”
+“I’m not a good person tonight,” she said. “I know that. I know I should say *go and find her, find out who you are, you deserve to know.* Grandmother would say that. I’ve been saying it to myself all evening, in the kitchen, with the kettle.” She looked down at her hands. “I can’t. I’m sorry. I don’t want you to find her. I want you to stay here, where it’s warm, and grind feverfew badly, and never remember anything at all.”
 
-He hesitated, searching her face for something — a trace of the warmth that once lingered between them, the softness that had filled the space in his chest where memory failed. But there was nothing. Only calm, polite distance.
+A tear went down her face. Only one. She did not wipe it. He did not think she had noticed it.
 
-So he said nothing more.
+“Every time you look at the horizon,” she said, “I watch you go a little further away. Even when you’re sitting right next to me. Do you know what that’s like? To watch someone leave while they’re still in the room?”
 
-Upstairs, he lit the stub of a candle and drew out the slate he kept beneath the bed. He worked a column of sums, and then a puzzle of his own making — how many jars of a given size would fill a given shelf, if the shelf leaned a little, as that one did. The chalk ticked softly in the quiet. The numbers came out even. They always did, if he was patient with them.
+He knew. He was doing it to her now.
 
-It helped. A little.
+“I’m frightened,” he said. It surprised him, how easily it came. “Not of her. Of — something coming. Something that’s going to take you from me. I don’t know what. But I can feel it, the way you feel rain before it comes.”
 
-He wiped the slate clean with his sleeve.
+She reached out, then. Only her fingertips, on the back of his hand. The lightest touch.
 
-Later that evening, Esdel sat by the upstairs window again. Outside, lanterns bloomed one by one across the village — tiny suns glowing against the falling night. The laughter of children faded into the distance, replaced by the rhythmic chirr of crickets.
+“Nothing is taking me anywhere,” she said. “I’m the one who stays. That’s what I do.” A breath. “So stay with me.”
 
-From below, he could hear Arwen’s laughter, soft and unhurried, mingled with Lyora’s faint humming. It should have comforted him — it always had before. But tonight, the sound only reminded him of how fragile everything truly was.
+He looked at her hand on his.
 
-How peace could fracture without a sound.
+“I asked you last night,” she said. “You didn’t answer.”
 
-He looked down at his hands, flexing his fingers slowly. They were strong, steady — warm to the touch. Human. At least, they appeared that way.
+“Stay,” she said again, so softly he almost did not hear it. “Please. Don’t chase ghosts.”
 
-Yet beneath his skin, something pulsed too evenly, too precise. There was no tremor of fatigue, no flaw in the rhythm. Just the perfect, mechanical steadiness of a heartbeat that felt borrowed.
+And he looked at the red marks on her throat, and the single tear drying on her cheek, and the small brave line of her mouth, and he heard himself say it.
 
-He pressed a hand to his chest, frowning. It beat in time — but it didn’t *ache* the way a human’s should. It didn’t hurt enough.
+“I’m answering now. I’ll stay.”
 
-And still… when he thought of Lyora — of her quiet smile that morning, the hollow behind her calm — that strange emptiness in him deepened. It spread like ink in water, whispering something he didn’t want to hear.
+She let out a breath. “Promise?”
 
-That he wasn’t one of them.  
-That maybe he never had been.
+“I promise.”
 
-He shut his eyes, the image of her tears from the night before searing back to life — the way her shoulders had trembled in her grandmother’s arms, the way her voice had broken without sound.
+She turned her hand over, then, and laced her fingers through his, and they sat like that on the stone bench in the garden while the moon came and went. Neither of them said anything else. There was nothing else to say. He had promised, and she had believed him, and for a little while — an hour, perhaps less — the whole wide dark world beyond the garden wall went quiet, and let them have it.
 
-He didn’t understand why it haunted him so much. Why *her pain* made the illusion of his own humanity flicker and falter.
-
-All he knew was that something inside him — something ancient, hidden, and wrong — stirred whenever she hurt.
-
-And that terrified him more than anything else.
+He would remember that, afterward. That it was less than an hour.

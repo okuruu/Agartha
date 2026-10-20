@@ -1,89 +1,75 @@
 # **Chapter 22**
 
-The next evening, the sun bled into hues of amber and rose as the village stirred to life for the second night of the Festival of Wishing Threads. Tonight, the townsfolk gathered to write their hopes upon ribbons of color and tie them to the great tree in the square. They said that if two wishes tangled in the wind that night, their fates would cross before the next harvest.
+The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy — a dozen of them on litters, and the medicine cart bound for the Eastern Post creaking along between them.
 
-Esdel followed quietly behind Arwen and her granddaughter, the soft swish of Lyora’s dark brown hair brushing the air before him. At his hip hung the small satchel Arwen had pressed on him at the door — salve, clean linen, the last of the ginger packets. “A festival,” she’d said, “is only a sickroom with music.” Around them, the streets bloomed with laughter and light. Lanterns floated above like drifting stars, and the scent of roasted grain and honeyed sweets wrapped the air in warmth.
+The rest remained behind, scattered across the broken fronts of a war that demanded too much and gave too little in return.
 
-When they reached the square, Arwen spotted an old friend. The two women quickly fell into a flurry of fond chatter, their voices rippling like gentle water. The old apothecary turned to them with a smile that held a quiet knowing.
+“Seventy’s what we have left,” the captain had said. “Maybe it’s a mercy. Seventy move faster, quieter, and draw fewer eyes. We’ll deliver the supplies, tend the wounded, and return before the moon turns twice.”
 
-“Go on ahead, you two,” she said, waving them off. “I’ll be just fine here.”
+And so they marched.
 
-Esdel hesitated, but Lyora’s soft glance tugged him forward. They walked side by side into the pulse of the crowd, their steps uncertain, their silence carrying the weight of unspoken things.
+Soldiers spoke little. Their language was rhythm: the crunch of boots on dirt, the creak of leather, the faint rattle of armor. Esdel walked among them with the quartermaster’s sword at his hip. “An apothecary who can’t defend his cart is just a cart,” the man had said, pressing it on him that first morning.
 
-They passed a stall selling glowing flowers—petal lanterns shimmering like captured moonlight. Esdel’s gaze lingered.
+At dusk the captain’s hand lifted, and they made camp. Esdel hauled timber and tied ropes until his palms burned. One soldier clapped his shoulder.
 
-“Those lights…” he began, his voice low, thoughtful. “They use heat and air to rise. A small pocket of warm current—nothing magical, just physics.”
+“Not bad for a village boy.”
 
-Lyora tilted her head, her green eyes gleaming with amusement. “You’re saying that’s not magic?” 
+Esdel smiled — faintly, honestly. “I learn fast.”
 
-He chuckled softly. “No. Just air density and temperature differences.”
+That night the fire bloomed, and the men roasted fish on sticks and traded stories that began like jokes and ended like laments. Esdel sat a little apart, cleaning the sword. The silver necklace beneath his tunic caught the flames and pulsed with warmth, as if it remembered whose hands had fastened it.
 
-“Physics?” she repeated, grinning. “You always say such strange things.”
+He could still hear her voice, worn to nothing. *Come back to me.* And under it, the other one, from the stairs, in the dark. *You promised.*
 
-“It’s not strange. It’s logical,” he countered, pretending offense. Her laughter broke gently against him—light, unguarded, disarming.
+There was a third thing, too, and it was the worst of the three: what she had not said. At the gate she had opened her mouth, and he had watched her close it again. He knew its shape. *Please don’t leave.* She had not asked it, because she knew he would have had to refuse her.
 
-“Logic, then,” she teased. “Explain why you always look so serious when you work.”
+“Can’t sleep?”
 
-“Because I’m thinking,” he said, though a smile betrayed him.
+An older soldier sat across the fire — rough beard, kind eyes, a face carved by years that had stolen too much.
 
-Her laughter filled the evening air, brushing against something long dormant in him. For the first time in a long while, he felt… at ease. Her teasing no longer struck at his uncertainty—it mended it, thread by thread, like warmth stitching through an old wound.
+“Not yet. You?”
 
-Then, a familiar voice rose above the crowd.  
-“Ah! There you two are!”
+“Sleep doesn’t come easy on the road. Not when your heart’s still somewhere else.” He smiled, the kind of smile that hurt to hold. “Left my wife just before the frost. She’s expecting soon. She scolded me for forgetting my gloves. All that crying, and that’s what she remembers.”
 
-Eldric strode toward them, sleeves rolled high, his smile sunlit and easy. His presence carried the smell of the fields—soil and grain, strength and freedom.
+“Sounds like she loves you.”
 
-“Enjoying the festival?” he asked.
+“She does.” His voice cracked, too soft to hide. “Sometimes I wonder if she’s still watching the door. She said she would.”
 
-“Very much,” Esdel replied, forcing a small, polite smile.
+Esdel did not answer at once. He knew what it was to be the one the door was watched for.
 
-“Good! Come on, I’ll show you around,” Eldric said, as a group of laughing villagers waved from across the plaza.
+“You’ll go home,” he said at last. “To her. To your child.”
 
-He turned to Lyora, his grin wide. “They’ve been waiting. Let’s go!”
+“You sound sure.”
 
-Before she could answer, Eldric caught her hand and led her toward them. She glanced back, her lips parting.
+“I believe it.”
 
-“Is it… all right if I go?”
+The man nodded and was quiet. When the others had drifted to their blankets, Esdel turned the necklace between his fingers, tracing the small flower with his thumb. It was still warm. Somewhere beneath these stars, far past the reach of the road, was a small lamp on a second stair, and someone who lit it.
 
-Esdel’s throat tightened. Still, he managed a faint smile. “Go on. They’re waiting for you.”
+The thought steadied him. It hurt, too. He had learned already that the two were the same thing.
 
-She lingered, searching his expression for something—permission, perhaps, or reassurance—but found only restraint. His smile faltered, softer now.
+He lay down with the scent of ash and pine around him, and dreamed of Edenridge. Of hands that had trembled when they touched his.
 
-“Have fun,” he murmured.
+Of two promises. The one he had broken in a square full of torches, less than an hour after he made it. And the one he had made instead, on his knees at the foot of the stairs — and meant with everything in him.
 
-She nodded gently and turned away, her hand still caught in Eldric’s. Halfway there, she tried, with quiet grace, to slip free. Eldric’s hold only tightened, unaware of the small unease that flickered through her eyes.
+---
 
-Esdel stood where she’d left him, the laughter of the festival swelling and fading like a tide he could not reach. The ribbons above fluttered in the breeze, whispering the wishes of others—while his own heart felt wordless, trapped somewhere between memory and longing.
+The days in Edenridge had grown quieter without him.
 
-A tug at his sleeve.
+The apothecary’s house, once filled with his careful footsteps and quiet laughter, felt larger now. Every clink of a jar echoed.
 
-A little girl stood there, no higher than his belt, holding up one finger as though it were something precious and broken. The tip was red and shining where she’d touched a petal lantern.
+Lyora sat by the window, grinding herbs in a small mortar. The scent of mint and mugwort filled the air. She was working, but her mind followed the road he had taken, past the hills she could no longer see.
 
-Esdel knelt. “Ah,” he said gravely. “The lantern wanted to hold your hand too.”
+Sometimes she stepped outside at dusk, when the sun bled gold over the fields. She told herself it was only to check the herb beds, but her eyes always drifted to the gate.
 
-Her lip, which had been trembling, stopped.
+Arwen never said it aloud. She only brushed Lyora’s shoulder when passing, and left tea by her bedside.
 
-He cooled the finger in the rain barrel beside the nearest stall first, then dabbed on the calendula salve, thin, and blew on it. “There. Now it smells like a flower. Don’t let any bees find out.”
+Lyora did not cry. Not once, in all those weeks. Arwen watched for it, and it did not come. It was as if she had used up everything in one night on the stairs, and there was nothing left.
 
-She giggled, and ran off into the crowd with her finger held high.
+But each night, when she set the lamp on the second step, her hand rested against her chest — where the necklace had once been — and she whispered into the dark:
 
-“Hey!”
+“You promised.”
 
-A voice called from behind. Reyn approached, a cup of fruit wine in each hand, his grin easy and dust-smudged as always.
+And then, after a while, more gently:
 
-“There you are. Thought my favorite thinker vanished into the crowd.”
+“Be safe.”
 
-Esdel took the offered cup, his chest lightening, if only slightly.
-
-“Couldn’t resist the noise?” he asked.
-
-Reyn chuckled. “Couldn’t resist the fireworks.”
-
-They found a quiet rise overlooking the square. When the first flare of light bloomed across the sky, both fell silent. The night unfolded in bursts of red, gold, and violet—reflections dancing in their cups and in Esdel’s eyes. They spoke of simple things then—of pressure, heat, the wonder of small mechanisms, and the foolish dream of launching bamboo rockets someday.
-
-Esdel laughed—a sound that felt foreign, free. But when the fireworks faded and the cheers drifted away, the quiet returned. From below, Lyora’s laughter rose faintly among her friends, her voice a distant melody carried by the wind.
-
-He looked toward the sky, where the ribbons swayed and tangled above the great tree. Somewhere down there, beneath that same sky, she looked upward too.
-
-And though they stood apart—separated by crowd and circumstance—  
-both wished, in their hearts, for the same impossible thing.
+Even though she didn’t know if the wind could carry that far.

@@ -1,110 +1,83 @@
 # **Chapter 41**
 
-The chaos of war rolled like thunder through the forest.  
-The air was thick with iron — the sting of blood, the stink of smoke, and the heat of breath from men who had already forgotten what it meant to fear. Steel screamed against steel. The ground trembled beneath their feet.
+The storm came up out of the west on the evening of the new moon, as though someone had ordered it.
 
-Esdel moved through it like someone half-dreaming.  
-He wasn’t supposed to be here. He was supposed to tend the wounded, not join them. He had not chosen to be outside the ring — the circle had simply closed without him.  
-But now that he was, something heavier than reason held him there — that ache in his chest, that soundless command that said: *Fight.*
+By the time the evening soup went up from the kitchens it was coming down so hard that the maids on the galleries had to lean into it, and the lanterns hissed on their hooks, and no one — not the steward, not the Count’s guards at the gate — thought twice about going to bed early.
 
-It wasn’t courage. It wasn’t duty. It was compulsion — the same kind that grips the heart before the mind can protest.  
-So he obeyed.
+---
 
-The next man came in too slow — a soldier in dark armor, blade raised a heartbeat late. Esdel’s sword met him mid-motion, slipping through the gap between ribs. The man gasped once, then crumpled.  
-Esdel stood over him, his breath unsteady, the world spinning around the sound of his own heartbeat. His body *remembered* this — how to strike, how to step back, how to breathe.  
-But his mind? Blank.
+Esdel did not eat. None of them did.
 
-Then came the next.  
-And the next.
+He sat in his narrow room at the end of the east wing with his pack at his feet and his satchel over his shoulder, and listened to the house go quiet. The soup going up. The bowls coming down, empty. A laugh that trailed off into a yawn. A chair scraping back. Then nothing, only the rain, and the shutter on the south gallery knocking, and knocking.
 
-War, he realized, never pauses for miracles.
+Han Ruo was waiting in the corridor with his helmet under his arm. Behind him stood the soldiers of House Lián in the dark, their armor wrapped in black cloth so it would not ring, and Pei Lun at the back, very pale, with a bow that was too big for him. No one spoke. They went down the gallery in single file.
 
-Soon, eyes turned toward him — not one pair, but dozens.  
-The glint of steel shifted, and he felt their focus settle on him like a weight.  
-He stepped back, his legs trembling from exhaustion, the air slicing past his face with each movement.
+The house was asleep. It was the strangest thing Esdel had ever seen, stranger than the Titan. A maid curled on a bench with her apron over her face. Two of the Count’s guards slumped against the courtyard wall, one with his head on the other’s shoulder. The steward upright in his chair with a ledger on his knees and his spectacles askew, snoring softly.
 
-Somewhere behind him, a voice shouted — the gruff soldier from nights ago, the one who had spoken of his wife and unborn child. Esdel heard his name in the wind — or perhaps only thought he did.
+Esdel looked at every one of them as they passed. Counting their breaths without meaning to. *Slow. Even. Deep.* With each sleeping face his heart stopped, and waited, and started again only when he saw the chest rise.
 
-“The apothecary—! He’s out there!”
+*The kitchen girl who brings the bread. She’s twelve.*
 
-The man’s cry cut through the noise. He ran toward the line, panic on his face.  
-The captain looked up briefly — jaw tightening. His hand rose, not to point, but to signal.
+He did not see her. He would never know if she had woken with a headache and no memory of going to bed, or not at all. He carried that down the gallery, and out of the house, and a long way after.
 
-“Hold formation! Protect the supplies!”
+---
 
-His command was clear, his eyes unreadable.  
-He couldn’t risk it.  
-Not for one man.
+The General was waiting outside the nursery door in her riding clothes, with the Count’s guard asleep at her feet. Changli stood behind her with a bundle of clothes.
 
-And so, Esdel fought alone.
+Esdel knelt and put two fingers to the guard’s throat, and counted, and felt the pulse slow and steady. He stood.
 
-He parried a spear, ducked under a blade. His movements were desperate but precise — the rhythm of someone remembering the music of survival.  
-Three soldiers fell before him, their bodies hitting the earth like broken drums.
+“Go,” he said.
 
-Then came the arrows.
+The nursery was small and warm and smelled of milk and linen. A night-light burned low on the chest. In the cot beneath the window Yueming slept on his back with his arms flung over his head, the way very small children sleep, as though surrendering completely to something much larger than themselves.
 
-Seven of them — dark streaks slicing through air and sound.  
-He turned, too slow.
+Xueyao stood over him a long moment. Then she lifted him out. She did it better than the first time. Her arms knew him now. He stirred, and complained, and settled against her neck with a long damp sigh.
 
-Each found its mark.
+Behind her in the doorway no one moved. Pei Lun had turned his face to the wall.
 
-Shoulder. Thigh. Side. Back — twice. Hip.  
-The last pierced his arm, driving through flesh and fabric, pinning his sleeve to his skin.
+She put her cheek against her brother’s hair and closed her eyes.
 
-The force spun him. He fell hard, the mud cool against his face. The world blurred around the edges — shouts distant, shapes dissolving. He tried to lift his sword. His hand shook. Blood dripped down his wrist, black in the shifting light.
+“Yueming. I’m sorry. I promised I’d keep you safe. This is the only way I know.” Barely a sound beneath the rain. “You won’t remember me. That’s good. You’ll never hear the word *Lián* except in stories. You’ll never hear a dragon in your head.” Her voice did not break. It only stopped, the way a road stops at the edge of a cliff.
 
-Then, beneath the noise, he heard it — the pounding of his own pulse.  
-Louder.  
-Sharper.  
-Until the world itself began to bend around it.
+“Be kind,” she whispered. “Be stupid, and happy, and kind. Marry someone you love. Grow old. That’s everything.”
 
-And then the pain turned white-hot. His vision split open. The color bled away until only crimson remained.
+Changli did not take him at once. Her beautiful face was perfectly composed. Only her eyes were not.
 
-Time fractured.
+“Seventeen years,” she said, very low. “You were six, and you bit the girl who pushed me into the koi pond. You were fourteen and the dragon spoke to you, and you made me swear never to tell anyone you cried. I never told anyone.” Her mouth shook. “I would have followed you into the sea.”
 
-The world froze in place — soldiers mid-swing, arrows hanging like shards of glass in the air. The smoke curled in still spirals.  
-Esdel stood inside that stillness, his breath catching.
+“I know,” said Xueyao. “That’s why I can’t let you.”
 
-He could *see.*
+Changli dropped the bundle and put her arms around both of them, hard, the way you hold on to something in a flood. Xueyao stood stiff. Then, slowly, with her free arm, she held on back. Han Ruo was looking at the ceiling. His eyes were wet.
 
-Every held breath, every trembling motion beneath armor, every intention waiting to become movement. His eyes drank in all of it at once, more than any mind should have been able to hold, and somehow his head kept pace. The forest was no longer sound — it was motion, laid bare.
+“Raise him far from this city,” said Lián Xueyao, in the voice she used to give orders on the field. “Let him live free of our name.”
 
-And amid those frozen fragments, one figure stood apart from the rest.  
-A stance stronger, steadier. Commanding.
+“I will,” said Changli. “I promise.”
 
-The enemy captain.
+---
 
-Something inside him screamed *go.*  
-And his body obeyed.
+The river gate was a small iron door in the garden wall, and beyond it a stone stair, and a landing, and the river running high and brown with the storm. A farmer’s barge waited there, low and ugly, a lantern swinging from a pole. Esdel stayed at the top of the stair, in the shelter of the wall.
 
-He moved through the still world like a blade through water. Each step tore fire through his veins. The Karunākṣa pulsed — every motion sharper, every breath drawn from a place deeper than instinct. The light from his eyes, red, the pupils pinched to narrow slits like a fox's in the dark, cut two thin glints across the ground.
+He could not hear what was said. He saw Xueyao lean in under the canvas and put her hand, once, on her brother’s wrapped head. He saw Changli say something, and Xueyao shake her head. Then the rope was thrown off, and the river took the barge the way a hand takes a leaf.
 
-He reached the captain.  
-His sword rose — or perhaps it was already falling.
+He had thought there would be time. That the lantern would grow small slowly, the way people watch a ship leave a harbor. It was not like that. In the space of three breaths it was a single yellow point swinging on the black water. Around the first bend. Between the moored boats. Gone.
 
-The sound of the strike never came.
+She did not come back up the stair.
 
-Only silence.
+He went down. He stopped on the step above her, in the rain, and did not say anything. There were times when nothing was the only thing worth saying.
 
-Then —  
-the world caught up.
+After a long time she spoke.
 
-Blood burst outward, sudden and bright. The man collapsed.  
-Time rushed back in. The noise returned in a roar — steel, shouting, terror.
+“She said she’d name him after my father. I told her not to. Someone might hear it, someday.” Her voice was low and flat. “She never does what I tell her.” A pause. “I’ll never see him again. Or her. That was the whole point. If I don’t know, no one can make me tell.”
 
-Esdel dropped to his knees, gasping. His vision dimmed; the glow in his eyes guttered low, but did not go out. What remained was ruin — smoke curling through air heavy with death.
+“Yes,” said Esdel.
 
-He could hear someone shouting behind him.  
-His name, perhaps.  
-A familiar voice.
+She turned her head and looked at him, the rain running off his hair.
 
-But it was faint, distant — as though it belonged to another life.
+“You know what that’s like.”
 
-The Karunākṣa left him hollow. His muscles trembled, and behind his eyes his skull throbbed as though it had been stretched too wide and was only now snapping back.  
-All around him, confusion spread — the enemy reeling at their fallen leader, the formation breaking. For a moment, the battle tilted in their favor.
+It was not a question. He thought of a lamp on a stair. A girl in a doorway at dawn with her apron damp with dew. A necklace put into his hand. He thought of the letters he had burned, and the scrap of paper tucked behind the silver flower at his throat with one word on it, which he would never send.
 
-But Esdel didn’t see it.
+“Yes,” he said.
 
-He knelt in the dirt, staring at the horizon —  
-where the sky was cracked with fire and ash, and something inside him whispered of a promise  
-he could no longer remember.
+She put her hand briefly on his arm — the first time she had ever touched him — and went past him up the stair. He stayed a moment longer, looking at the empty place on the water, praying without meaning to, to nothing in particular. Just to the dark.
+
+And far across the gardens, in a bedchamber where the lamp was out, a man who had not eaten from the main kitchen opened his clear grey eyes, and lay very still, already dressed, and listened to the silence of his house.

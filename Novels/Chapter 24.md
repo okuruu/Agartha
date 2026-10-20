@@ -1,123 +1,91 @@
 # **Chapter 24**
 
-That night, after the Festival of Wishing Threads had ended, the apothecary was quiet. Too quiet.
+The dawn came pale and thin, hesitant to touch the ground after a night soaked in death.
 
-The laughter, the ribbons, the flicker of lanterns—all had dissolved into stillness. The sleep that had claimed him was not rest but surrender. His body was heavy, his thoughts a slow tide of color and sound—Lyora’s laugh, Reyn’s words, the fluttering of two ribbons twisting, breaking apart.
+“Move out. We don’t linger here.”
 
-Then the dark took him.
+Captain Erven’s voice was quiet but firm. No one argued. Esdel walked near the rear, his vision wavering now and then in a brief, sharp darkness. The ache behind his eyes whispered of the Karunākṣa, and of the price his overworked mind was still paying. He said nothing. He simply walked.
+
+By afternoon the forest thinned into open land, and the warfront. Tents stretched across the horizon, canvas sagging beneath the dew. Somewhere a man cried out; somewhere else laughter broke briefly and was swallowed by the wind.
+
+Esdel followed the sound of groans to the largest medical tent. The air changed at once — thick with herbs, rot, and something like despair.
+
+An elderly man with graying hair and a surgeon’s hands knelt beside a soldier whose arm was darkened near the shoulder. “Clean that wound properly! You think this is a tavern floor? Gods above, wash the blood off before you touch anything!”
+
+“Excuse me,” Esdel said. “I’m an apothecary. I can help treat—”
+
+The man turned with the ferocity of someone who had forgotten sleep. His eyes flicked over Esdel’s face — too young, too calm, too clean.
+
+“From where? Some quiet village with chickens and soup? This isn’t your little hut, boy. Fetch water if you want to help.”
+
+Esdel bowed slightly. “Yes, sir.”
+
+And so he did. He fetched water until his arms ached, boiled it, scrubbed cloths until his fingers wrinkled, and crushed herbs until his hands blistered. When the man’s back was turned, he checked pulses, adjusted doses, and whispered reassurance to the ones who trembled beneath their bandages.
+
+The old man’s name was Halden. When he collapsed mid-procedure from exhaustion, Esdel simply stepped in. He finished the sutures in silence, cleaned every instrument, and started the next patient without pause.
+
+By the second week the tent no longer reeked of decay. Less fever hung in the air. The dying slowed.
+
+One morning Halden found him outside, sleeves rolled high, scrubbing instruments with ash and vinegar until the metal shone.
+
+“Boy. You’re wasting good hours of sleep.”
+
+“We’re wasting more good men if we don’t clean properly.”
+
+Halden blinked. “You think keeping things tidy wins wars?”
+
+“It saves lives.”
+
+For a moment the old man just stared. Then he muttered, “...Damn it, maybe you’re right,” and walked off, the corner of his mouth twitching into the ghost of a smile.
+
+From that morning the tone in the tent changed. Halden still barked, but his eyes held respect now. When his hands trembled too much to hold a needle, Esdel took it from him without a word.
+
+“Morning, Apothecary!” “Esdel, that salve ready yet?” “Hey, don’t forget to eat!”
+
+At noon he stopped by a bed where a soldier pushed away his soup. “Not hungry.”
+
+“Then chew anyway,” Esdel said. “You’ve lost enough blood. Don’t lose your will, too.”
+
+The man glared, sighed, and ate.
+
+That night Halden leaned closer by the fire, his voice meant only for Esdel. “You’ve done well, boy. I was wrong about you. You’re not just some backwater apothecary. You’ve got healer’s hands.” He watched the flames. “And a soldier’s heart.”
+
+“I just do what I can.”
+
+“That’s what the best of us always say.”
 
 ---
 
-He stands beneath a sky that is neither night nor day.  
-The world breathes in shades of dying gold.
+Late that night, when the tent was quiet, he sat over a bowl of cooling water and rolled bandages he did not need to roll. He knew the movement. His hands knew the weight of a mortar in them, and the small sound of a cloth being folded in lamplight, and the way a certain head would bend over the work beside his.
 
-A vast field stretches endlessly ahead, the grass moving like waves in the wind. The air carries the taste of iron and salt—sharp, metallic, alive. The sun bleeds orange on the horizon, drowning behind the edge of the world.
+A soldier on the nearest cot shifted and murmured a woman’s name in his sleep. Esdel's hands went still.
 
-And there—  
-a figure.
+*She would have liked Halden,* he thought. *She would have been afraid of him for exactly one afternoon.*
 
-A young man stands before him, clad in silver armor veined with faint threads of blue light. His hair clings to his forehead with sweat, his breathing ragged. Cracks split his armor like scars, blood trickling through them, dark and glistening.
-
-Esdel doesn’t recognize him.  
-And yet, something deep within him twists with terrible familiarity.
-
-The man’s lips move—desperate, urgent. He’s shouting something, maybe a name, maybe a warning. But no sound reaches Esdel’s ears. The world has stolen their voices.
-
-Behind Esdel, a cliff yawns open to a raging sea. The waves crash against the rocks below, white spray leaping into the air. The sound should be deafening, but even that comes muted, as though the world itself holds its breath.
-
-From the forest beyond comes a roar—low, deep, and inhuman. A sound that makes the earth tremble.
-
-The man before him steps closer, eyes wide with fear and fury. His mouth forms words Esdel cannot hear—pleading, angry, then sorrowful. He grabs Esdel’s shoulder, shaking him as if to tear sense into him. Esdel wants to answer, to ask who he is, what this is—but his voice fails him. Nothing comes out.
-
-And then, the man’s expression breaks.
-
-All the fury drains away, replaced by something infinitely worse—resignation. He smiles, barely, a tremor of grief curving his lips. His hand tightens once more on Esdel’s shoulder.
-
-He mouths a single word.  
-At first, it’s silent. Then it echoes—softly at first, then thunderously, splitting the still air.
-
-**“Fight.”**
-
-And he shoves him backward.
-
-Esdel stumbles—then falls. The world tilts violently. Wind screams in his ears as the cliff edge vanishes beneath him. The roar from the forest crescendos, breaking the silence like glass.
-
-The world collapses into light.
+He pressed his palm flat to his chest, over the necklace, and breathed until it passed.
 
 ---
 
-He woke with a strangled gasp.
+In Edenridge the first frost had come and gone.
 
-The ceiling swam above him in blurred streaks of light and shadow. His lungs burned; his body trembled. Sweat clung cold to his skin, his hair plastered to his forehead.
+Lyora was in the back room, grinding root for the third batch of the day, when the mortar slowed beneath her hands. She did not know why. Nothing had happened. A kettle was ticking on the hearth, and the light through the shutters lay across the table the way it always did.
 
-“Esdel!”
+Her hands went still on the pestle.
 
-The voice came from somewhere close—gentle, shaken. His name sounded different in her voice, like something fragile being held too tightly.
+Her eyes closed. She kept stirring anyway, round and round, as if the stillness might be mistaken for work.
 
-The lantern flickered on the bedside table, casting gold across two silhouettes. Arwen stood by the door, a robe hastily thrown over her nightclothes, worry carved deep into her expression. Beside her, Lyora knelt at his bedside, a damp cloth clutched in trembling hands. It smelled faintly of lavender water, the kind they kept for fevers. Her green eyes were wide, wet with unshed tears.
+Then the first tear slid down, and she did not wipe it. It dripped into the bowl of green powder, and she stared at the small dark spot spreading there, and understood, with dull surprise, that it was the first in all these weeks.
 
-“You were screaming,” she whispered, voice breaking. “You weren’t breathing right—I tried to wake you—”
+“Lyora?”
 
-He dragged a shaking hand over his face, his breath still uneven. “I… saw something,” he murmured hoarsely. “Someone.”
+Arwen stood in the doorway with a basket of clean linen against her hip. The old woman’s eyes went to the face, then to the bowl, and said nothing.
 
-Arwen sat down carefully on the edge of the bed, the old wood creaking beneath her weight. Lyora stayed close, her hand resting on the blanket near his arm—close enough for warmth to pass between them, but not touching. Not yet.
+Lyora lifted the back of a floury wrist to her cheek. “It’s the steam.” Her voice was steady. “From the kettle.”
 
-“Tell us,” Arwen said softly. “If you can.”
+The kettle had been off the fire for an hour.
 
-Esdel hesitated. His voice trembled when he began to speak. He told them everything—the twilight field, the cliff, the silver armor, the roar, the word. His words faltered halfway through, and his eyes glazed as though he were watching it unfold again.
+Arwen set down the basket. She laid one trembling hand on her granddaughter’s hair, once, and took it away again.
 
-When he finished, the room was silent. The only sound was the faint hiss of the lantern.
+“Then I will leave the window open,” she said, “so the steam can go.”
 
-Arwen’s gaze softened, shadowed with thought. “Dreams that vivid often carry a shadow of memory,” she said gently. “Perhaps… something from before you came to us.”
-
-Lyora swallowed hard. Her voice wavered. “That must have been terrifying.” She hesitated, then added in a whisper, “You don’t have to face that alone.”
-
-Esdel turned toward her. Her eyes shone in the dim light—green and glimmering, like wet leaves after rain. Something in him cracked open at the sight. He had been holding himself together for so long—too long.
-
-“I didn’t think…” His words stumbled out, barely a whisper. “…that I’d cry.”
-
-But he did.
-
-It came quietly, without warning. A tremor first, then tears—silent, unrestrained, slipping down his cheeks as his shoulders shook. He pressed a hand against his eyes as if ashamed, but the tears kept coming.
-
-Lyora reached out, her fingers brushing his wrist, then sliding over his hand until she could hold it properly. Her touch was soft, hesitant.
-
-Arwen moved closer and gathered them both into her arms—steady, grounding, motherly. Lyora leaned in without thinking, wrapping her arms around them. Between their warmth, Esdel finally let go.
-
-No sound left him—only the faint tremor of breath, the broken rhythm of grief that had no name.
-
-They stayed that way for a long while. The lantern burned low, painting the room in dim, golden light. Outside, the village slept.
-
-Inside, the silence was no longer empty.
-
-When Esdel’s tears finally slowed, he found his voice again, rough and small. “It felt so real,” he murmured. “Like I’d lost something before I even knew what it was.”
-
-Lyora’s thumb brushed the back of his hand. “Maybe you didn’t lose it,” she whispered. “Maybe you just haven’t found it again.”
-
-He looked at her then—and it hurt, how much he felt in that single glance. Gratitude, sorrow, longing. The impossible wish that the distance between them could vanish if he just reached out.
-
-But he didn’t.
-
-He only nodded, his throat too tight for words.
-
-When the lantern finally flickered out, the room fell into gentle darkness. Arwen lingered a moment longer, then left quietly, closing the door behind her.
-
-Lyora stayed. She wrung the damp cloth once more and laid it across his forehead. “Try to rest,” she said softly.
-
-He closed his eyes, though sleep no longer felt kind.
-
-Her footsteps moved away—but just before she reached the door, she stopped. He heard the faint catch of her breath.
-
-And then, barely above a whisper—  
-“I was scared,” she said. “When I heard you scream. I thought… I’d lose you, too.”
-
-He didn’t answer. He couldn’t. The words struck somewhere deep and raw.
-
-When the door closed, the darkness swelled. The night felt heavier, thicker, alive with the ache of what was almost said.
-
-Esdel turned his head toward the window, where the last traces of moonlight spilled across the floor.
-
-He watched the faint shimmer on the wooden boards—the pale reflection of two threads tangled and undone.
-
-And in the silence that followed, he finally understood what it meant to remember pain—  
-and to long for something just out of reach.
+She went out. Lyora went on grinding, and the powder in the bowl grew a little darker, and she did not stop until the light had gone.

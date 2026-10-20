@@ -1,188 +1,77 @@
 # **Chapter 48**
 
-The Titan’s shadow loomed again.
+The peddler came down out of the hills in the autumn.
 
-He could feel its eyes — heavy, hateful — staring right into him. His pulse raced; time seemed to thicken. Somewhere in that fear, his body remembered.
+It was a long road, down through the burning stubble fields of the plains and along the river road into the forest country, as the leaves were turning. He stopped three days at his sister’s house, and did not tell her about the cord. Then he went on alone to a green valley between low hills, where on the slope above a river long thin lines of bamboo carried water uphill.
 
-*Weeks earlier, in the quiet of the medical post.*
+Two men in grey sat on the bench outside the inn. They watched him come up the lane with his mules. He nodded to them, pleasantly. They did not nod back.
 
-Moonlight filtered through the open tent flap. Everyone was asleep. Only Esdel sat awake, his eyes red-rimmed and tired.
+He found the apothecary at the top of the lane, an old house with ivy going red on its walls. The door was open. Inside, jars stood in long rows catching the sun like water in glass. A girl was grinding something in a mortar. She had dark hair tied back with a cloth, and when she looked up at the mules in the lane, the light from the doorway caught her eyes.
 
-On the table before him, there was a small scalpel, a bowl of water, and the faint shimmer of determination in his reflection.
+They were green. Bright as spring leaves.
 
-He took a deep breath, muttering, “What triggered it…?”
+He bought a small pot of salve for his mules’ hooves. Then, as he was turning to go, he stopped, and felt in his coat as though he had just remembered something.
 
-He remembered the forest.  
-The ambush.  
-The seven arrows that tore into him — and the pain so sharp it cracked his reality open. He remembered **seeing** everything then — the flight of each arrow, the shimmer of each breath, the rhythm of death itself.
+“Thought you might have a use for this,” he said. “For tying herbs.”
 
-He remembered the **eyes**.
+He put it into her hand.
 
-He didn’t know their name then — only the feeling.  
-A surge of clarity that devoured everything else.
+She looked down at a piece of plain brown cord, a little frayed, with three small knots in it a hand’s width apart. The peddler watched her face not change at all, for a long moment, puzzled and polite, the way anyone would look at a piece of string. And then he watched her thumb move, slowly, along the cord, to the first knot.
 
-So he tried again. For days. Weeks.
+And stop.
 
-He’d cut his palm, hold his breath, drive himself to exhaustion — but nothing worked. Until, one night, by chance, he blinked — slowly, intentionally — and for the first time, the world slowed.
+He saw the color leave her face, and come back, flooding up from her throat. He saw her other hand rise as though of its own accord and close over the first, so that the cord lay between her palms, held the way a person holds something small and alive.
 
-The tent’s candle flicker stretched into eternity. The soft creak of the fabric became a thunderous wave in his ears.
+She did not look up. She did not ask him anything.
 
-And his heart — his pulse — his neurons — began to align.
+*You tie them like you’re afraid the water will get away.*
 
-He could **feel** it: the invisible harmony between nerve and light, blood and thought.
-
-He didn’t understand the science, not fully. Only later would he realize the secret lay in **neural conductivity**, **hormonal balance**, and **ocular bio-resonance** — making his brain and his eyes pulse at the same rhythm.
-
-But it came with a cost.  
-His eyes took in more than a mind was built to carry, and his brain labored to keep up.  
-Headaches that split his skull. Nausea. Words that slipped away mid-sentence.  
-Once, for an entire morning, he could not remember the name of a single herb on the shelf.  
-The pain was unbearable, and the stupor afterward was worse, slow and humiliating.
-
-Yet he endured. It passed each time. It always passed.
-
-And after weeks of quiet trial and agony, he found stability. Not the full version — not the godlike speed that nearly killed him before — but a **Veil Form**. A state of heightened clarity where time slowed to a crawl, where reaction existed before thought.
+The peddler had been told to say nothing. So he touched his cap to her, very gently, and went out and down the lane past the two men in grey, who watched him go with bored eyes, a peddler with a string of mules and nothing in his hands at all. He did not look back. But he thought about her face for a long time. All that winter, by his sister’s fire.
 
 ---
 
-Now, beneath the Titan’s shadow, he blinked — slowly, intentionally.
+Lyora stood at the worktable a long time with the cord between her hands.
 
-Sound dulled. The rhythm of the battlefield stretched thin, and his senses sharpened beyond measure. The world became precise — painfully so. He could see every trembling leaf, every droplet of ash floating in the air.
+She had thought that if it ever came, a letter, a word, anything, she would cry. She did not, not then. She only stood in the quiet shop in the autumn light and held it.
 
-The **Karunākṣa** awoke — its lesser form, the one his body could bear.
+Three knots. She knew them. She had known them the moment her thumb touched the first, the way she had known them once on a drying rack against the south wall of the yard. His hands. His knot. The one that held the water.
 
-Esdel’s eyes glimmered faintly red, the pupils narrowed to slits like a fox's, as he took in the field before him. The Titan’s movements, massive yet readable; the trajectories of debris; the arcs of flaming arrows.
+He was alive. He had sat somewhere she would never know and tied these three knots with his own hands and given them to a stranger to carry a very long way. With no name on them. With nothing anyone watching could read.
 
-His breath steadied.
+Nothing anyone could read but her.
 
-He hesitated. His mind screamed two choices at once —  
-**Run**.  
-**Or stay and die.**
+She thought of the night in the summer, on the stairs, with the lamp burning down to a blue bead. The small cold voice. *He forgot everyone he ever loved once already.* He had not forgotten the knot. Out of everything he had lost, his name, his home, his whole life before the desert, his hands had kept this. He had carried it out of this valley and through a war and a river, and at the edge of the world he had sat down and tied it three times, for her.
 
-He clenched his jaw, every muscle trembling.
+The voice had been wrong. She had known it was wrong by morning. But she had not *known* it, not like this, not in her hands.
 
-But before he could move — a blinding flame scorched the air.
+She had sat on the stairs once, in the rain, and said everything but one word, and he had heard that one most clearly of all. And now he had sent her three knots on a piece of string, from somewhere she would never see, and said everything but one word.
 
-The Imperial **Dragon** plunged back from the heavens — long and serpentine, its scales like liquid gold reflecting hellfire. Its roar made the ground quake as it dove, breathing an inferno upon the Titan’s back.
+And she heard it.
 
-The Titan wailed, staggering, molten flesh burning deeper. It swung its arm in fury, but the Dragon coiled away, dancing midair like a ribbon of fire.
+In the kitchen doorway Arwen stood with one hand on the frame. Lyora did not know how long she had been there. The old woman did not ask what the peddler had brought. She only looked at her granddaughter holding a piece of cord like something alive, and her old green eyes filled, very slowly, and she did not wipe them.
 
-Esdel shielded his face from the heat. The air was so hot it seared his lungs.
-
-The Titan turned, enraged, its focus breaking away from Esdel.
-
-The soldiers nearby screamed and scattered as the two colossal beings collided — a storm of claw, flame, and shadow. Esdel could do nothing but watch.
-
-He turned to the soldier beside him — a young man barely past twenty, face pale with terror.
-
-“Stay low!” Esdel shouted. “If you can, run! I can’t protect you here!”
-
-The soldier hesitated. “But—!”
-
-“Go!”
-
-He didn’t wait to see if the man obeyed. His hand reached instinctively for the sword at his waist — a simple blade, already nicked from travel.
-
-The world roared again.
-
-The Dragon’s claws ripped into the Titan’s shoulder, tearing through layers of molten hide. The Titan screamed, slamming its fists into the ground. Soldiers were thrown like dolls.
-
-And yet — in the midst of that chaos — Esdel saw it.
-
-A faint figure, standing upon the Dragon’s head.  
-Steady.  
-Unmoved by the storm below.
-
-Esdel’s eyes widened. “...Someone’s there.”
-
-The Dragon bellowed again — twisting, coiling, burning — its fury unending. It tore through the Titan’s neck, leaving trails of fire like ribbons across the sky.
-
-But the Titan would not fall easily. It clawed, thrashed, howled — until the Dragon caught it by the jaw.
-
-And then — with horrifying grace — it **forced the Titan’s mouth open**.
-
-A low, resonant growl rolled from the Dragon’s throat. Fire gathered within its maw — brighter, hotter, divine.
-
-The Titan tried to resist, arms flailing, but the Dragon’s claws held firm.
-
-Esdel watched, breathless, as the Dragon **unleashed hell** straight down the Titan’s throat.
-
-The explosion split the night apart. Flame burst from the Titan’s eyes, ears, and wounds — its body convulsed, cracking, melting into slag.
-
-When it finally fell, the earth shook like thunder rolling beneath the world.
-
-And still, the Dragon roared — a cry of final judgment. It clawed open the Titan’s chest and burned it again, as though purging sin itself from its corpse.
-
-The sky rained ash and embers. The battlefield was silent — stunned.
-
-Esdel stood there, trembling, his hand tight on his sword. His breath came ragged, his vision blurred from the Veil’s strain.
-
-But in that silence, he lifted his gaze — and saw the figure upon the Dragon once more.
-
-A silhouette against the burning sky.
-
-And for a moment… the owner of the silhouette looked back at him.
-
-Then, as the fire dimmed and the smoke rose, both the Dragon and its rider vanished into the clouds — leaving only ruin, heat, and the echo of their fury.
+Neither of them said a word.
 
 ---
 
-The battlefield roared behind her — a storm of steel, screams, and smoke. The Imperial Dragon’s cry still echoed through the clouds, its fire still smoldering in the distance. And yet, when her boots touched the firm stone of the post’s landing terrace, silence fell.
+That night Lyora took the lamp from the shelf. She filled it, and trimmed the wick, and lit it, and turned it low, and carried it to the foot of the stairs and set it on the second step where it had burned every night for more than a year.
 
-“**The Maiden has returned!**”  
-“**Victory! The Dragon burns our foes!**”
+She took the cord from her pocket. She had not let go of it all day, through the work, and the supper, and the evening with Arwen by the window. She tied it around the base of the lamp, once around, and again, snug against the brass, so that the three small knots sat in a row at the front in the gold light where she would see them every night when she came down.
 
-The soldiers’ cheers rang like a hymn of salvation. Their eyes were bright — awe-struck, reverent, fearful.
+She tied it off with a knot of her own. Plain. Ordinary. The kind anyone might tie.
 
-The woman who dismounted from the dragon’s harness did not meet their eyes. Her long hair, black as wet ink, fluttered behind her as she walked. Her ceremonial battle attire — an ivory and gold Cheongsam–inspired garment with side slits that revealed the curve of her thighs with each deliberate step — carried the scent of ash and ozone. The silken sleeves shimmered faintly, reflecting the dying flames from the horizon.
+Then she sat down on the second step beside it, the way she had sat once in the rain with her head against his knee, and looked at the three knots for a long time. And the tears came, finally, with no sound, down her face and onto her hands, and she did not turn away from them, because the only one who might have seen was a lamp. She touched the first knot with her thumb. She touched it again.
 
-Her name was **Lián Xueyao**, titled by birth as *The Maiden of the Heavenly Dragon.*
+Outside, the autumn wind moved in the ivy. In the inn at the bottom of the lane, two men in grey were asleep in their beds, with nothing to report. And very far away, farther than any road she had ever walked or ever would, in the wind and the dark at the edge of the Kingdom, a man with one name was keeping a promise by staying away.
 
-The commander stepped out to greet her. “Your bravery turned the tide. You and the Imperial Dragon saved hundreds today. The King will hear of this triumph.”
+She did not know where he was. She did not know if he would ever come back.
 
-Xueyao’s face remained an elegant mask.
+But she knew he was alive. And she knew he remembered. And she knew, the way she had known on the stairs in the silence where the word should have been, that some things are not said because they do not need saying.
 
-“Your words honor the effort of many, Commander,” she replied softly — the perfect, formal answer. Her tone neither humble nor proud.
+The lamp stayed lit.
 
-She bowed briefly, then turned to leave.
+The cord stayed tied.
 
-As she walked away, the thunderous celebration behind her began to fade. The cheering, the clatter of armor, the frantic joy of victory—all dulled, dimmed, and then dissolved into nothing.
+And the old house at the edge of the desert, with its ivy and its jars and its silent third stair, held its small gold light out into the dark, as it had every night, and as it would every night after, toward the door, and the lane, and the river road, and the whole wide world beyond the forest.
 
-Her steps echoed in the corridor.  
-One by one, the sounds of life were stripped away.
-
-The silence felt heavier than the screams of war.
-
-A sky of swirling embers.  
-The Imperial Dragon’s eyes — ancient, pitiless gold.
-
-*“The pact is sealed, child of Heaven’s blood.”*  
-*“You command, and I obey. But I will feed.”*
-
-Its voice slithered through her mind in the ancient tongue, resonating with her veins like molten metal.
-
-*“Souls. Give me the souls of men. Or I shall take what I please.”*
-
-She had been fourteen when the dragon first spoke to her that way. And now, years later, she still heard that same hunger behind every battle cry.
-
-Everyone celebrated her gift — her *divine right* to command a dragon — never knowing the filth that lay behind it. Never knowing the screams that echoed in her dreams when the dragon fed on the prisoners brought to its altar.
-
-She remembered the smell of burnt flesh. The trembling faces of the condemned. The Dragon’s rumbling growl of satisfaction.
-
-Lián Xueyao clenched her teeth — a quiet, sharp sound — and the flashback shattered like glass.
-
-The night air brushed against her face. Her golden eyes — calm, unreadable — caught the glint of a dying star overhead as she walked down the dirt path that led away from the main camp.
-
-She didn’t notice the young man at first — blood-smeared, dust-covered, one sleeve torn. He was sitting on a crate by the roadside, his breathing shallow but steady. His horse — found again, somehow, wandering riderless at the field’s edge — grazed beside him, nervous and trembling.
-
-He looked up when she passed.
-
-Brown eyes — weary, human, terribly human — met her golden ones. For a heartbeat something red seemed to flicker there — then it was gone. Just a dull, exhausted look.
-
-For a brief moment, something unfamiliar stirred in her chest.
-
-The Maiden of the Heavenly Dragon, the cold heroine of the skies, and Esdel, the apothecary, met under the quiet starlight.
-
-Neither spoke.
-
-And yet, between them, the world seemed to still.
+Waiting.

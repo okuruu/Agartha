@@ -1,143 +1,99 @@
 # **Chapter 35**
 
-The day had been long, filled with feverish cries and the clatter of makeshift tools against wooden tables. The wounded soldiers brought from the outskirts still lay scattered across the field tents. The air was thick with the stench of blood and poultices, and yet Lyora continued to move, her hands trembling but steady, her voice calm though her eyes showed exhaustion. Her healing touch was never enough, but she gave all she could.
+There was an hour in the Lián house that belonged to no one but the Count.
 
-As the night began to fall, one tent went silent.  
-A soldier inside — one of the younger ones, barely in his twenties — had stopped breathing.  
-Lyora placed her trembling fingers at his neck, waiting for a pulse that would not come.
+Esdel learned it on the third day. In the late afternoon, when the light went long and amber across the gardens, Lady Wei Anlan would be brought to the small pavilion beside the pond, and the Count would come. He sat beside her and talked softly about the weather, the garden, some small thing at court. And while he talked, he took a small bottle of dark glass from inside his coat and let fall into her tea, one by one, a few drops of something the color of amber.
 
-She whispered a prayer, softly covering his face with the blanket.
+Esdel watched from the gallery with a basket of cuttings, as though he were only passing through. He watched her face change as she drank, slowly, the way a room changes when a curtain is drawn. The small crease between her brows smoothed out. Her eyes turned toward the Count and filled with a warm, sleepy gratitude, like a child who has been told a story. And every day, when she had finished, she took his hand in both of hers and held it against her cheek.
 
-But before she could move away, another soldier entered — his eyes bloodshot, his armor half undone, his breathing ragged.
+“He never lets anyone else pour it,” Changli said, in Esdel’s narrow room, with the door shut. Then she took a small dark bottle from her sleeve and set it on the sill. “Trays are very crowded in this house. You have perhaps four days before anyone looks.”
 
-“Where… where’s my brother?” he demanded. His voice cracked, broken by fear that had not yet turned into acceptance.
+He built a laboratory from a kitchen brazier, a jar of lye soap, and a jug of vinegar. Pei Lun, passing, asked if he was making soup in his *bedroom*, and that evening came back with two mice in a covered basket. “Is it for the Lady? Right. Didn’t ask. Didn’t see.”
 
-Lyora hesitated. “He’s… resting now. He’s gone to a place without pain.”
-
-The soldier’s hands began to tremble. “Gone?” he repeated. “No… no, that’s not true… You can fix people. I saw it — I saw you heal wounds that should’ve killed them!”
-
-She shook her head weakly. “I can only do so much. I’m not a god.”
-
-The soldier’s lip quivered, tears cutting streaks down his dirt-stained cheeks. “Then make me believe you didn’t just let him die!”  
-His voice cracked louder now — a scream that drew attention outside. “BRING HIM BACK!”
-
-Before she could react, the soldier lunged forward, his grief twisted into rage.  
-His hands wrapped around her neck — the warmth of a human grasp turned into a crushing force.  
-Her breath vanished instantly. Her eyes widened in panic as her hands clawed weakly at his wrists.
-
-“YOU WERE SUPPOSED TO SAVE HIM!” the soldier roared, his voice trembling between sobs. “YOU WERE SUPPOSED TO—!”
-
-Villagers nearby screamed.  
-“Stop him!”  
-“Somebody—!”
-
-A few older men — the ones on night guard duty — rushed in, grabbing the soldier’s arms, but his magic-fueled strength tossed them aside like twigs. Lyora’s face turned pale, tears forming at the corners of her eyes as she struggled for air.
-
-And then—
-
-A shadow moved faster than thought.
-
-A loud thud echoed through the tent.  
-Esdel’s fist struck the soldier’s ribs, followed by a sharp twist of motion — fluid, practiced, terrifyingly instinctual.
-
-The soldier collapsed, gasping, unconscious before he hit the ground.
-
-For a moment, there was only silence — the kind of silence that follows near-death.
-
-Esdel’s hand trembled slightly as he turned toward her. “Are you hurt?”
-
-Her voice came out broken, hoarse. “…I-I’m fine…”
-
-But she wasn’t fine. Her fingers shook uncontrollably. Her eyes darted around the room as if still expecting another hand to come for her throat.
-
-Esdel knelt before her, brushing her hair from her face. His expression wasn’t angry — it was pained. Pained because it was instinct.
-
-He didn’t even think.  
-He just *moved.*
-
-And that realization… terrified him.
+It felt like remembering, the work. *Divide the sample. Never use it all. Keep a portion untouched.* He did not know where the rules came from. Near dawn, with the notes written in his small strange hand, he opened the basket and the mice looked back at him, with no idea at all of what was coming. He was sorry. He sat and let himself be sorry, because it seemed to him that someone ought to be. His hands, meanwhile, had found a bit of thread and were knotting it: three knots, small and tight; undoing them; tying them again.
 
 ---
 
-The silence that followed was suffocating. The tent flaps swayed with the wind, carrying in faint murmurs from outside — the sound of frightened villagers, and the whisper of disbelief that clung to every breath.
+It took three days.
 
-Lyora sat on the ground, her back against the wooden table, one hand pressed lightly to her throat. Her skin bore faint red marks, ghostly reminders of the soldier’s desperation. Her breaths came shallow, uneven. She didn’t look at anyone — not even at Esdel.
+The dosed mouse slowed. It did not stagger. It simply stopped running, and its limbs hung loose and warm in his palm. *A paralytic.* The sour-green edge under the lye, the numbness on his tongue. He knew it. *Greyveil*, Halden had called it. *A kiss of it will quiet a man. A mouthful will quiet him forever.* And he had seen it once before that, in a shaded hollow above Edenridge, with a basket on his arm and a hand on his sleeve. *We don’t use that,* Lyora had said. *Not ever.* He had written in his notebook that night, beneath a small drawing of the leaf: *Ask Arwen why.*
 
-Esdel stood motionless. The torchlight flickered against his face, catching the faint shadow beneath his eyes. His knuckles were scraped, his fingers trembling faintly from the impact that had come so naturally, so reflexively that it frightened him more than the violence itself.
+He never had.
 
-He hadn’t *thought* — he had only *moved.*
+That was murder, done gently. It was not all of it. On the second day the dosed mouse followed his hand. So on the third he fed it its drop and gave the basket to Pei, and went out, and left the boy to sit with it through the long hours. Pei named it, and told it about his sisters, and let it sleep in his palm. At dusk, when both men held out their hands to the basket, the mouse went not to Esdel, who had fed it every drop, but to Pei.
 
-And somewhere deep inside, a voice he couldn’t name whispered: *You’ve done this before.*
+“That’s not right,” Pei said. “Is it?”
 
-Arwen entered the tent then, her movements quiet but commanding. Her presence brought a stillness no one dared disturb. Her gaze swept the room, pausing on her granddaughter. “Lyora,” she murmured, kneeling beside her. “Child, can you breathe?”
+“No,” said Esdel.
 
-Lyora gave a short nod, though her eyes were glassy. “I’m fine,” she managed, her voice breaking.
+He found, in the last night, a thin, clear gold oil that reacted to nothing, that caught the candle in a slow shifting glimmer as though something moved in it that was not the flame. Whatever it was, it had not grown in a valley. And he understood what the mice had told him. *The paralytic softens her. And the oil binds her to whoever is there while it works.* Not to the hand that poured it. To the face in front of her.
 
-“No, you’re not,” Arwen said softly, pressing her cool fingers to Lyora’s trembling hands. “But you will be.”
+He thought of Lady Anlan holding the Count’s hand against her cheek. He thought of the General beneath the peach tree, weeping without a sound.
 
-Esdel took a slow step back, his chest tightening. The whispers around him grew heavier.
+---
 
-“He moved like a soldier.”  
-“I thought he was just helping in the apothecary…”  
-“Did you see his eyes? He didn’t even hesitate.”
+She came to his room herself, with her arms folded. “Tell me.”
 
-Their murmurs stung worse than accusation — because they were *true.*
+He told her about the root. He told her it was poison, given slowly, and that given long enough it would kill.
 
-He swallowed hard, turning away. “He’s down now,” he said quietly, nodding toward the unconscious soldier lying by the entrance. “When he wakes… he’ll need to be watched. He’s grieving, not malicious.”
+He did not tell her about the mouse.
 
-Reyn appeared at the doorway, dusty and disheveled, his brow furrowed as he glanced between the chaos and the quiet aftermath. “Grieving or not,” he muttered, “he almost killed her.” His tone wasn’t cruel — just weary. “We’ll make sure he doesn’t try it again.”
+He had rehearsed the words. *There is something else. It binds her to him.* But she stood in the doorway holding herself together by the elbows, and he thought: if I tell her that her mother’s love was brewed in a bottle, what will she have left? And beneath that, quieter, a voice in a moonlit garden a world away. *Then don’t remember what hurts. Just remember what’s here.*
 
-Arwen looked up at Esdel, her eyes wise but unreadable. “You acted swiftly,” she said. “And without thought.”
+“He is killing her,” she said.
 
-The words struck something deep in him. He met her gaze but found no accusation there — only knowledge. The kind that saw through him.
+“Slowly. Yes.”
 
-“Yes,” Esdel answered, voice low. “That’s what frightens me.”
+At the door she paused, without turning. “Is that all of it?”
 
-Lyora’s gaze flickered toward him then — brief, hesitant. The look in her eyes was strange: gratitude tangled with fear, and something softer that neither dared name. She wanted to thank him, yet her throat still ached with the ghost of the soldier’s grip. The words wouldn’t come.
+His heart stopped, and began again.
 
-Esdel took a step closer. “You should rest,” he murmured. “I’ll stay with him until the watch comes.”
+“That’s all I can prove,” he said.
 
-“I can manage—” she began, but he shook his head.
+It was true. He told himself it was true. Changli, silent at the window, gave him a long, unreadable look: she had heard the half-second where the truth turned aside. He took the last page — the mice, the gold oil, the word *binds* — and folded it in half, and in half again, and put it inside his coat with the letters he did not send.
 
-“Please,” he said — and there was something in that word, quiet and raw, that silenced her argument.
+---
 
-Arwen’s gaze lingered on him, studying him as though the night itself had whispered secrets into her ears. Then she rose slowly, helping Lyora to her feet. “Come, child. You’ll do no good fainting where death still lingers.”
+She did it in the garden, in daylight, in front of everyone.
 
-As they left, Esdel remained — standing amidst overturned stools, the faint metallic scent of blood, and the rhythmic flutter of tent canvas. The soldier on the ground groaned faintly, a reminder of what Esdel had done, of what his body remembered even if his mind did not.
+It was the Count’s spring reception beneath the peach tree: forty guests of rank, plum wine, a physician of the royal college in his black cap. When the maid came with the white tea things in the amber hour, Xueyao crossed the paved circle, and her steps rang on the stones, and the guests turned to watch her the way people watch a storm coming across a field.
 
-He sat down slowly beside the cot, staring at his hands. They were steady now — too steady.
+“Put that down,” she said. “It is greyveil root. You are poisoning my mother, Count Reng.”
 
-He flexed his fingers once, the movement small, almost reverent. “Who taught you that?” he whispered to himself. The words vanished into the hum of night insects outside.
+The Count looked at her with slow, wounded disbelief, and tears stood in his eyes, real, bright in the amber light. “*Xueyao.* When she woke screaming for your father, I held her until she slept. I will not bear *this*. Not in front of her.”
 
-He could still feel the weight of her throat beneath the soldier’s hands — the fragile warmth that could have vanished in seconds. His stomach turned at the thought, a sharp wave of nausea hitting him.
+He knelt at Lady Anlan’s side. She was staring at her daughter, not angry; that would have been easier. A child woken in a strange room. Her hands clutched the dove-grey silk of his coat as though he were the only solid thing in the world.
 
-When Arwen returned briefly with a lantern, she paused beside him. “You fear what you are,” she said quietly.
+“Xueyao,” she said, small and high and trembling. “Xueyao, how could you?”
 
-Esdel didn’t answer. He didn’t need to.
+Over his wife’s shoulder, for one instant, the Count’s eyes met Xueyao’s. They were perfectly dry.
 
-She placed the lantern beside him, its flame soft but unwavering. “Then let that fear guide you. Not destroy you.”
+By morning the capital had it, from people who had not been there and told it with relish. *The poor man wept. Three years at the front, with that creature. It does things to the mind.* On the bridge a clerk said it lightly, as if it were an old joke —
 
-When she left again, the night grew still. Near moonrise two of Reyn’s men came to take the watch, and Esdel walked home.
+“*The general has lost her mind.*”
 
-That night, the small house of the apothecaries was unusually quiet.  
-Dinner was subdued — only the sound of spoons scraping wooden bowls.
+---
 
-Arwen glanced across the table at Esdel. The lamplight reflected in her tired eyes. “That move you did back there… that’s no ordinary reaction. You’ve fought before, haven’t you?”
+The hearing was granted on the eleventh day, in the Hall of Remedies: a cold room of pale stone, seven black caps on a dais, and preserved things floating in yellow spirit. The Count did not come. Master Vale sat in his stead, small and grey, looking at the floor.
 
-Esdel didn’t respond at first. His eyes were fixed on his food, though he hadn’t taken a single bite. His shoulders were slightly hunched — a man caught between guilt and confusion.
+Esdel told it well. He would think so afterward, lying awake. He did not speak of the gold oil; he had no proof these men would accept. Grand Physician Morrell held up his page of numbers. “Your hand is unusual. Where did you study?”
 
-“I just reacted,” he finally said. His voice was calm, but the calm didn’t sound natural — it was a stillness born of restraint. “I didn’t decide anything. My body did.”
+“I didn’t. I learned in a village apothecary, and in the field tents.”
 
-No one at the table found that comforting.
+“And before?”
 
-Lyora sat in silence, unable to meet his eyes. Her hands clenched together tightly in her lap, her throat still sore. The word she had said to him last night, by the lamp on the counter, lay somewhere on the table between them too, and neither of them reached for it. She remembered what the wounded soldier had said the night before — about recognizing him.
+“I don’t remember. I woke in the desert a year ago. I knew my name. Nothing else.”
 
-She remembered the way Esdel’s tone changed, the way his movements didn’t belong to a gentle villager but to something… sharp. Trained. Deadly.
+He felt the floor of the room shift like rotten boards.
 
-Dinner ended without laughter, without the usual warmth. Even the crackle of the hearth seemed muted, wary of stirring the air between them.
+“You have brought before this college,” said Morrell, “an accusation against a peer of the realm, on the word of a nameless field apothecary with no training, no family, and no past, who reasons from mice. And your mother has herself begged you to stop. A general may command soldiers. She may not command truth. This hearing is closed.”
 
-When Arwen had gone up, Esdel quietly stood and stepped outside — the motion almost a retreat. He sat on the stone bench in the garden, the cold air brushing against his skin.
+At the door, the Crown Prince began to speak, and the King stood behind him in grey and only looked at his son. Esdel watched the sentence die in Ardbert. He bowed to the dais, and did not look at Xueyao again.
 
-Above him, the stars stretched wide and indifferent — thousands of distant fires that neither judged nor comforted. He leaned forward, elbows on his knees, staring at his open hands. They still remembered the motion — the way the blow had landed, the sound it made. The ease of it.
+At the foot of the white steps she stopped, looking out over ten thousand roofs of green and blue tile.
 
-It was not the act of a healer.
+“Not the college. Not the judges. Not one of the men who ate at my father’s table every week for twenty years. No one stood beside me.”
+
+Esdel, one pace behind and to the left, said nothing. There was nothing to say. After a moment she turned her head, very slightly, and looked at him standing there. Something moved in her face, and was put away.
+
+Then she got into the carriage.

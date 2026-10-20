@@ -1,57 +1,103 @@
 # **Chapter 32**
 
-The days grew softer between them. Esdel and Lyora slipped into the gentle rhythm of Edenridge as though the village itself had made space for their quiet companionship. The mornings began with shared chores and ended with small, unspoken gestures — the brushing of hands as they reached for the same herb jar, the faint smile when their eyes met over a simmering cauldron. The villagers noticed, of course they did. They always noticed. How Lyora would somehow always end up walking beside him on the way to the market, or how Esdel carried her baskets as though it were second nature. And when the wind turned crisp and he forgot his cloak — again — she’d sigh, muttering something about “hopeless men,” before wrapping hers around his shoulders with a firmness that left no room for argument.
+The road south from North Ridge ran through country that had forgotten the war.
 
-Their closeness was something the whole village hummed along to — soft, familiar, like a song played by heart.
+On the first morning, it did not feel that way. The column rode out beneath a sky the color of old iron, past burned fields and the black ribs of farmhouses, past a ditch where crows lifted from something no one looked at twice. The fifteen soldiers of House Lián rode in two lines, silent, their armor wrapped in dark cloth against the dust. The General rode at their head. Her attendant rode beside her. The apothecary rode at the back, with the pack mule and the medicine chests, where the dust was thickest.
 
-“Oi, lovebirds!” called one of the blacksmith’s apprentices as they passed through the square. 
+No one spoke to him. He did not expect them to.
 
-“Don’t burn the tea again like last time!”
+By the third day, there were orchards.
 
-Esdel nearly tripped over his own feet. “That was her,” he protested, a touch too fast. “Twice. She told me.”
+They came over a low rise at noon, and the land below simply changed — as though someone had drawn a line across the country and said *here, the war stops.* Plum trees stood in white rows on the slopes, and children wading in a clear stream stopped and stared at the riders with round, unafraid eyes.
 
-Lyora gasped, eyes wide. “That was *one time*!”
+Esdel watched the blossoms drift across the road, and something in his chest turned over, slow and painful, like a key in a stiff lock.
 
-Laughter erupted around them, echoing between the stone walls and warm shopfronts. Even Arwen, standing by the well with a basket of herbs, shook her head with a smile. “Ah, young hearts,” she murmured, her tone rich with quiet amusement. “Too stubborn to realize they’re already dancing.”
+It was spring again. Somewhere far to the south and west, beyond the orchards and the forest and the low hills, the river would be running high with snowmelt. And a year ago, almost to the day, a caravan had carried him in out of the sand.
 
-By midday, the teasing hadn’t stopped. The baker — ever the mischief-maker — presented them with a loaf shaped like a heart, dusted with flour and pride. “For our favorite couple,” he said with a wink. Lyora tried to hand it back, flustered beyond words, while Esdel mumbled something unintelligible that only made the laughter louder. It was ridiculous. Embarrassing. And yet… it was warm.
+He looked down at his hands on the reins. They were tying something without him. A bit of spare cord, a knot, another, the old pattern his fingers made whenever he stopped watching them. He made them stop.
 
-Later, beneath the veranda, they worked together to dry bundles of chamomile and mint. The air smelled of summer and sunlit wood. Lyora hummed softly as she tied the herbs, her fingers deft and sure, while Esdel arranged them to dry — or tried to, at least, until a mischievous gust of wind swept through.
+He did not let himself think any further than that. He thought it anyway: *there is a lamp on the second step. I cannot see it, and I can see it perfectly.*
 
-“Ah! My chamomile!” she cried, reaching helplessly as the delicate petals scattered into the air like tiny green stars.
+---
 
-Esdel froze for a second — then laughed. It wasn’t the polite kind of laugh, nor the guarded one he used to wear like armor. It was real — bright and unrestrained, the kind that shook something loose inside him. When she looked up, startled, his smile softened almost unconsciously.
+On the third evening they made camp by the stream, and he unpacked the chests and waited, the way he always did. The youngest soldier came first, a boy of nineteen with a gap in his teeth, who announced with great dignity that his boots were trying to kill him. His name was Pei Lun. The last to come was the captain, Han Ruo, grey-bearded and broad as a door, with a wrist swollen from an old break. “Lord Hengzhi’s stables,” he said, when Esdel asked. “Thirty years ago. He paid the physician himself. For a stableboy. You don’t forget that kind of man.” When Esdel was done, he flexed the wrist. “You’ll do,” he said. After that, someone saved Esdel a place at the fire.
 
-“You’re beautiful when you panic,” he’d said — and it slipped out so easily, so honestly, that even he startled himself.
+Late that night, when the soldiers were snoring, he sat apart beneath a poplar with a writing board across his knees and a stub of charcoal, and wrote by the dying fire — slowly, his head bent close to the page. He wrote a line. Stopped. Looked at it a long time. Then he folded it in half, and in half again, and slid it into his coat, where there was a thin sheaf of others, all folded the same way. None sealed. None addressed.
 
-The silence that followed was fragile, the kind that could shatter with a single breath. Her cheeks turned crimson, her lips parted as if to speak, but all that came out was a flustered protest — “D-don’t say weird things!” Yet her voice trembled not from irritation, but from something else — something softer that hung between them long after their laughter faded.
+Something glinted at his throat as he bent: a fine silver chain, and a small charm in the shape of a flower. It had gone warm against his skin, as it always did when he thought of her. He touched it once, the way a man touches a wound that has closed but not stopped aching.
 
-By the time the sun began to sink, the air had grown calm again. But the peace didn’t last. A sudden noise — distant shouting, the clatter of hooves, the unmistakable cry of pain — sliced through the village hum.
+He did not see the General standing at the edge of the firelight. She had come out to check the horse lines, and she stayed only long enough to understand: letters that would never be sent, a charm that was not his. Someone was waiting for this man.
 
-Esdel’s laughter died instantly.
+She went back to her tent without a sound.
 
-They ran.
+---
 
-Down the southern path, they found the source — soldiers, collapsed and broken, their armor split, their blood pooling darkly into the dirt road. The sight stole the warmth from the air. Villagers gathered, whispering, afraid.
+On the fourth night the rain came, and they sheltered in a ruined waystation at the crossing of two roads. It was four walls and half a roof and a hearth big enough to roast an ox. Han Ruo built a fire so large that Pei Lun declared it visible from the capital.
 
-“Get the bandages!” Arwen’s voice cut through the panic — calm, commanding. She was already kneeling beside one of the wounded men.
+Esdel took the far corner, near the broken window, and was sorting the medicine chest by firelight when a shadow fell across his work.
 
-Lyora dropped to her knees beside her grandmother, trembling only for a moment before her training took over. “Esdel, help me!” she said. He was already there, pressing fabric against a wound, his arms steady despite the blood that smeared across his hands.
+The General stood over him with two cups in her hands.
 
-“Stay with me,” Lyora whispered to one soldier whose breathing faltered. “You’re safe here. You’ll be alright.”
+“Tea,” she said. “Changli made it. She says I’m to stop frightening the apothecary.”
 
-Esdel glanced toward the dark line of forest beyond the southern ridge — where the soldiers must have come from. The faint scent of smoke and iron hung heavy in the breeze. Something inside him stirred, restless, familiar — a shadow of another life pressing against his chest.
+“You don’t frighten me, General.”
 
-Hours passed in fragments of light and pain. Torches burned. Voices blurred. The night stretched on, heavy and alive with urgency. Through it all, Esdel found himself watching Lyora — the way her hair clung to her face, her lips murmuring prayers between each stitch, her hands shaking but never stopping. She looked nothing like the girl who laughed over tea or argued about soup. And yet… she was more herself than ever — fierce, steady, luminous.
+“No,” she agreed, and sat down on the broken bench beneath the window as though it were a throne. “I noticed that. It’s very rude of you.”
 
-He didn’t realize he was staring until she met his gaze. Just for a moment. Neither spoke. They didn’t need to.
+For a while they only drank, and listened to the rain on what remained of the roof. Then she said, without looking at him, “I asked you a question once. On the night of the Titan. Who are you? I’m taking you into my mother’s house, Apothecary. I would like to know what I am bringing through the door.”
 
-Somehow, in that chaos — surrounded by blood, fire, and fear — the warmth between them only grew stronger. It was fragile, yes, but unbreakable. Like a single candle burning against the dark.
+He looked at the fire. It was a fair question. It was, he thought, the only question anyone had ever really asked him.
 
-He didn’t say it. She didn’t either.
+So he told her. He did not know why, except that she had asked three times, and had never once pretended it did not matter.
 
-But everyone around them — the villagers, the wounded, even the quiet night itself — could feel it.
+“I don’t know,” he said. “That isn’t an evasion. It’s the truth.” He told her about the desert, the blank before it, the name that came out of his mouth to a stranger. He told her about the creature that took his arm, and the village where he woke with it whole. “I cut myself, once, to see. It healed overnight. At the front, seven arrows. They healed in an hour.” He had not said any of it aloud before. Not to Halden, not to Benn, not to—
 
-A bond beyond words.  
-A love that didn’t need to be confessed.  
-Because it was already understood.
+He stopped the thought there.
+
+“And the eyes,” Xueyao said.
+
+“And the eyes. When I think I’m going to die, the world stops. I see every breath. Every intention, before it moves. They go red, and the pupils pinch to a slit, like a fox’s. And afterward it feels as though someone has pushed needles through my skull, and I can’t find my words for a day. Once, for three.”
+
+She was quiet for a long time. When she spoke, her face had changed, something careful and old beneath the cool mask, like a soldier stepping around ground she knew was mined.
+
+“*Karunākṣa*,” she said. “Do you know what the word means?”
+
+He shook his head.
+
+“The dragon tongue. *Karuṇā* is mercy. *Akṣa* is the eye. The eye of mercy.” A faint, humorless curve of her lips. “A pretty name for a terrible thing. The stories say the House of Kālākṣa could look at a living thing and see how long its heart had left. That they were healers, once.” She turned her cup. “Stories grow in the telling. Especially about the dead. What my dragon showed me was simpler. Men and women who saw the blade before the hand that held it knew it would move. Not a healer’s eye, Apothecary. A soldier’s. Whatever mercy there was in it, they had to bring themselves.”
+
+“What happened to them?”
+
+“The dragons remember them. When I was fourteen, the first time mine spoke to me, it showed me a field of them, with red eyes. It hated them. I have never felt anything hate the way it hated them.” Her fingers tightened on the cup. “My dragon can feel what I feel, across any distance. If it ever sees you the way I have seen you, with those eyes open, I do not know what it will do.”
+
+“Then I’ll try to keep them closed,” he said.
+
+Something moved in her face. It might, in another woman, have been the beginning of a smile.
+
+She rose, and picked up both cups. At the edge of his cloth she paused.
+
+“The letters,” she said, not looking back. “The ones you don’t send.”
+
+He went very still.
+
+“You should send them,” said the General of the Northern Front, “before you’re somewhere they can’t reach.”
+
+She walked back across the ruined inn, and her soldiers made room for her without looking up. He sat in the corner for a long time afterward, with the rain coming through the broken window, and the thin sheaf of paper warm against his chest, over the silver flower.
+
+*Somewhere they can’t reach.*
+
+He was already there. That was what he could not tell her. The letters did not go anywhere because there was nowhere left for them to go.
+
+---
+
+On the fifth day, in the late afternoon, the road crested a long hill, and the capital lay below them.
+
+It filled the whole valley. White walls, and within them more walls; roofs of blue and green tile climbing in terraces toward the palace on its hill, where gold caught the slanting light and threw it back at the sky. The river ran through the heart of it, broad and brown, toward a harbor where masts stood like a winter forest.
+
+Something in him looked at those walls and did not feel wonder. It felt something colder. Recognition, perhaps. Or dread.
+
+At the head of the column the General had stopped her horse. She sat very straight, looking down at one terrace in particular, in the eastern quarter near the river, where a long wall enclosed pale roofs and something that might, at this distance, have been a peach tree in flower.
+
+She did not move for a long time.
+
+Then she lifted her hand, and they went down.

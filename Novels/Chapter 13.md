@@ -1,150 +1,149 @@
 # **Chapter 13**
 
-For the first time in memory, the days began to feel whole.
+For three days after the night of the dream, the house was careful with itself.
 
-Esdel rose before the morning bells, swept the shop, ground what needed grinding, and greeted familiar faces at the counter before he ever greeted them on the winding paths. The scent of rain lingered in the air — a promise of coming storms — yet the village felt untouched by worry. It thrived like a secret garden tucked between the forest and the dunes.
+Nothing had changed, and everything had. Arwen still rose before the light and set the kettle on. The jars stood in their rows catching the morning like water in glass. But Lyora set his cup down a little closer to his hand than she used to. Close enough that he did not have to reach.
 
-Even the dark spots on his arm — those strange thumb-sized marks that once pulsed like something alive — had faded. Only pale traces remained now, like memories of wounds that no longer mattered.
+He noticed everything now — the way she hummed and stopped when he came into the room, as if the song belonged to someone else; the way her eyes found his across the worktable and slid away slowly, reluctantly, like a hand leaving a warm stone.
 
-He told himself that was enough.  
-Peace, work, laughter — a rhythm he could understand.
+Neither of them spoke of that night. It sat between them, soft and unnamed, like a bruise that did not hurt unless you pressed it.
 
----
+He did not press it.
 
-The woodcutter’s daughter came in on a grey morning, her shawl damp, her voice pulled thin with worry.
+On the fourth morning Arwen sent him to the well. Two aunties from the lower street were drawing water, and went on talking as though he were a tree.
 
-Her father had been burning two days. He would not eat. He said he was fine, which, she added, was how she knew he wasn’t.
+“—after the harvest, she says. She’s already spoken to the go-between.”
 
-Arwen listened, asked three short questions — how hot, how long, did he shiver — and then, without looking up from the mortar in her hands, said, “Esdel will make it.”
+“Well, it’s time. That boy’s carried the whole farm on his back since his father’s leg. And Lyora’s been up there every week with salves, hasn’t she?”
 
-He turned. “I will?”
+“Every week. Arwen’s girl and Eldric. Such a good match. Grew up in each other’s pockets, those two.”
 
-“You’ve watched me make it a dozen times.” The pestle kept its slow circle. “Willow bark. Go on.”
+He filled both pails to the brim and thanked them, and walked home along the dusty lane without spilling a drop.
 
-The shop went very quiet around him. Lamplight on the jars. The smell of dried chamomile, and somewhere under it, the bitter brown of the bark.
+It was the only way anyone could have known something was wrong, had they been watching: how carefully he walked, as though the water were something that might break.
 
-He took down the jar. He set the small brass scale on the counter and waited for the pans to settle, the way Arwen always did, as if the scale had to be allowed to breathe. He weighed out the bark. Looked at it. Took two pieces away.
+No one had asked what Lyora wanted. In all that easy, affectionate talk no one had said her name as if it belonged to someone with a heart of her own.
 
-“He’s a big man?” he asked the daughter.
-
-“Bigger than you.”
-
-He put one piece back.
-
-He wrapped the measure in paper, then a second measure, then a third, and wrote on each in his small, strange hand. His fingers were steadier than his heart.
-
-Only then did he look at Arwen.
-
-She had stopped grinding. She came to the counter, opened one packet, tipped it into her palm, weighed it with her eyes and then with the scale. The pans swung. Settled.
-
-She folded the packet closed again.
-
-“Tell her how,” she said.
-
-Esdel turned to the daughter. “Simmer it — don’t boil it. A slow simmer, the time it takes to sweep a floor. Give it to him warm, with something in his stomach, even if it’s only bread. It sours an empty belly.” He slid the packets across. “Three times today. No more than that, even if he asks.”
-
-“He won’t ask,” she said. “He hates medicine.”
-
-“Then tell him it’s tea, and that I said he was being very brave.” He smiled. “If the fever breaks tonight, he’ll wake up cross and hungry. That’s the good sign. When he starts complaining about the food, you can stop worrying.”
-
-She laughed — surprised out of her — and some of the thinness went out of her voice. She pressed a coin into his hand and hurried out into the drizzle.
-
-The door swung shut. The bell above it swayed and was still.
-
-“Why not boil it?” he asked, the moment she was gone.
-
-Arwen snorted. “There it is.”
-
-“You always simmer. I’ve never asked.”
-
-“You’ve asked about everything else.” She went back to her mortar. “Boil it hard and it goes bitter and harsh on the stomach, and what you want slips off with the steam. Slow is gentler. Most things are.”
-
-He took out his notebook and wrote it down, word for word. *Most things are.*
-
-After a while, not looking at him, she said, “You didn’t look at me once. While you measured.”
-
-“I was afraid if I looked at you, I’d see I’d got it wrong.”
-
-“You hadn’t.” The pestle turned. “This time.”
-
-It was, from Arwen, very nearly a song.
+But then, who was he to ask?
 
 ---
 
-His afternoons belonged to Reyn Challon, the engineer — once the shop had gone drowsy after the noon meal and Arwen waved him off with a flick of her fingers. Their friendship had grown quietly, built from sawdust, sketches, and sweat.
+He began to be busy.
 
-Reyn’s workshop stood near the southern river bend, where the hum of bamboo water channels blended with the soft grind of gears and wooden pulleys. Inside, every surface was cluttered — half-built contraptions, scraps of parchment, and the faint smell of oil and rain-soaked timber.
+Never before the shop. He was at the worktable at first light as he had been every morning since spring. It was after the shop that the rest began: Reyn’s sticking sluice gate, the bridge planks, the baker’s warped oven door. He came home when the lamps were low and ate what was left, alone. He said *good night* from the stairs.
 
-“Hold that beam steady,” Reyn muttered, squinting at a wooden frame.
+Lyora said, once, “You’re never here anymore.”
 
-Esdel obeyed, pressing his shoulder against the post until it fit snugly into place. “You could make this lighter if you adjust the tension here,” he said, tapping the joint.
+“Reyn needs help with the gate.”
 
-Reyn grinned. “You and your cursed logic. Fine, show me.”
+“Reyn has needed help with that gate for six years.”
 
-Together they worked — rebalancing, measuring, testing. Their hands moved with quiet precision, both men absorbed in the language of creation. By the time the light slanted long, they stood before a small prototype water wheel, its blades catching the river’s edge, spinning with a rhythmic hum.
+“Then it’s time someone fixed it.”
 
-Reyn folded his arms, smiling with satisfaction. “You realize this means less work for half the farmers?”
+She looked at him, and he saw the question rise in her face and sink, unasked, like a stone settling into a riverbed. “Your supper’s by the stairs,” she said.
 
-Esdel shrugged. “Then they can rest more.”
+Once, on a morning when the line ran out the door, Arwen sent him to Eldric’s farm in Lyora’s place. Eldric’s father lay by the kitchen window with his leg bound between two lengths of ash, glaring at the yard he could not walk in. Esdel warmed comfrey on the hearth until the kitchen smelled green and rank, and laid it along the shin, and measured the willow bark, level, as it was written in his notebook. “Tastes like a fence,” said the old man. “It does,” said Esdel. “Arwen says the worse it tastes, the better it works. I’ve never once been able to prove her wrong.”
 
-Reyn chuckled. “Spoken like a man who doesn’t own a field.”
+At the door Eldric’s mother pressed his hand between her worn ones and thanked him twice. It was a good house. Warm, and tired, and honest. He walked home and did not let himself think about why that should hurt.
 
 ---
 
-Sometimes, Lyora came by with something to eat.
+Eldric came to the workshop on a blazing afternoon with straw in his hair and his hat in his hands. Reyn raised one copper eyebrow and went very deliberately back to his work.
 
-Her arrival always felt like the first breeze before rain — light, refreshing, inevitable. She’d step into the workshop carrying a basket of bread and stew, pretending it was merely *for convenience’s sake.*
+“I need your hands. Mine only know dirt. Lyora’s drying rack — it came down last week, a whole summer’s feverfew in the mud. She laughed about it, but I saw her face. I’d like to make her a new one. Only everything I build leans.”
 
-“You two work harder than the priests on prayer day,” she teased one afternoon, setting the basket on a cluttered table.
+Outside, the water wheel turned, and turned.
 
-Reyn laughed. “That’s because our miracles actually hold water.”
+There was no reason to say no. None that he could say out loud. “Yes,” said Esdel.
 
-Lyora rolled her eyes, passing Esdel a cup of broth. “And what about yours, mister miracle worker? How’s the arm?”
+They worked in the long gold hours after Eldric’s fields were done, and Eldric talked, because Eldric always talked. About his father: “Cart went over on the hill road in spring. Ma cried half the night. She doesn’t cry, Ma. Not ever.” About the fields. “Sometimes I think I’ll never see anything past them. Not the city. Not the sea. Don’t tell anyone I said that. I’m meant to be the cheerful one.”
 
-Esdel flexed it absentmindedly. “Fine. Almost forget it was ever gone.”
+“I won’t.”
 
-“Good,” she said softly — and for a moment, her smile faltered, replaced by something gentler, almost afraid.
+“She’s the only girl who never looked at me like I was the prize at the fair,” Eldric said, softer. “Lyora just brought medicine. Scolded me for not wrapping my hands. Like I was a person. I grabbed her hand at the festival like a boy. I think I frightened her. I’ll say sorry, properly, when I give her this.” His eyes were so honest that Esdel had to look away. “Thank you, Esdel. You’re a good friend.”
 
-Then she brightened, as if remembering. “The woodcutter’s girl came back. His fever broke in the night.”
+Esdel built it with a care he could not hide. He measured the rail against the memory of her reach so she would not have to rise onto her toes. He sanded every edge so it would not snag her sleeves. He bound every joint with the knot he had used on the channels, the one that pulled tighter the harder the water pressed. He did not decide to. His hands simply did it.
 
-Esdel set down the broth.
+Reyn watched from the doorway on the last evening, arms folded.
 
-“He’s cross,” Lyora said. “And hungry. And he says the tea was disgusting.”
+“You’re building the door you mean to walk out of.”
 
-Something warm and unfamiliar moved through his chest. He looked down at his hands — the same hands that had held the scale that morning — and did not quite trust himself to speak.
+Esdel pulled the last binding tight.
 
-“Good,” he said at last, very quietly. “That’s the good sign.”
+---
 
-Reyn noticed it, of course. The man was observant in ways he didn’t often show. As Lyora chatted about the weather or the color of the river at dawn, Reyn kept smirking behind his mug, his eyes flicking between them like he was watching a story unfold.
+Eldric carried it over the next morning while Esdel was away at the bridge. The village liked the story very much: how Lyora put a hand to her mouth, how Eldric apologized for the festival and she said *there’s nothing to forgive,* and meant it.
 
-When Lyora finally stood to leave, Esdel rose as well. “I’ll walk you to the path,” he offered, voice even.
+That evening she went out into the yard alone. The new rack stood against the south wall already hung with feverfew. It was exactly the height of her reach. She touched the top rail, and her thumb found a binding.
 
-She waved him off. “No need. I know the way.”
+She stopped.
 
-Still, she paused at the door, brushing a loose strand of hair from her face. “Don’t forget to eat before the rain comes.”
+A small knot, tight and neat, the cord wound back through itself in a way no one in Edenridge wound cord. She had seen it a hundred times on the channels by the river. She had watched a pair of hands tie it, patient and precise, on a hot afternoon at the start of the summer.
 
-Then she smiled — that small, unguarded smile that reached her eyes — and turned away.
+She stood with her thumb on it as if it were a pulse. Then she went inside and said nothing to anyone.
 
-Reyn waited until she disappeared down the trail before whistling low.
+But that night she set his supper at the foot of the stairs, covered with a cloth, a sprig of mint on top, the way she used to when he was sick.
 
-“You could at least *pretend* not to care,” he teased.
+In the morning it was still there. Cold. Untouched.
 
-Esdel frowned. “What are you talking about?”
+He had stood at the top of the stairs a long time in the dark, looking down at it. He had smelled the mint. He had not been able to go down.
 
-Reyn leaned back on his stool, grinning. “The way you look at her when she leaves — like you’re afraid the wind might take her away.”
+She took the plate away without a word, and scraped it, and washed it, and set it back on the shelf. From the attic, he heard the water run in the basin far longer than any plate required, and when it stopped, he heard another sound, much smaller, that the running water had been put there to cover.
 
-Esdel said nothing. He focused on tightening a bolt that didn’t need tightening.
+He knew that she knew he was awake.
 
-Reyn chuckled, shaking his head. “You’re a strange one, Esdel. Build water systems out of bamboo, fix a village without magic… but you can’t fix your own heartbeat.”
+Neither of them moved. A floor apart, in the dark, each listened to the other not sleep.
 
-Esdel ignored him, but a faint warmth crept up his neck nonetheless.
+---
 
-Outside, the wind picked up, brushing through the bamboo grove with a soft, whistling sigh. The sky had turned a deeper shade of gray — not storm yet, but the promise of one.
+Market day came on the hottest morning of the summer. Awnings snapped in the dry wind, hawkers shouted, and the air filled with pepper and lamp oil and tanned leather. Esdel had come for nails, and had just finished bargaining past old Pell’s rusted ones when a woman’s voice called out.
 
-He found himself glancing at the path where Lyora had walked away, her figure now long gone between the trees.
+“You. Tall one. You look like you know things.”
 
-And though he couldn’t name it, something inside his chest drew tight — not pain, not fear… just *weight.*
+A dye-merchant by the stains on her hands, blue to the wrist, sun-browned and sharp-eyed, brisk as someone who had talked her way through a hundred market towns. “My wheel pulls left all the way from the river. My mule’s about to leave me for a better woman.”
 
-The kind that comes when a man realizes he’s begun to want something fragile.
+He crouched and looked. “Your load’s heavier on this side. The wheel isn’t the problem, the weight is. Move the indigo to the center, over the axle.” He ran a hand down the mule’s dusty neck. “She isn’t leaving you. She’s been trying to tell you.”
 
-Something the world could easily take back.
+She stared. Then she laughed, a big full-throated laugh that turned heads. “I paid a wheelwright in Harrowmere two silver to tell me it was the spokes!” She gave his forearm a quick friendly squeeze, the kind of touch traders traded a hundred times a day, and pressed a scrap of deep red cloth into his palm. “For your trouble.”
+
+He thanked her warmly, the way he thanked the baker for a bun, and tucked it away. The whole thing lasted no longer than it takes a kettle to boil.
+
+He did not see Lyora across the square, a bundle of hyssop forgotten in her hands.
+
+She had seen all of it. Not the words; only the laugh, the hand on his arm, the scrap of red going into his pocket. And something went through her so fast and so ugly she did not recognize it at first. It sat under her breastbone like a swallowed coal.
+
+She paid the herb-seller. She walked home. She knew it was nothing. By evening the woman would be gone down the river road. The coal did not care what she knew.
+
+He came home at a proper hour that night, because Reyn had thrown him out. Lyora was at the hearth and did not turn around. “You were busy today.” “The market. Reyn needed nails.” “I saw.” She set his cup at the far edge of the table, precisely, where he had to reach. He reached. She poured.
+
+The tea was black. Not strong — *black,* bitter and scorched, with a smell like a hearth gone out wrong. He took one sip and set the cup down very carefully.
+
+Lyora looked at the kettle. It was dry. The leaves had cooked to the bottom.
+
+“Oh,” she said, very quietly. “Oh, *no.*”
+
+Arwen put a hand over her mouth and was seized by a fit of coughing that did not sound at all like coughing.
+
+“It’s fine,” said Esdel. “I like it strong.”
+
+“It isn’t *strong,* it’s—” She snatched the cup, cheeks flaming, and emptied it out the window. “I’ll make more.” She did not look at him while she did it. And when she turned her face toward the window to rinse the cup, he saw, for just a breath, that her eyes were wet with something much worse than embarrassment.
+
+After supper Arwen took him into the garden to cut back the rosemary. Her hands were not slow. “You cut back what grows wild so the root can hold,” she said, not looking at him. “But cut too much, child — cut away everything that reaches — and you don’t have a plant anymore. You only have a stick.”
+
+He paused with the shears open.
+
+“Good night, Esdel.”
+
+He lay awake that night going back over the evening like a broken mechanism, piece by piece. The market. *I saw.* The cup set out of reach. The tea burnt black because she had been standing at the kettle *thinking about—*
+
+He sat up slowly in the dark. *She was jealous.* Steady, sensible Lyora had stood at the kettle burning the tea because a stranger had laughed at something he said about a wheel.
+
+For one bright, treacherous heartbeat it made him happy.
+
+Then it hurt, much worse than before. Because he had already decided. He had decided at the well, with the water swinging steady in the pails. He had decided with every knot he tied on another man’s gift. A good man with a farm. A future that would not vanish into sand. And him: a single name and nothing behind it, a body that healed when it should not, and dreams of a cliff above the sea.
+
+He set the scrap of red cloth on the sill, where the wind could take it if it wanted.
+
+Below him he heard the creak of the bed. A long breath. Once, the soft sound of her rising and standing somewhere in the dark, and lying down again.
+
+They lay awake, one above the other, in the same hot, still night, each listening to the other not sleep.

@@ -1,123 +1,97 @@
 # **Chapter 38**
 
-Morning came too soon.
+Summer came early to Edenridge that year, and it came in green.
 
-The mist lay low on the fields and the light came through it thin and pale, as though it were not sure it was allowed. Dew on the fence rails. Dew on the ivy. A single bird somewhere in the willows, trying one note over and over and not getting it right.
+The river ran full and slow between its willows, the bamboo channels hummed night and day, and the cicadas came back in a single night, so that the whole valley filled with their long, sawing, drowsy song.
 
-At the gate at the bottom of the village, the soldiers were forming up. Buckles. Straps. The small tired sounds of men who had done this too many times to talk about it.
+It was a year since the market day. A year since the storm on the ridge.
 
-Esdel stood among them with his pack on his shoulder.
-
-They looked at him sometimes, sidelong. He was not one of them. Not yet.
-
-The village had come down to see him off. He had not expected that. They stood along the lane in the mist in their sleep-rumpled clothes — the baker with flour already on his arms, Old Richard with his hands jammed in his pockets and his face set like a man at a funeral, the children from the lower street who had followed him to the channels all summer. Reyn, at the back, very large and very silent, holding a small bundle wrapped in oilcloth that turned out to be a set of bamboo splints, cut and smoothed and tied with Esdel’s own knot.
-
-“Figured they’d have trees,” Reyn said gruffly. “Didn’t figure they’d have *good* ones.”
-
-Esdel could not answer him. Reyn clapped him on the shoulder, hard, and went back into the crowd.
-
-An old woman pressed a carved talisman into his palm. Someone gave him bread. Someone gave him a pair of socks, knitted in three colors of leftover wool. *Come back,* they said, one after another, *come back, come back safe,* not loudly — the way people say it in the mist, at dawn, when they do not want to wake the thing they are afraid of.
-
-He nodded to each of them. He could not trust his voice.
-
-Then he saw her.
+Lyora did not count that one. She did not have to. It came up out of the ground by itself, the way the mint came up between the stones. A year since a back warm against her cheek, and the long steep path down in the rain, and her arms around his neck — and she had held on, and had not once thought to ask what it would cost her.
 
 ---
 
-She was standing a little apart, by the wall of the last house.
+Eldric’s mother came to the apothecary on a hot morning in the first week of summer. She did not come for medicine. Lyora knew it the moment she saw her in the doorway — a small, weathered woman with her good shawl on and her hands folded tight in front of her, and the stillness of someone who has practiced what she means to say many times on the walk down the lane.
 
-She had washed her face. She had braided her hair again, tight and neat, and tied it with a strip of plain cloth. She was wearing her apron. Her eyes were swollen almost shut, and red at the rims, and there were marks on her throat from the day before, and she was perfectly, entirely calm.
+Arwen knew it too. She rose from her mortar with the slow dignity of her years. “Come in, Hessa. Sit. I’ll make tea.”
 
-She had nothing left to cry with. He could see it. She had left it all on the stairs, in the night, in his arms. What stood by the wall in the mist was what remained when all of that was gone: a young woman with very straight shoulders, who was not going to make this harder for him than it already was.
+Hessa did not drink it. She held the cup and looked at Lyora, and her tired face was very kind, and very sad, and very determined.
 
-It was the most painful thing he had ever seen.
+“I asked him to wait a year. Last summer. He asked me to send the go-between away, and I did, because I saw how it was. I’m not a fool.” Her voice softened. “It’s been a year, girl. And no word. I know you were fond of him. We all were. He mended my gate. But the war takes men and doesn’t give them back. Eldric will be thirty next spring. He wants *you*. He won’t ask again; he’s too proud, and too good. So I’m asking you to think on it. That’s all.” She reached across the table and patted Lyora’s hand, awkwardly, the way a woman does who is not used to patting anyone. “He’d never leave you. Not ever. Not for anything in the world.”
 
-She came toward him. The soldiers made room without being asked.
+Then she drank her tea in one long swallow, and thanked Arwen, and went out into the green morning with her shawl around her shoulders.
 
-She stopped in front of him and opened her hand.
+*He’d never leave you.* Lyora sat with it in the green light that came through the ivy. She did not move. She did not look up. Her eyes were open, and quite dry, and the tears simply began, one and then another, running down and falling off her chin onto the table, as if they belonged to someone else. She watched a drop darken the grain of the wood. She did not wipe them.
 
-A necklace lay in her palm. Silver, old, fine as thread, with a small charm shaped like a flower.
+Arwen took Hessa’s empty cup and washed it, and dried it, and put it on the shelf. Then she came back and sat down across from her granddaughter and folded her hands on the table.
 
-“This was my mother’s,” she said. Her voice was hoarse. Worn to nothing. “She gave it to me in the doorway, the day she left with Father. I always thought—” She stopped. Started again. “I always thought if I gave it away, it would mean the person wearing it had to come home. To give it back.”
+They were trembling.
 
-She lifted it. Her hands were steady.
+Lyora saw it. She had been seeing it for weeks — since the spring, perhaps. A fine unsteadiness, so small that it did not show when Arwen was grinding and measuring and pouring with the same slow sureness as always. It showed only when she was still. When her hands lay folded on a table, as they did now, and could not hide.
 
-“So you have to come back,” she said. “To give it back to me.”
+Arwen saw her see it. She did not move her hands.
 
-He bent his head. She fastened it around his neck herself — her cold fingers at his nape, fumbling once on the clasp, then finding it. The charm settled against his chest. It was cold for a moment. Then it was warm.
+“You don’t have to answer her,” she said. “Not today. Not ever. But you should answer yourself. That’s the only one who matters. Not Hessa. Not Eldric. Not me.” A pause. “Not even him.”
 
-She did not step back at once. She stood there with her fingertips resting on the chain at his collarbone, looking at the small silver flower, not at him.
-
-“Come back to me,” she said.
-
-“I’ll guard it,” he said. It came out lower than he meant. “And I’ll guard myself.”
-
-She nodded. Once.
-
-Then she looked up. Their eyes met again, the way they had met on the floor at the foot of the stairs — and he saw that she was holding herself together with nothing but her will, the way a hand holds a cracked cup, and that if he said one more word, one kind word, it would break.
-
-So he did not say it.
-
-He put his hand against her cheek, the way Arwen had put hers against his the night before. She closed her eyes and leaned into it. One heartbeat. Two.
-
-“I’ll be waiting,” she said, with her eyes closed. “No matter how long it takes.”
-
-“Form up!” called the captain. “We march!”
-
-She opened her eyes. She stepped back. She folded her hands in her apron.
-
-And she did not cry.
+Lyora looked at her grandmother’s hands on the table between them, shaking very slightly in the green light, and she did not trust her voice. “I know,” she said.
 
 ---
 
-He walked.
+Eldric found her that evening on the old stone embankment below the shrine, where the lanterns floated on Devotional nights. She sat with her knees drawn up, watching the water go by in the long gold light. He sat down a few paces off, the way he had learned to — not too close.
 
-The column moved out through the gate and onto the river road, and the mist closed behind it. The villagers were calling now, their voices coming thin and scattered through the grey — *come back, come back quickly, we’ll wait* — and then the road turned, and bent up into the hills, and the voices went small, and smaller, and were gone.
+“Ma came to see you. I told her not to.” He turned a pebble in his fingers. “I’m sorry, Lyora.”
 
-He did not look back. He had promised himself he would not. He knew what would happen if he did.
+“Don’t be. She loves you.”
 
-At the top of the first rise, he looked back.
+“She loves me very loudly.” He threw the pebble. It skipped twice and sank. “What did she say?”
 
-The village lay below in the thinning mist. The apothecary roof. The ivy. The narrow garden. And at the gate — a long way off now, very small — one figure standing quite still with her hands folded in front of her, exactly where he had left her.
+“That you want a family. That you’d never leave me.” She kept her eyes on the water. “Not for anything in the world.”
 
-She had not moved.
+“Well,” he said. “She’s not wrong.”
 
-He stood on the rise and looked at her until a soldier behind him said, not unkindly, “Keep moving, friend,” and he turned, and kept moving, and the hill came up between them.
+A heron lifted out of the reeds on the far bank, slow and grey, and flapped away downstream into the gold.
 
-Beside him, a young soldier with a sunburned neck glanced over.
+“I’m waiting,” said Lyora.
 
-“First time leaving home?”
+She said it very simply. She did not look at him.
 
-Esdel looked straight ahead.
+“I know you are,” said Eldric.
 
-“Something like that.”
+“It’s been a year. A soldier came through in the spring and said he was alive, and that was a long time ago, and I don’t know—” Her voice caught. “I don’t know if he’s alive. I don’t know if he remembers the way here. I don’t know if there’s anything to wait *for*. But I’m waiting. I don’t know how not to. I know it isn’t fair.”
 
-“You get used to it.”
+She had turned her face a little away toward the water, and a tear ran down the side of her nose, and she let the evening wind take it. Eldric saw. He looked at her profile against the gold, and at her hands clasped around her knees. Then he looked back at the river, because he was kind, and because he knew that she would rather not be looked at.
 
-He did not answer. He hoped he never would.
+“Then I’ll wait a little too,” he said.
+
+She turned her head.
+
+“Not *at* you. I won’t hang about your door, or send Ma.” He rubbed the back of his neck, the way he did when words were difficult. “I’m not in a hurry. The fields don’t care if I’m married. I’d rather wait and see how the story ends. Before I start another one.”
+
+“You’re a good man, Eldric,” she said quietly.
+
+“So everyone keeps telling me.” He smiled, crooked. “It never seems to get me anywhere.”
+
+She laughed. She did not mean to. It came out of her surprised and wet and helpless, and he laughed too, like children, the way they had laughed once picking herbs in the forest. Then it faded, and they watched the river go gold, and then rose, and then grey.
 
 ---
 
-Lyora stood at the gate until the last sound of the march was gone from the hills.
+When she got home, it was dark. Arwen had already gone up to bed.
 
-Then she stood there a while longer.
+The lamp was not lit.
 
-The sun came up properly. The mist burned off the fields. The village went back to its work around her, quietly, giving her room — the baker to his ovens, Reyn to his river bend, the children to their chores. Nobody spoke to her. Nobody needed to.
+Lyora stopped at the foot of the stairs, looking at the dark second step, the empty place where the lamp should have been. Her grandmother had always lit it, the nights Lyora was late. Every time. All year.
 
-When she finally walked home, Arwen was in the shop, grinding something she did not need, very slowly, with her back to the door.
+She found it on the kitchen shelf, full, the wick trimmed. Beside it lay the flint.
 
-Lyora went past her without a word. She went to the kitchen shelf, and took down the lamp, and filled it, and trimmed the wick, and struck the flint, and lit it.
+Arwen had tried. Lyora could see it now — the little scratches on the flint, the scatter of tiny black specks on the shelf where sparks had fallen and not caught. Her grandmother had stood here in the dark, with her trembling hands, and struck and struck and struck, and not been able to hold the flint steady enough to light it. And then she had put it down, very neatly, beside the lamp. And gone up without a word, so that Lyora would not have to see her try.
 
-In broad daylight. With the sun coming in gold through every window of the house.
+Lyora stood in the dark kitchen with the flint in her hand for a long time.
 
-She turned it low, and carried it to the foot of the stairs, and set it on the second step.
+Then she lit the lamp. She turned it low. She set it on the second step, where it belonged. And she sat down beside it, in its small gold light — the way she had sat once, a year ago, in the rain — and put her arms around her knees, and rested her head on them.
 
-Then she stood and looked at it — the small useless flame, pale in the morning light, burning for no one — and put her hand flat against her own chest, where the necklace had rested since she was a little girl and did not rest anymore.
+She had not cried on this stair since the night he went. She had been so careful. She had cried in the shop, and at the table, with her face turned to the wall, and through the thin wall into a pillow. But not here. Here was where she had said everything, and he had held her, and she had thought she had nothing left.
 
-Behind her, the pestle had stopped.
+She had been wrong. It came up from somewhere beneath the ribs, with no sound at all. Her shoulders shook. She pressed the back of her wrist against her mouth, and the lamp flame wavered, blurred, doubled, and she sat on the second step with her forehead on her knees and let herself, for the first time in a year, cry on that step.
 
-Arwen did not say anything. After a long moment, the pestle began again. Slowly. Steadily. The way a heart goes on beating when there is nothing else it can do.
+Above her, in the dark at the top of the stairs, Arwen’s door stood open a hand’s width. It had been open all along.
 
-“Come back,” Lyora whispered, to the lamp. “Where it’s warm.”
-
-The lamp burned on. The house was very quiet. And the road beyond the hills, when she went to the window, was empty all the way to the edge of the world.
+Neither of them said a word.

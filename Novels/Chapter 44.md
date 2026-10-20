@@ -1,119 +1,79 @@
 # **Chapter 44**
 
-The week began with an uneasy rhythm.
+The decree was read in the Hall of Clear Waters on the third morning after the new moon, before the whole assembled court.
 
-Esdel noticed it first — the beds filling faster, the groans heavier, and the faint stench that clung to the air no matter how many times he cleaned. At first, he thought it was exhaustion. Too many wounded, not enough hands. But soon, the pattern was impossible to ignore.
+The lanterns were gone from the hall now, and the silk screens. The black marble floor was bare and cold and reflected the grey light of the high windows like still water. At the far end the King sat on his throne, very still, his face tired and grey. Beside him, one step down, stood the Crown Prince with his eyes on the floor.
 
-Fever. Vomiting. Skin pale, lips dry.
+And before the dais, alone, stood Count Aldric Reng.
 
-These weren’t battle wounds. These were **illnesses**.
+He had come without his cane. His right arm hung in a sling of black silk, the hand wrapped in white linen to the elbow, and a long dark bruise ran down one side of his face from temple to jaw. He did not speak of it. The court had already heard the story, the way the capital always heard stories, faster than any herald.
 
-He checked the records, spoke with the quartermaster, and reviewed the food supply. The rations hadn’t changed. The herbs were measured, the instruments boiled. Yet the patients kept coming.
+*She drugged the whole household and took the baby, the Lián heir, and fled. The Count rode after her himself, through the storm. At the Greenwater ford her apothecary — the nameless one, some kind of demon, they say his eyes went red as a fox’s — cut the Count’s hand to the bone and threw him in the river.*
 
-By the fourth day, mortality crept higher than wounds from the front.
+*They say she’s gone mad with that dragon in her head. They say she means to use the child.*
 
-That night, Esdel stood outside the tent, staring at the moonlight rippling over the water barrels. Something about it gnawed at him. The smell—slightly metallic. The surface—cloudier than usual.
+---
 
-“...It’s the water,” he murmured.
+The Prime Minister unrolled a scroll and read it in a clear, flat voice, and every word fell into the silent hall like a stone into still water.
 
-The next morning, Esdel approached Dr. Halden, who was scribbling reports with trembling hands.
+“*By the will of the Crown, and in the name of the safety of the realm: let it be known that the woman Lián Xueyao, formerly General of the Northern Front, formerly styled Maiden of the Heavenly Dragon, has on the night of the new moon abandoned her command and taken by force and by stealth the infant Lián Yueming, ward of the Crown. That she did assault the person of his lawful guardian, Count Aldric Reng, with intent to kill. That she did force the north gate of the capital in defiance of the Crown’s watch.*
 
-“Sir, I believe the contamination comes from our water source,” Esdel said firmly.
+“*Let it be known that all her titles and properties are forfeit, that her name is struck from the rolls, and that any who give her shelter, food, or aid shall suffer the same penalty.*
 
-Halden didn’t even look up. “Nonsense. The source’s been clean since last inspection.”
+“*And let it be known that the following persons, having knowingly aided the said traitor, are likewise declared traitors to the Crown and condemned to death wherever they may be found.*”
 
-“With respect, sir, that was nearly two months ago. We’ve had reports since then.”
+He read fifteen names. Every soldier of House Lián who had ridden south with her in the spring, the living and the dead alike: the four who had fallen in the gateway, the two in the Street of Lanterns, the two pulled from the Greenwater and known by their armor. Their names, their ranks, the villages they had come from.
 
-Halden sighed, rubbing his forehead. “Esdel, we don’t have the men or time to chase every shadow. We heal. That’s our job.”
+Then the Prime Minister paused, very slightly, as a man pauses before a word he does not know how to pronounce.
 
-“I understand,” Esdel said quietly. “But if the water’s poisoned, every patient you heal will return here again.”
+“*—and the apothecary Esdel, of no family, formerly of the Third Logistic Company and the medical division of the North Ridge post, late of the village of Edenridge.*”
 
-Halden’s pen stopped mid-scratch. He looked up, eyes narrowing. “You have proof?”
+The name fell into the hall and lay on the cold black floor.
 
-Esdel hesitated. “Not yet.”
+Aldric Reng did not move. But the corner of his mouth, on the unbruised side, lifted very slightly, so slightly that no one saw it but the Grand Duke, who looked away at once, as a man looks away from something unclean.
 
-“Then—”
+“*A reward of five thousand gold crowns is offered for the traitor Lián Xueyao, living. And one thousand for any of her accomplices. Living or dead.*”
 
-Before he could finish, **Benn**, one of Halden’s younger assistants, burst in carrying a basin. “Sir! Look!”
+The King took up the brush and signed at the foot of the scroll in a single long unhurried stroke. His hand did not tremble.
 
-He held up a glass flask filled from the supply barrel. The water shimmered faintly under the lamplight—not clear, but tinged with dull brown.
+When the court had gone, the Crown Prince had not left. His father had not dismissed him.
 
-“We filtered it twice, and it still reeks of metal,” he said, breathless. “Even the livestock refuse to drink it.”
+“The guards at the north gate say the gate was forced,” said the King at last, very quietly. “It will be what history says. I made certain of it. You were never there. Khalid was never there. It never happened.” He did not look at his son. “And you will never do it again.”
 
-Halden’s frown deepened. He didn’t want to believe it. But the evidence was staring him in the face.
+Ardbert looked at him a long moment. Then he bowed the full court bow and walked the length of the black hall alone.
 
-After a long silence, he muttered, “Damn it all.” Then, turning to Esdel, “Fine. You’ll check the source. But you’re not going alone.”
+The King took from his sleeve a small, very old, folded paper: a corner torn from a larger map, with a coiled golden shape in faded red ink. *Heaven’s Beast. Bound to the blood of Lián.* He dipped his brush, and beside the old characters he wrote two new ones.
 
-He called a nearby guard. “Four men will accompany him. I can’t afford to lose my assistant to curiosity.”
+*For now.*
 
-Esdel gave a small bow. “Understood, sir.”
+---
 
-They left before noon. The sun hung pale, filtered by thin clouds, and the path wound through thick trees and uneven ground.
+The decree reached the Eastern Post on a wet morning, nailed to the post of the command tent by a courier who did not dismount.
 
-The soldiers—grizzled men who had survived too many ambushes—kept a steady watch as Esdel followed the stream uphill.
+Halden read it standing in the mud in his shirtsleeves with a mug of coffee going cold in his hand, the way he read a wound: from the top, all the way to the bottom. He got to the last name, and stopped.
 
-Hours passed until the faint sound of rushing water echoed through stone. They reached a rocky outcrop where the stream vanished into a narrow fissure in the cliff — a small, dark opening no wider than a man’s shoulders.
+“*Formerly of the Third Logistic Company and the medical division of the North Ridge post.*” His voice was flat. “A month he was here. And it’s North Ridge on his traitor’s warrant.” He took a long breath through his nose. “*Idiot.*”
 
-“This is it,” Esdel said, kneeling beside the flow. He dipped his fingers into the water. It was cold — unnaturally so — and the faint tang of iron was unmistakable.
+He did not say it the way he said it to Benn forty times a day. He said it like a man saying a word he has been saving for exactly the right occasion, and has found it, and wishes he had not.
 
-“Can’t see a damn thing in there,” one soldier muttered, peering into the narrow entrance.
+“I gave him that vial. I told him to come back in one piece so I could give him a proper lecture. I never gave him the lecture.” He looked at the coffee. “Oh, he’s alive. They wouldn’t offer a thousand crowns for him if he weren’t.”
 
-“We’ll go first,” said another. “You stay behind us, Apothecary.”
+He folded the decree along its creases and put it in his apron pocket over his heart, with the lucky coin and the letter from his sister, and went back in to the fever patients.
 
-Esdel nodded. “Be careful. Don’t go too deep.”
+At North Ridge, the dragon had stopped sleeping. Since a moonless night in early summer, when it had lifted its head as though someone had called its name, it lay on the high rock of the eyrie with its gold eyes fixed on the southern horizon and keened, a long rising note that hurt the teeth. When the enemy came over the lines in the dark, it did not rise. The post lost a mile of ground, and three hundred men. In the medical tent a wounded boy named Loryn heard a clerk read the last name of the decree, and lay back on his cot, remembering a tall quiet man he had meant for seven months to say *I’m glad you’re alive* to, and had not. Above the camp the dragon keened again, in full daylight, like something that has lost the one thing it was bound to and does not understand where it has gone.
 
-One by one, they squeezed through the opening. The last soldier struck a light, turned back, giving a thumbs-up before vanishing into the darkness.
+---
 
-Then… silence.
+In the first week after the decree, a clerk had come to the Reng house with a limner at his elbow, to take the likenesses of the traitors for the bills. The General’s face they had. The soldiers they had pieced together from grooms and kitchen maids. There remained only the apothecary.
 
-Esdel waited. A minute passed. Then two. The sound of running water filled the void where voices should’ve been.
+*You saw him closer than anyone, my lord. At the ford.*
 
-He cupped his hands around his mouth. “Sergeant? Can you hear me?”
+The Count considered the question with great courtesy.
 
-No reply.
+*I’m afraid I barely remember him. Brown eyes, I think. Neither tall nor short. The sort of man one passes in a corridor and forgets.* He smiled, apologetic, and lifted his ruined hand a little in its sling. *It was dark, you understand. And I was occupied.*
 
-“Oi! It’s Esdel! Report!”
+The limner drew nothing. The clerk wrote *no particular features* and went away. And the Count sat on alone, looking at the garden, smiling.
 
-Nothing but the echo of his own voice.
+A man with a face on every tree hides in the hills and never comes down. A man with no face begins, in time, to believe he is safe. He starts to go down to markets. He starts to think of roads.
 
-A chill crawled up his spine. He grabbed a torch, lit it, and pressed into the narrow gap himself.
-
-The tunnel was damp and suffocating, the air thick with the smell of moss and rot. His torchlight flickered against the slick walls, revealing drops of water falling like tears.
-
-When he emerged into the larger cavern beyond, the stench hit him first — blood and decay.
-
-The soldiers were there. All four. Motionless.
-
-Their bodies lay scattered near the stream that flowed from deeper inside. Their throats were cut cleanly, their weapons untouched.
-
-Esdel froze, heart hammering.
-
-“...Who did this?” he whispered.
-
-A voice answered from the darkness, smooth and venomous.
-
-“Who, indeed? The dog of the Kingdom dares to ask?”
-
-The flame quivered as the voice drew closer.
-
-Esdel turned, scanning the shadows. His torch barely reached the far side of the cave. Then, he saw him — a lone figure, sitting atop the bodies like a man upon a throne of corpses.
-
-He was young, perhaps Esdel’s age, but his armor bore no insignia. His eyes gleamed faintly crimson in the torchlight, and his smile was cold.
-
-“I wondered what kind of fool they’d send to fetch their poison,” the stranger said, rising to his feet. “But it’s just a healer. How pitiful.”
-
-Esdel tightened his grip on the torch. “You killed them.”
-
-“I *freed* them,” the man replied. “Better dead than serve that rotting kingdom.”
-
-Esdel’s pulse steadied. “Then you’ll have to free one more.”
-
-The man laughed — low, amused. “So the dog bares its teeth.”
-
-He drew a curved blade, its edge glinting wet in the torchlight.
-
-Esdel shifted his stance, drawing his knife, eyes narrowing.
-
-The cave fell silent, save for the drip of water and the crackle of flame.
-
-Then, both men moved.
+And sooner or later, every road a man like that thinks of runs home.

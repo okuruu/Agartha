@@ -1,116 +1,121 @@
 # **Chapter 39**
 
-The road wound through low hills and wild fields where the wind whispered through tall grass like a tired song. Once, there had been five hundred marching under the same banner. Now, there were seventy — a dozen of them on litters, and the medicine cart bound for the Eastern Post creaking along between them.
+He asked for her on the twentieth day after the funeral.
 
-The rest remained behind — scattered across the broken fronts of a war that demanded too much and gave too little in return.
+He did it properly: a letter in his beautiful hand, sealed in the white mourning wax with the silver serpent, requesting the General’s company in the east pavilion on a matter concerning the future of her house. Xueyao read it twice, standing at the window, and held it out to Changli.
 
-The captain’s words echoed still:
+“Don’t go,” said Changli.
 
-“Seventy’s what we have left. Maybe it’s a mercy — seventy move faster, quieter, and draw fewer eyes. We’ll deliver the supplies, tend the wounded, and return before the moon turns twice.”
+“I’ll go. I want to hear him say it.”
 
-And so they marched.
-
-The first days passed in rhythm — sky shifting from pale gray to burning gold to violet dusk, and back again. Soldiers spoke little. Their language was rhythm: the crunch of boots on dirt, the creak of leather, the faint rattle of armor. In their silence, there was a strange unity — the kind that only came from men who had survived together for too long to need words.
-
-When dusk fell, the captain’s hand lifted, and the formation slowed to a halt. Orders came short, practiced:
-
-“Tents, east of the ridge.”  
-“Twelve for firewood. Twelve for water.”  
-“Watch rotations — same as last night.”
-
-They moved as one body. Esdel helped where he could — hauling timber, hammering stakes, tying ropes until his palms burned. The soldiers didn’t question him. One clapped his shoulder, another passed him a rope with a faint grin.
-
-“Not bad for a village boy,” one said.
-
-Esdel smiled — faintly, honestly. “I learn fast.”
-
-When the campfire bloomed, its warmth spread through the dark like a fragile defiance. Laughter followed — small, worn laughter that didn’t chase away the silence but softened it. A few men had returned with fish from a nearby stream, glistening silver in the firelight. They roasted them on sticks, trading stories that began like jokes and ended like laments.
-
-For a moment, it almost felt like peace.
-
-Esdel sat a little apart, cleaning the sword the quartermaster had pressed on him that first morning — “An apothecary who can’t defend his cart is just a cart,” the man had said — beneath the fire’s glow. The silver necklace beneath his tunic caught faint glimmers from the flames, pulsing with warmth as if it remembered whose hands had given it to him.
-
-He could still hear her voice — worn to nothing, *“Come back to me.”* And under it, the other one, from the stairs, in the dark. *You promised.*
-
-The fire crackled.  
-Then a voice came from across it.
-
-“Can’t sleep?”
-
-Esdel looked up. One of the older soldiers — rough beard, kind eyes, face carved by years that had stolen too much.
-
-“Not yet,” Esdel replied. “You?”
-
-The man chuckled quietly. “Sleep doesn’t come easy on the road. Not when your heart’s still somewhere else.”
-
-Esdel tilted his head. “Your home?”
-
-The soldier nodded, eyes unfocused on the flame. “Aye. Left my wife just before the frost. She’s expecting soon.” He smiled — the kind of smile that hurt to hold. “She scolded me for forgetting my gloves. All that crying, and that’s what she remembers.”
-
-Esdel’s lips twitched. “Sounds like she loves you.”
-
-“She does,” the man murmured. Then his voice cracked, too soft to hide. “And I… gods, I miss her. Sometimes I wonder if she’s still watching the door, waiting. She said she would.”
-
-He fell silent for a while. The fire filled the space between them, steady and alive.
-
-Finally, he whispered, “I can’t wait to go home.”
-
-Esdel looked at him — saw the trembling hands, the hollow exhaustion, the stubborn spark of hope that refused to die.
-
-“You will,” he said quietly. “You’ll go home. To her. To your child.”
-
-The soldier smiled at that — small, tired, but grateful. “You sound sure.”
-
-“I believe it.”
-
-And for a long while, they said nothing more. The wind sighed through the grass. The stars hung sharp and cold, scattered across the dark like distant lanterns.
-
-Esdel leaned back, the necklace pressing faintly against his chest, and for the first time since leaving Edenridge, he let himself believe — even if only for a moment — that they would all return.
-
-That he would come home.
-
-Night deepened. The campfire burned lower, embers glowing red against the endless dark. The men had grown quiet, their laughter fading into soft snores and shifting armor.
-
-Esdel stayed awake a little longer. He turned the necklace between his fingers, tracing the small flower pendant with his thumb. It was still warm.
-
-He looked up at the stars again — sharp, endless, silent. Somewhere beneath them, far beyond the reach of the road, was a little village where someone was still waiting for him.
-
-The thought steadied him. It hurt, too. But it steadied him.
-
-He lay down at last, the scent of ash and pine in the air, the faint hum of crickets filling the spaces between breaths.
-
-The war would continue tomorrow. The marching, the silence, the endless road.
-
-But for now — beneath the ashen sky — Esdel closed his eyes and dreamed of Edenridge.
-
-Of laughter.  
-Of hands that once trembled when they touched his.
-
-And of two promises. The one he had broken in a square full of torches, less than an hour after he made it.  
-And the one he had made instead, on his knees at the foot of the stairs — and meant with everything in him.
+Esdel, by the door with the tray of bark tea he still brought her every morning out of a habit neither of them had broken, saw her face, and understood with a slow cold drop in his stomach that she already knew.
 
 ---
 
-The days in Edenridge had grown quieter without him.
+The east pavilion stood beyond the peach tree on a rise above the river wall, a single room of dark wood open on three sides, hung now with white silk. Esdel, told to wait at the foot of the rise with Han Ruo, could not hear. He could see the General, straight-backed in her plain dark coat, and the Count at the rail with his cane, speaking gently.
 
-The apothecary’s house, once filled with Esdel’s careful footsteps and quiet laughter, now felt larger — emptier. Every clink of a jar, every rustle of parchment echoed through the rooms like a ghost.
+*Marry me.* He did not hear it. He saw her face not change at all, not by a hair, and knew. Beside him Han Ruo said something that was not a word in any language Esdel knew.
 
-Lyora sat by the window, hands moving mechanically as she ground herbs in a small mortar. The scent of mint and mugwort filled the air. She was working, but her mind was somewhere else — following the roads he had taken, the hills she could no longer see beyond the horizon.
+He learned the rest later, from Changli. The King had no objection. And Xueyao had said, *You don’t need me for any of that. So say the rest.* And the Count’s smile had deepened and become, for the first time, entirely honest. *Half-divine. A line that commands the beast that won the war. It is not a house. It is a throne, waiting for someone with the patience to build the stairs.*
 
-Sometimes she would step outside and watch the path at dusk, when the sun bled gold over the fields. She would tell herself it was only to check the herb beds — to prune, to water — but her eyes always drifted toward the gate.
+“And if I have no children,” she had said, “there is always my brother.”
 
-Always waiting.
+“There is always your brother,” the Count had agreed.
 
-Arwen never said it aloud, but Lyora could feel it — the quiet understanding in the way the old woman’s hand would brush her shoulder when passing, the silent comfort of tea left by her bedside.
+She did not strike him. Afterward that was what Han Ruo could not stop saying, hoarse with awe. She stood where her father had read in the evenings and looked at Aldric Reng with a calm deeper than any Esdel had seen on her, the calm of deep water at night, when there is no wind.
 
-The days passed like that: soft, slow, deliberate. She worked. She waited. She prayed to no one in particular.
+“No.”
 
-She did not cry. Not once, in all those weeks. Arwen watched for it, and it did not come. It was as if she had used up all her tears in one night on the stairs, and there were simply none left.
+“I thought you might say that. I’m a patient man.”
 
-But each night, when she set the lamp on the second step, her hand would rest against her chest — where the necklace had once been — and she would whisper into the dark:  
-“You promised.”
+“I know,” said Xueyao. “I’ve seen your patience. I buried it on the hill above the river.”
 
-And then, after a while, more gently:  
-“Be safe.”
+She walked past them without stopping, through the garden, past the empty pavilion where her mother had drunk her tea every day for a year, and into her rooms, and closed the door. Esdel thought of the field tents, and the men in the last hour who had understood that nothing more could be done, and lay very still, and looked at the roof with clear, peaceful eyes. Not despair. Something past it.
 
-Even though she didn’t know if the wind could carry that far.
+“Leave her,” he told Changli. “For now. Not for long.”
+
+---
+
+She was not in her rooms at midnight. The window was open on the garden, and the white curtain blew in and out like breath. “She went out the *window*,” said Changli, white-faced, with a lamp.
+
+He found her beneath the peach tree. He did not know how he knew; his feet simply went, over the wet grass silver with moonlight. The blossoms had all fallen in the weeks of the funeral, and what remained was the small hard green of new fruit. She sat on the stone bench where she had held her brother, very straight, looking past the tree. North.
+
+“I can feel it,” she said, quiet and conversational. “It’s been awake since the morning she died. It paces round and round the eyrie at North Ridge. It’s asking me what I want. For the dragon, it’s a night. If I called it now, it would be over the walls before dawn. That’s the pact. I command. It obeys.”
+
+“And it feeds,” said Esdel.
+
+She turned her head. Her golden eyes were very dark, and there was nothing in them. “I have fed it men, Apothecary. Prisoners, deserters, chained to the altar, and I stand there, because the pact requires it. Nine years. I know every sound it makes when it eats. Boys, some of them. Younger than Pei.” Her hands were perfectly still. “I can feed it him.”
+
+He had known she would say it. Still it went through him like cold water. He came across the paved circle through the drifted petals and sat at the other end of the bench, the width of it between them, the way he had sat once on a stair, a few steps above someone, in the rain.
+
+“You could. It would burn this house, and him in it. And the cook who gave me the brazier. And the maid who slept outside your mother’s door. And the nursery.” He was quiet a moment. “And tomorrow the King would send the army, and you would have to call it again. And every time it would be hungrier, and every time you would have to stand there and listen.” A single late petal fell from high in the tree and landed on the black water without a sound. “Your mother didn’t ask you for vengeance.”
+
+Xueyao went very still.
+
+“She was lucid enough to ask you for anything. She didn’t ask for the house, or the name, or the gold. She said *him*. Your brother. Keep him safe.” He turned and looked at her. “That’s the promise you made.”
+
+For a long moment nothing happened. Then something moved in her face, a tremor at the corner of the mouth, and he watched it spread the way a crack spreads through river ice in spring. Into her jaw. Into her shoulders.
+
+She put her hands over her face.
+
+She did not make a sound. She never did. But her whole body shook, and Esdel sat at the other end of the bench and did not touch her, and did not speak, and did not leave. It was all he knew how to give. Far away to the north, something vast and golden stopped its pacing in the dark, and lay down, and was still.
+
+---
+
+It was a long time before she spoke.
+
+“The blood is in him too. A child, fourteen, with that thing in his head, asking for souls, and that man beside him telling him what to feed it. He can’t stay in this house.” Her face was wet and blotched and entirely without dignity. It was the first time he had seen her look her age.
+
+“And you can’t either. So you leave. You take your brother, and you go.”
+
+“I would be a deserter. A traitor.” Her voice cracked on the word. “My father’s daughter.”
+
+“Yes,” said Esdel.
+
+She stared at him. And then, to his astonishment, and he thought to hers, she laughed, small and cracked. “You’re a terrible comfort, Apothecary.”
+
+“I know. Someone told me once I should learn to lie better.”
+
+“Who?”
+
+“Your mother. And before that—” He stopped.
+
+She was watching him, a tired young woman on a garden bench at midnight, looking at someone she had just realized she knew nothing about. He looked down at his hands.
+
+“There’s a village. Near the desert, a long way south and west of here. There was an apothecary there, an old woman, and her granddaughter.” He did not say the name. He found he could not. “They took me in. They didn’t ask where I came from. I lived in their attic for a spring and a summer. When the soldiers came, they wanted her. I went instead. And in the morning she gave me this.”
+
+He touched the chain at his throat. The silver flower was warm. It was always warm when he spoke of her.
+
+“It was her mother’s. Her mother went to the war and didn’t come back. I promised I would. I’d already broken one promise to her that night. I promised her I’d stay, and less than an hour later I stood in the square and let them take me instead of her. She cried until she couldn’t breathe.” He heard it again, the small ragged sound on the stair, the rain, his own arms useless around her. “I won’t break the other. I don’t think I would survive it.”
+
+Xueyao said nothing for a long time.
+
+“The letters,” she said finally.
+
+“I burned them. The Count has my service record. He knows the name of the village. He said it to me in my room.” He heard her breath catch. “So I can’t go home either. If I go back, I lead him to her door.”
+
+“Then come with me,” said Lián Xueyao.
+
+She was not looking at him. She was looking at the pale roof of the nursery.
+
+“Not for my sake. You made your promise already, to someone else. Come because you can’t go home, and because I will need someone who knows what’s in a cup before anyone drinks it, and doesn’t lie well enough to be a danger to me. And because—” Something moved in her face, and was put away, the way a soldier puts away a letter from home. “Because if you’re with me, the Count won’t be looking south. He’ll be looking for *us*.”
+
+He understood what she was offering. Not a place. Not safety. Only a direction for the hunt to run in, away from the river and the willows and the ivy-covered house at the edge of the desert. Away from a lamp on a stair.
+
+It was the only gift in the world he could have accepted.
+
+“Yes,” he said.
+
+She did not thank him. After a while she rose, and wiped her face with the heel of her hand, once, briskly, like a soldier, and was the General again. “Tomorrow we plan.” At the edge of the paved circle she paused, without turning.
+
+“What was her name?”
+
+He was silent so long that she began to walk on.
+
+“Lyora,” he said.
+
+It was the first time he had said it aloud in a year. It was like setting down something he had carried so long his arms had forgotten the weight. It hung in the warm night air beneath the peach tree like a lantern on dark water, and then the wind took it. His eyes burned. He did not move to wipe them.
+
+Xueyao stood still. “Lyora,” she repeated softly, as though testing the sound of it. As though putting it somewhere safe.
+
+Then she went in.

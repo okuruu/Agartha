@@ -1,89 +1,51 @@
 # **Chapter 40**
 
-By the third day, the road had turned narrow and wild.  
-The air hung damp beneath a ceiling of leaves, thick enough to dim the light into a muted green haze. Roots clawed through the path like bones surfacing from the earth. The scent of moss and wet bark clung to every breath, and beneath it all was a silence so deep it felt like the world was holding itself still.
+They planned it in the old stillroom behind the stables, where Esdel had made the tonic that gave a dead woman six days.
 
-The soldiers moved in two lines, steps steady, shoulders squared. Seventy men — all that remained of five hundred — moving with the unspoken rhythm of those who had seen too much and spoken too little. The cart creaked softly between them, its wooden wheels cutting faint grooves in the mud as it carried the medical supplies meant for those who still fought beyond the hills.
+Eight of them, around a scarred table, by the light of one shuttered lamp. The General. Changli. Han Ruo. Pei Lun, who had not been invited and had come anyway. Suyin, the archer, a narrow quiet woman of forty who listened with her whole body, the way a hunting cat listens. Two more of the Lián guard. And Esdel.
 
-Esdel walked near the rear of the formation. His hand rested loosely on the hilt of his sword, fingers tracing the worn leather grip as if trying to remember something it should know.  
-He could hear the others — the soft grind of armor, the faint rasp of boots dragging through grit. Every sound was clear, too clear, as though the silence around them was amplifying the smallest motion.
+“It has to be soon,” said Xueyao. “Eight days from now is the new moon.”
 
-Something felt wrong.  
-Not in the obvious sense — no cries, no rustle of pursuit — but in the *absence* of what should be there. No birdsong. No wind brushing through branches. Even the insects had vanished. The forest seemed to be listening.
+It was not complicated. That was what frightened him, afterward: how few the moving pieces were. How easily any one of them could break.
 
-A faint prickle crawled along the back of his neck.
+The house would sleep. That was his part. Valerian and poppy and a measure of greyveil in the evening soup, enough to make a strong man sleep like a child for six hours. “No one will be harmed,” he said. “I’ve measured it for the smallest of them. The kitchen girl who brings the bread. She’s twelve.” He did not say: *I have measured it four times, against my notes, and against the memory of a young soldier in a tent whose muscles went quiet one by one.* Changli looked at him across the table, and he knew she heard it anyway.
 
-The captain raised a hand. The column halted as one, practiced and efficient. The men didn’t speak; they waited. The captain’s gaze swept the trees, hard and alert.
+The nursery was the second part. “He doesn’t come with us,” said Xueyao, and the room went silent. She turned to Changli. “The whole Crown will be looking for a general with a stolen child. No one will be looking for a lady’s maid. A young widow with a baby, going home to her family in the south, by the river road, with a quiet woman for a servant. You’ll raise him, far from this city, far from me. You’ll teach him to read and to ride and to be kind, and you won’t tell him who he is until he’s old enough to choose what to do with it. That’s all my mother wanted.”
 
-“Wind’s changed,” he said quietly.
+Changli had known; Esdel saw it. She sat very straight, her beautiful face perfectly calm.
 
-The words spread through the ranks like a ripple. Esdel lifted his head — the air did feel strange now. Cold, and wrong, pressing in from a direction it shouldn’t. He couldn’t say how he knew, only that his body recognized it before his mind did.
+“You’re sending me *away*,” she said, and her voice broke, just slightly, on the last word.
 
-“Enhance your bodies,” the captain ordered.
+Xueyao reached across the table and put her hand over Changli’s folded ones. It was the first time Esdel had seen her touch anyone except her mother. “Because you’re the only one I trust with him. Because you’re the cleverest person I have ever known. And because if you stay with me, you’ll die. I’ve buried enough.”
 
-Around him, soft murmurs broke the stillness — men whispering incantations under their breath. A faint shimmer bled into the air as threads of magic awakened, wrapping around them in ghostly hues of blue and silver. Esdel watched, fascinated and uneasy. Their breaths deepened, their eyes sharpened. They moved like wolves scenting prey.
+Changli turned her own hand over and gripped Xueyao’s, hard, and said nothing else at all.
 
-He stood still.
+The rest was gates and horses. The river gate for Changli and Suyin and the baby; the great gate for the rest; the north gate of the city, and its twelve Crown soldiers, whom they could neither drug nor bribe. “Then we go through,” said Xueyao, and no one said anything after that.
 
-He didn’t know the words. Didn’t even know if his body remembered how to obey such a command. A hollow pulse thrummed in his chest — not fear, exactly, but something heavier, colder. *Enhance your bodies,* the captain had said. But Esdel’s body was all he had — unenchanted, untrained, uncertain.
+---
 
-A flash of movement caught his eye.
+When the others had gone, Esdel stayed behind to burn the papers. The plan for the soup. The list of the household. The measures, written out four times in his small strange hand.
 
-The captain had turned to signal the scouts—  
-Then stopped.
+Then he took a fresh sheet from his coat, and the stub of charcoal, and wrote.
 
-A sharp sound split the silence.
+He had not meant to. He had told himself, the night the Count came to his room, that a letter was a thread, and a thread could be followed. He wrote anyway. It came out of him the way the knots came out of his hands, without deciding, from somewhere beneath memory.
 
-**Thwip.**
+He did not write about the Count, or the funeral, or the plan. He wrote about the peach tree: how old it was, and how it was bound with iron where the storm had split it, and how it had flowered anyway, every spring, for longer than anyone living could remember. He wrote that the fruit was setting now, small and hard and green. He wrote that he thought she would have liked it.
 
-A single arrow. Then a cry — strangled, brief, ending in a gurgle.  
-The man beside the cart fell to his knees, blood spreading down his neck like spilled ink.
+He wrote that he was sorry. He did not write what for. There were too many things.
 
-“AMBUSH!”
+And at the end, after a long time with the charcoal lifted above the page, he wrote one more line.
 
-The captain’s roar tore through the forest.
+He read the letter through once, by the low lamp. He folded it in half, and in half again, and held it over the flame, and the edge browned and began to curl, and he took it away. His heart was doing something slow and heavy in his chest. He tore the paper small, and smaller, until the pieces were too small to hold a word, and fed them to the flame, and watched each one go.
 
-Chaos answered.
+All but one.
 
-Arrows rained from the treeline, black shafts hissing through the gloom. The first volley struck like a storm — steel into bark, flesh, and soil. The soldiers dove for cover, dragging the cart toward the ridge. The air filled with shouts and the wild percussion of metal clashing wood.
+The last piece was a corner no bigger than his thumbnail. There was nothing on it but a single word, in his small strange hand, from the very end of the letter. He looked at it for a long time. Then he tucked it into the silver chain at his throat, behind the little flower, where it lay against his skin, and warmed.
 
-Esdel threw himself behind a tree. His heart hammered against his ribs.  
-The captain’s voice cut through the noise:  
-“Form the circle! Litters and supplies inside! Don’t scatter!”
+He did not know if that was foolish too. He thought it probably was.
 
-The soldiers moved with precision, shields locking, spears braced, magic still glowing faint beneath their skin. It was a formation born from habit and horror alike.
+He blew out the lamp and went out into the dark.
 
-Esdel rose halfway — and realized too late he was outside the ring.
+---
 
-He turned to move, but the gap had already sealed. The circle had closed without him, tight and impenetrable. Beyond it, the enemy poured from the forest — figures draped in dark armor, their insignias a dull crimson like dried blood. They moved with purpose, silent and sure, spreading to encircle what remained of the supply unit.
-
-There were more of them. Twice as many. Maybe more.
-
-Esdel’s throat tightened. He gripped his sword in both hands. His mind screamed to run, but his body — that strange, instinct-driven thing — stayed still. His senses burned. The angle of the wind, the tremor of leaves, the faintest creak of a branch — every sound screamed of movement.
-
-Then one came at him.
-
-A blur of black and steel, teeth bared beneath a dented helm. Esdel moved without thinking — his blade lifted just in time. The clash rang through his bones, raw and jarring. The impact sent a shock through his arms, numbing them. He staggered back, boots skidding through the mud. His opponent pressed forward, swinging again, faster this time.
-
-Esdel ducked under the blade, clumsy but desperate. His body twisted, his shoulder screamed, and he drove his sword upward — a half-formed strike that caught the man’s side.  
-Not deep, but enough.  
-The man cried out and fell to one knee. Esdel gasped for air.
-
-Another came at him. Then another.
-
-The world narrowed to flashes of steel and breath and blood. He didn’t think, only *reacted*. His muscles remembered what his mind didn’t — how to move, how to block, when to twist away just before death could find him.  
-He fought like a man born from panic and instinct. Not trained — *driven.*
-
-Around him, the forest was alive with fire and sound — men shouting, magic crackling, trees splintering under force. The smell of iron and smoke and sweat thickened the air.  
-Somewhere, the captain’s voice thundered again:  
-“Hold the line! No one breaks!”
-
-Esdel barely heard it.
-
-His hand was slick with blood — his own or someone else’s, he couldn’t tell.  
-The ground trembled with every clash.  
-A body fell beside him. Then another.  
-He turned just in time to catch a blade with his own, the collision bursting sparks between them. His arms ached, his lungs burned, and yet — he *moved*. Faster than he thought he could. Guided by something that wasn’t memory but *instinct*, ancient and unspoken.
-
-The storm had come.  
-And Esdel stood alone beneath it.
+In the morning, on the western hill, the Grand Duke Rowan Hale — who had learned of the pavilion from a steward’s cousin, and had worked out in the night, with a pen and a sheet of paper he afterwards burned, that a Reng who held the dragon would not need him, and that a Maiden who ran would be a Reng without one — sent for the captain of the city watch, his wife’s nephew, and remarked, over the price of grain, that twelve men were a wasteful guard for a north gate that saw nothing after dark but farm carts. On the nights of the new moon, perhaps, four would be enough. The captain bowed, and said it would be seen to. Afterward the Duke stood a while at his window looking east toward a long wall by the river and the dark crown of an old tree, and something in his pale face eased, the way a man’s face eases when a long column of figures finally comes out even.

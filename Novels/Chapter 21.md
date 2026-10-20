@@ -1,90 +1,123 @@
 # **Chapter 21**
 
-Morning sunlight spilled softly across the attic beams, painting pale gold on the old wood and the folds of Esdel’s blanket. For a long time, he didn’t move. His mind floated somewhere between waking and memory — the faint sound of running water, the cold press of stone, the burning cut on his arm.
+Morning came too soon.
 
-Then he sat up.
+The mist lay low on the fields and the light came through it thin and pale, as though it were not sure it was allowed. Dew on the fence rails. Dew on the ivy. A single bird somewhere in the willows, trying one note over and over and not getting it right.
 
-And froze.
+At the gate at the bottom of the village, the soldiers were forming up. Buckles. Straps. The small tired sounds of men who had done this too many times to talk about it.
 
-The wound was gone.
+Esdel stood among them with his pack on his shoulder.
 
-No scar. No blood. Just clean, unbroken skin where the cut had been. He turned his arm over, heart pounding faster with every second. The skin looked normal — warm, flushed from sleep — but he could still feel the echo of pain beneath it, as if his body remembered what the flesh had forgotten.
+They looked at him sometimes, sidelong. He was not one of them. Not yet.
 
-“This… isn’t normal,” he whispered under his breath.
+The village had come down to see him off. He had not expected that. They stood along the lane in the mist in their sleep-rumpled clothes — the baker with flour already on his arms, Old Richard with his hands jammed in his pockets and his face set like a man at a funeral, the children from the lower street who had followed him to the channels all summer. Reyn, at the back, very large and very silent, holding a small bundle wrapped in oilcloth that turned out to be a set of bamboo splints, cut and smoothed and tied with Esdel’s own knot.
 
-His pulse roared in his ears. He dug his nails lightly into his forearm — almost hoping it would hurt, would prove he was real — and it did. Pain, warm and sharp. But no mark appeared.
+“Figured they’d have trees,” Reyn said gruffly. “Didn’t figure they’d have *good* ones.”
 
-His chest tightened. A sick, cold dread spread through him.
+Esdel could not answer him. Reyn clapped him on the shoulder, hard, and went back into the crowd.
 
-From below, the sound of laughter drifted up — Lyora’s voice, bright and soft, tangled with Arwen’s lower, steady tone. The scent of boiling herbs filled the air, mint and rosewood and crushed clover.
+An old woman pressed a carved talisman into his palm. Someone gave him bread. Someone gave him a pair of socks, knitted in three colors of leftover wool. *Come back,* they said, one after another, *come back, come back safe,* not loudly — the way people say it in the mist, at dawn, when they do not want to wake the thing they are afraid of.
 
-Forcing his expression calm, Esdel exhaled shakily and began to dress. His movements were stiff, mechanical. He couldn’t let them see — not Lyora, not Arwen. Not when he himself didn’t understand what he’d become.
+He nodded to each of them. He could not trust his voice.
 
-Downstairs, Arwen already had work waiting for him, and he was grateful for it. He kept his sleeve down and folded small paper packets of ginger and dried mint for the stomachs that would ache after the feasting. He stirred calendula into warm beeswax for the fingers that would reach too close to the lanterns.
-
-“Every year,” Arwen said, not looking up from her scales, “someone eats too much, someone gets too near a flame, and someone dances with more joy than sense.”
-
-“And which one are you?” he asked.
-
-“The one who mends the other three.” She flicked his ear with a sprig of mint.
-
-Lyora laughed at that — a small, real laugh. Then she saw that he had heard it, and looked back down at her mortar.
+Then he saw her.
 
 ---
 
-The market was already alive when he arrived — children weaving between stalls, voices calling out prices, the smell of bread and smoke and river fish mixing in the air. Esdel kept his head down, helping unload grain for one of the merchants, each motion precise and deliberate. Anything to drown out the thoughts clawing at his mind.
+She was standing a little apart, by the wall of the last house.
 
-He was tightening a rope when a familiar voice called out, “You’re working hard as always.”
+She had washed her face. She had braided her hair again, tight and neat, and tied it with a strip of plain cloth. She was wearing her apron. Her eyes were swollen almost shut, and red at the rims, and there were marks on her throat from the day before, and she was perfectly, entirely calm.
 
-Esdel looked up. It was Marin, the miller — a kindly man with deep smile lines and flour still dusting his sleeves. He grinned, wiping sweat from his brow.
+She had nothing left to cry with. He could see it. She had left it all on the stairs, in the night, in his arms. What stood by the wall in the mist was what remained when all of that was gone: a young woman with very straight shoulders, who was not going to make this harder for him than it already was.
 
-“You’ll tire yourself out before the Festival of Wishing Threads even begins,” Marin chuckled.
+It was the most painful thing he had ever seen.
 
-Esdel blinked, lowering the sack to the ground. “Wishing Threads? Is that what it’s called?”
+She came toward him. The soldiers made room without being asked.
 
-Marin’s eyebrows rose. “Ah, right. You’re still new to us. You’ve never seen it.”
+She stopped in front of him and opened her hand.
 
-He leaned against the cart, eyes softening with nostalgia. “Once a year, when the twin stars cross above our valley, we hang silken threads across every street — red for love, gold for fortune, blue for health, white for remembrance. Families and friends weave their threads together, binding their wishes to the stars. They say if you tie your hope right beneath the starlight, the heavens will listen. The first night, we hang the threads. The second, everyone writes a wish on a ribbon and ties it to the great tree in the square.”
+A necklace lay in her palm. Silver, old, fine as thread, with a small charm shaped like a flower.
 
-Esdel’s gaze drifted upward, toward the faint shimmer of daylight above the rooftops. “Sounds… beautiful.”
+“This was my mother’s,” she said. Her voice was hoarse. Worn to nothing. “She gave it to me in the doorway, the day she left with Father. I always thought—” She stopped. Started again. “I always thought if I gave it away, it would mean the person wearing it had to come home. To give it back.”
 
-“It is,” Marin said warmly. “You should come. Even if you’ve no wish to make, it’s worth seeing. There’s music, and firelight, and—” He grinned, teasingly. “Plenty of girls who’d happily tie a thread with a quiet lad like you.”
+She lifted it. Her hands were steady.
 
-Esdel laughed softly, but it felt hollow. “Maybe.”
+“So you have to come back,” she said. “To give it back to me.”
 
-Marin clapped him on the shoulder and moved on, leaving Esdel alone with the noise of the crowd — too bright, too warm. His smile faded slowly.
+He bent his head. She fastened it around his neck herself — her cold fingers at his nape, fumbling once on the clasp, then finding it. The charm settled against his chest. It was cold for a moment. Then it was warm.
 
-His arm tingled where the wound had been. The skin felt whole, but beneath it there was a faint pulse, like something alive was stirring, moving, whispering. He rubbed it absently, trying to chase the feeling away.
+She did not step back at once. She stood there with her fingertips resting on the chain at his collarbone, looking at the small silver flower, not at him.
 
-Wishes. Threads. Stars.
+“Come back to me,” she said.
 
-Everyone around him believed in something beautiful — in light, in luck, in love. And here he was, holding a secret that twisted in the dark, something he didn’t understand, something that might not even be *human*.
+“I’ll guard it,” he said. It came out lower than he meant. “And I’ll guard myself.”
+
+She nodded. Once.
+
+Then she looked up. Their eyes met again, the way they had met on the floor at the foot of the stairs — and he saw that she was holding herself together with nothing but her will, the way a hand holds a cracked cup, and that if he said one more word, one kind word, it would break.
+
+So he did not say it.
+
+He put his hand against her cheek, the way Arwen had put hers against his the night before. She closed her eyes and leaned into it. One heartbeat. Two.
+
+“I’ll be waiting,” she said, with her eyes closed. “No matter how long it takes.”
+
+“Form up!” called the captain. “We march!”
+
+She opened her eyes. She stepped back. She folded her hands in her apron.
+
+And she did not cry.
 
 ---
 
-By dusk, on the festival’s first night, the village transformed.
+He walked.
 
-Strings of silk crisscrossed between rooftops, glimmering softly in the twilight. Lanterns swayed from beams and branches, each flame caught like a captive star. Laughter filled the air, and the scent of sweet rice wine and roasted fruit carried on the wind.
+The column moved out through the gate and onto the river road, and the mist closed behind it. The villagers were calling now, their voices coming thin and scattered through the grey — *come back, come back quickly, we’ll wait* — and then the road turned, and bent up into the hills, and the voices went small, and smaller, and were gone.
 
-Esdel stood at the edge of it all, watching, a basket of Arwen’s ginger packets on his arm for anyone who looked green. Above the lane by the apothecary, the blue threads hung thickest — blue for health. Arwen’s doing, he suspected.
+He did not look back. He had promised himself he would not. He knew what would happen if he did.
 
-Lyora was there too, in the crowd — dressed in pale blue, her long smooth hair braided loosely down her back. A small flower was tucked behind her ear, glowing faintly under the lantern light. She was smiling, helping a child tie a ribbon high above their heads, her green eyes bright with warmth he hadn’t seen in days.
+At the top of the first rise, he looked back.
 
-For a moment, he forgot to breathe.
+The village lay below in the thinning mist. The apothecary roof. The ivy. The narrow garden. And at the gate — a long way off now, very small — one figure standing quite still with her hands folded in front of her, exactly where he had left her.
 
-She looked radiant — not just in beauty, but in spirit. As if the sorrow that had weighed on her before had lifted for this one fleeting night.
+She had not moved.
 
-When she caught him staring, she hesitated, then offered a small wave. Her smile softened, uncertain but real.
+He stood on the rise and looked at her until a soldier behind him said, not unkindly, “Keep moving, friend,” and he turned, and kept moving, and the hill came up between them.
 
-Esdel managed one in return, though it felt fragile on his lips.
+Beside him, a young soldier with a sunburned neck glanced over.
 
-He didn’t go to her. He couldn’t.
+“First time leaving home?”
 
-Because beneath the glow of silk and starlight, while the villagers whispered their wishes to the sky, Esdel’s thoughts were elsewhere — on the thing beneath his skin, on the wound that healed without reason, on the part of him that no prayer could purify.
+Esdel looked straight ahead.
 
-And as the twin stars crossed above them, their light spilling down like threads of fate, he whispered to himself,
+“Something like that.”
 
-“If I were to make a wish…  
-I’d wish I could still be who she thinks I am.”
+“You get used to it.”
 
-But even as the words left his lips, something deep inside him stirred — a pulse, faint but certain — and the air around him shivered.
+He did not answer. He hoped he never would.
+
+---
+
+Lyora stood at the gate until the last sound of the march was gone from the hills.
+
+Then she stood there a while longer.
+
+The sun came up properly. The mist burned off the fields. The village went back to its work around her, quietly, giving her room — the baker to his ovens, Reyn to his river bend, the children to their chores. Nobody spoke to her. Nobody needed to.
+
+When she finally walked home, Arwen was in the shop, grinding something she did not need, very slowly, with her back to the door.
+
+Lyora went past her without a word. She went to the kitchen shelf, and took down the lamp, and filled it, and trimmed the wick, and struck the flint, and lit it.
+
+In broad daylight. With the sun coming in gold through every window of the house.
+
+She turned it low, and carried it to the foot of the stairs, and set it on the second step.
+
+Then she stood and looked at it — the small useless flame, pale in the morning light, burning for no one — and put her hand flat against her own chest, where the necklace had rested since she was a little girl and did not rest anymore.
+
+Behind her, the pestle had stopped.
+
+Arwen did not say anything. After a long moment, the pestle began again. Slowly. Steadily. The way a heart goes on beating when there is nothing else it can do.
+
+“Come back,” Lyora whispered, to the lamp. “Where it’s warm.”
+
+The lamp burned on. The house was very quiet. And the road beyond the hills, when she went to the window, was empty all the way to the edge of the world.

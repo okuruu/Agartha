@@ -1,314 +1,115 @@
 # **Chapter 47**
 
-The investigation had officially ended a week ago, but whispers still clung to the camp like mist at dawn.
+They went north and east into the borderlands, where the Kingdom frayed out into nothing. A high bare country of brown hills and grey rock and wind, always wind. There were no roads and no villages. That was why they had come.
 
-Captain Rorik had been thorough—painfully thorough, according to the soldiers. He’d made them scour the entire cave, drag out the bodies, burn what was too rotten to touch, and post guards by the entrance day and night. The source of the contaminated water had been purified, and the stream now ran crystal clear again.
+The General rode at the head of the column with her face turned north and east, and did not mention her brother, or her mother, or the old man in the gateway beneath the carved arch.
 
-But no matter how clear the water was, no one dared to enter.
-
-At night, when the wind passed through the narrow cave mouth, it sounded eerily like someone weeping. Some said it was the ghosts of the soldiers who’d died inside. Others swore they’d seen a pale hand reach out of the darkness before the guards threw salt around the entrance.
-
-And so, the cave remained sealed.
+Esdel did not speak much either. He knelt on the first morning beside a low thorny bush and knew, the way he knew the angle of a slope, that its berries would stop a heart in an hour and its roots, boiled twice, would ease a fever. He did not tell anyone how he knew. They did not ask. He knew it from the shelves of an old house, from a woman with silver hair, from a girl who had stood at his shoulder and said *no, not that one, never that one*. It was the only part of himself he was certain of, and it came from her.
 
 ---
 
-Esdel was on his break, sitting near the fire outside the medical tent, finally savoring a bowl of hot stew for the first time that week. The air was cool, and the stars glittered faintly behind the drifting smoke.
+On the twelfth night they came up onto a long ridge above a valley none of them had a name for, and stopped in the ruins of a tower to wait for dawn. The others slept. Esdel could not. He sat on a stone at the edge of the ruin where the wall had fallen away, and watched the east go grey.
 
-He had just lifted the spoon when someone called out.
+He heard her before he saw her, the scrape of a boot. She went past him along the crest to a small rocky point above the drop and stood with her back to him, looking east.
 
-“Oi, Apothecary! Esdel! Come eat with us!”
+She had her belt knife in her right hand. With her left she gathered her hair, all of it, the long black hair she had worn in a soldier’s knot for three years, and drew it forward over her shoulder.
 
-It was Garrick, one of the younger soldiers—a cheerful, loud-mouthed man who somehow managed to keep smiling even after being stabbed in the leg two months ago.
+She cut it. One long stroke close to the nape. She stood there holding a rope of black hair, with the wind blowing the short ragged ends around her face. Then she opened her hand, and the wind took it out over the drop, a long dark ribbon coming apart into a hundred threads, falling toward the ground far below until he could not see it anymore.
 
-Esdel blinked. “I *am* eating.”
+The sun came up over a far pale line, mountains after all, and the first light came across the empty hills in a long low wave of gold and touched her. She had taken off her cloak. Beneath it she wore white: a plain rough robe, the mourning robe she had carried rolled at the bottom of her saddlebag all the way from the capital. She stood on the point in white, with her short hair blowing, facing the dawn, a figure at the edge of the horizon with the light behind her and her back turned.
 
-“Yeah, yeah, but alone! That’s bad luck!” Garrick grinned, waving him over. “Come on, we got extra bread! You can’t say no to that.”
+Esdel stopped breathing.
 
-Esdel sighed but smiled anyway. “Fine, but only because of the bread.”
+He knew her. Not here, not like this, but *her*, this: the white figure at the edge of the world, in the desert, in the storm, in dreams, walking against the wind. *I can’t see her face.*
 
----
+His even, precise, borrowed heart stumbled. He was on his feet. He took a step over the broken stones, and another, and opened his mouth to say a name he did not have.
 
-He joined them around the campfire—six soldiers, all of them off duty for the night, laughing and tossing pebbles into the flames. The warmth, the smell of burnt stew, and the chatter felt almost normal.
+She turned.
 
-Until one of them, a broad-shouldered man named Darius, leaned forward with a serious look.
+It was Xueyao. Only Xueyao, pale and tired, golden eyes red-rimmed, hair ragged where she had hacked it off, a young woman in a white robe on a ridge. The figure from the desert was gone. It had never been there.
 
-“Esdel… you were the one who found those four soldiers in the cave, right?”
+“Esdel?” she said.
 
-The mood instantly dimmed.
+She had never used his name before. Always *Apothecary*. He noticed that, even now. Especially now.
 
-Esdel froze with a piece of bread halfway to his mouth. “...Yeah. I was.”
+“I’m sorry. For a moment, I thought you were someone else.”
 
-The fire popped. The men exchanged uneasy glances.
+“The woman in white,” she said slowly. He had told no one but Lyora, in a garden, in the moonlight. “You talked, in the fever. You said she was always standing far away, and you could never see her face.”
 
-“What really happened in there?” Darius asked, lowering his voice. “We heard all kinds of rumors. That the soldiers were torn apart, or that something cursed them, or… something. You’re the only one who survived.”
+“It isn’t you,” said Esdel.
 
-“Or that you met a ghost,” another soldier interrupted with a grin. “And that it followed you back here!”
+“No,” said Xueyao, after a long time. “I don’t think it is.”
 
-“...That last one’s stupid,” Esdel said flatly.
+She walked back along the crest and stood in front of him. Not close. The width of a person, as always.
 
-“So? Is it true?”
+“Who are you?”
 
-Esdel took a long breath. “Fine. You really wanna know?”
+It was the third time. He thought of the desert and what he had lost in it, and of all the things he did not know. Then he thought of the things he did. The weight of a water pail on a dusty lane, and the knot that pulls tighter the harder the water presses. The smell of rosemary, and burnt tea, and a lamp on a stair. A promise he had never broken, and one he had.
 
-They all nodded eagerly, leaning closer.
+“Esdel,” he said. “That’s all I have. It’s the only thing I’ve ever been sure of.” He looked past her at the light pouring over the mountains. “For now, I think it’s enough.”
 
-Esdel finished the story quietly, eyes distant, the firelight flickering over his face. The soldiers around him were pale, motionless.
+Something happened to her face that he had never seen: not a smile, something smaller and rarer that began in her eyes and went no further.
 
-The night wind rustled through the trees.
+“Esdel,” she said, as though putting it somewhere safe.
 
-No one spoke.
-
-Not even Garrick.
-
-It was as if the fire itself had gone still.
-
-Then Esdel looked up and blinked. “...You all okay?”
-
-Silence.
-
-He hid a smirk.
-
-“So tense, huh?” he whispered dramatically, leaning closer. “Well, that’s when I heard the man’s voice again, from behind me. He said—”
-
-He suddenly shouted—
-
-“**BOO!**”
-
-Half the campfire exploded into chaos.
-
-“BY THE GODS—!”  
-“HE’S BEHIND US!”  
-“I—CAN’T—FEEL—MY—HEART!”
-
-Garrick fell backward, clutching his chest, kicking his legs. Darius screamed so loud it startled the guards three tents away. One poor soldier toppled into the stew pot.
-
-Esdel laughed so hard he could barely breathe. “You—hah!—you should’ve seen your faces—!”
-
-But then he noticed Garrick lying flat, twitching.
-
-“Wait—wait, no, that’s not funny anymore! Garrick!”
-
-He rushed over, checking Garrick’s pulse. The man’s heart was racing, but he wasn’t breathing properly. Esdel immediately started first aid, loosening his collar and pressing his chest rhythmically.
-
-“Come on, you idiot, don’t you dare die on me because of *that!*”
-
-After a tense moment, Garrick suddenly gasped and sat up, wheezing. “Wha—what happened—”
-
-“You *died for comedy,* that’s what,” Esdel groaned, exhaling in relief.
-
-The others burst into nervous laughter, some out of guilt, others from sheer shock.
-
-“What’s going on here?”
-
-The laughter froze instantly.
-
-Halden stood there, holding a lantern, his eyebrows furrowed like thunderclouds.
-
-“I heard shouting. Who’s injured? Who started this?”
-
-All the soldiers immediately pointed at each other.
-
-“It wasn’t me.”  
-“Him!”  
-“No, him!”  
-“We were just—uh—storytelling!”
-
-Esdel tried to stand up casually, hiding his grin. “Nobody’s hurt — now, sir. Just a… morale session.”
-
-Halden narrowed his eyes. “Morale session?”
-
-“Yes, sir!” Garrick said, still gasping. “Esdel was… helping us overcome our *fear of ghosts!*”
-
-Halden looked around suspiciously. Everyone’s faces were too innocent.
-
-He sighed heavily. “You’re all hopeless.” He turned away, muttering. “If I hear one more scream tonight, I’ll make you treat latrine duty as therapy.”
-
-“Yes, sir!” everyone shouted in unison.
-
-Halden disappeared into his tent, shaking his head.
-
-As soon as he was gone, they all collapsed in laughter again.
-
-Esdel wiped a tear from his eye. “Well, that went well.”
-
-“You nearly killed Garrick!” Benn’s voice came from behind them—he’d been watching the whole thing with folded arms.
-
-Esdel jumped. “How long were you there?”
-
-“Long enough to know you’re never telling ghost stories again,” Benn said, smirking. 
-
-“Also… that was the best thing I’ve seen all week.”
-
-Esdel sighed, chuckling helplessly as the soldiers roared again. “Fine, fine. No more ghost stories. Next time, we talk about flowers.”
-
-“Yeah?” Darius said between laughs. “You’ll still find a way to make *that* terrifying.”
-
-The campfire crackled with laughter and the soft glow of relief—a rare warmth against the shadows whispering from the edge of the desert.
+They watched the sun come up over the borderlands, not touching. He found that he was holding the silver flower in his fist, and that it had been warm for some time.
 
 ---
 
-The morning air was sharp and cold when the messenger arrived.
-
-He came galloping through the mud-slicked path, his horse heaving steam with every breath. His cloak was torn, his eyes bloodshot, and his lips cracked from shouting orders across countless camps.
-
-“Message for the medical division of the Eastern Post!” he cried, waving a sealed parchment.
-
-Halden took the letter, his brow furrowing as he broke the seal with a thumb. His eyes skimmed the words, and his jaw tightened.
-
-“Esdel,” he said flatly. “Pack your things.”
-
-Esdel blinked mid–cleaning a bandage. “Sir?”
-
-Halden exhaled through his nose, looking both tired and annoyed. 
-
-“Another post—north ridge—requested emergency apothecary aid. Their only doctor’s been working nonstop for four days. You’re being transferred there. Effective immediately.”
-
-“I—what? Now?”
-
-Halden slammed the letter on the table. “Now, yes. Apparently you’re the only one they trust to go. They said, *‘Send the backwater genius.’*”
-
-He rubbed his temples, muttering. “If I ever meet that officer, I’ll strangle him for stealing my assistant.”
-
-Esdel offered a faint, apologetic smile. “I’ll be back soon, sir.”
-
-“You’d better.” Halden crossed his arms. “You’re the only one who knows how to brew those antiseptic herbs without burning my nose off.”
-
-Benn leaned against a crate nearby, trying to lighten the mood. “Guess that means I get to be the new favorite, huh?”
-
-Halden glared. “Not a chance.”
-
-They all chuckled softly, though there was a quiet heaviness behind it.
-
-Benn stepped closer, resting a hand on Esdel’s shoulder. “Hey. Don’t overwork yourself like you always do. Sleep when you can, eat even if it tastes like dirt, and—” he smirked— “try not to get stabbed.”
-
-Esdel grinned faintly. “No promises.”
-
-“Then at least make it a *small* stab,” Benn said, laughing.
-
-Halden handed Esdel a sealed satchel filled with supplies—dried herbs, disinfectant, bandages, and a single small potion vial glowing faintly blue.
-
-“Emergency stimulant,” Halden said. “Don’t use it unless you have to. And if you do, try not to die afterward.”
-
-Esdel nodded. “Thank you, sir.”
-
-Halden sighed, rubbing the bridge of his nose. “You better come back in one piece, boy. I still owe you a proper lecture.”
-
-Esdel smiled softly. “I’ll hold you to that.”
-
-And with that, Esdel strapped the satchel over his shoulder, tied his cloak tight, and walked toward the gate where a soldier waited with a saddled horse.
-
-The soldier was young, maybe twenty at most, with a calm yet tired look in his eyes. “Esdel, right? Name’s Loryn. I’ll be your escort.”
-
-Esdel mounted the horse behind him. “Appreciated.”
-
-They set off at once, hooves pounding the dirt road, the rising sun staining the sky red — an omen, if one believed in such things.
-
-For a time, it was peaceful. The wind was brisk, carrying the scent of pine and burnt gunpowder from far away. The landscape rolled by — empty fields, trampled paths, and the faint echo of distant war drums. They rode through the whole of the day; dusk was falling by the time they neared the safe-zone border.
-
-But as they crossed the safe-zone border, Esdel saw it.
-
-And his breath caught.
-
-The horizon was alive with chaos.
-
-A storm of fire, magic, and steel tore through the plains below. Tens of thousands of soldiers clashed — their banners flickering in the smoke. Siege engines burned, arrows rained like comets, and the air trembled with the weight of death.
-
-But among it all... two colossal beings dominated the field.
-
-One was a **Titan** — a grotesque humanoid monstrosity, easily twenty stories tall. Its flesh was pale and stretched thin over visible tendons, its eyes hollow pits that burned with blue flame. Every step it took shattered the earth.
-
-Opposite it soared the **Imperial Dragon**, a majestic serpentine beast, its scales shimmering like molten gold. Its sinuous body curled through the sky like a divine river of fire.
-
-The Titan roared, swinging an arm the size of a fortress. The dragon answered with a blinding wave of flame, scorching the battlefield into molten glass.
-
-The blast hit everything — friend and foe alike.
-
-Soldiers not shielded by magic screamed as the fire consumed them.
-
-The horse reared, panicked. “Hold on!” Loryn shouted, pulling the reins.
-
-The Titan stumbled, half its torso burned away—but instead of dying, it twisted, **falling toward them.**
-
-The air pressure alone was enough to crush. The ground cracked.
-
-“Esdel, jump!”
-
-Loryn kicked the horse sideways just as the Titan crashed.
-
-The shockwave hit like thunder — wind howled, dirt exploded upward, and Esdel was thrown off the horse, tumbling through the air.
-
-His ears rang. The world spun. His vision filled with fire, ash, and chaos.
-
-When he tried to stand, the horse was gone. Loryn was nowhere in sight.
-
-The earth trembled as though the gods themselves wrestled beneath it. A booming roar split the horizon — the kind that clawed straight into the bones. Dust, blood, and the screams of both man and beast blurred into one unholy chorus.
-
-Thrown clear of the fall, Loryn pressed himself against a half-shattered barricade, sword drawn, his breath ragged. He could hardly hear his own heartbeat over the constant clash of steel and the thunderous steps of the colossal titan rampaging across the plain.
-
-“Esdel!” he shouted, voice cracking. No reply. Only the deafening sound of magic cannons and the guttural howl of something ancient tearing through the sky.
-
-He peered through the smoke. The ground ahead was scorched black, rippling from the dragon’s blazing breath. The titan — a towering abomination of flesh and rusted metal — was dragging itself up from the ruin it had made, parts of its body glowing from molten burns. It had fallen, and still it would not die.
-
-Then came the soldiers — enemy troops breaking through the chaos.
-
-Loryn barely raised his blade when the first of them lunged. Sparks flew as steel met steel. He parried, pivoted, and slammed his shoulder into the man’s chest, sending him sprawling into the mud. Another enemy came from behind — Loryn ducked, rolled, and drove his dagger upward. A wet crunch, then silence.
-
-But there was no time to rest.
-
-He could see through the haze — Esdel’s silhouette, staggering upright amid the wreckage, clutching his medical satchel, alone in the drifting smoke.
-
-“Esdel! Over here!” Loryn yelled again, waving his arm.
-
-Then the titan’s arm came down.
-
-It struck like a mountain breaking apart — the impact sent a shockwave of dirt and heat across the field. Loryn was flung backward, his sword flying from his hand. The world spun; his ears rang. When he came to, his mouth was full of dirt, and his right arm screamed in pain.
-
-“Esdel…” he coughed, eyes searching the haze. Only fire and twisted armor remained where he had last seen him.
-
-He stumbled to his feet, forcing his shaking legs to move. Around him, chaos reigned — mages casting desperate shields, soldiers screaming for retreat, the dragon coiling through the smoke above like a fiery serpent, roaring vengeance into the night.
-
-A soldier — friend or foe, he couldn’t tell — rushed at him, screaming incoherently. Loryn reacted on instinct, blocking the attack with his injured arm, pain exploding through him. He twisted his body and countered, the edge of his blade finding the man’s throat.
-
-He didn’t even look as the man fell.
-
-His eyes were locked forward, searching — desperate — for that one familiar face.
+By the end of the summer the Kingdom was telling stories about her. They were in every tavern from the western harbor to the ridges of the north. *She wanders the borderlands in white,* said the soldiers in the camps, late, when the fires were low. *With her hair cut off. Her heart gone cold as iron. Waiting for the day.* *And the dragon?* *The dragon’s sleeping.* It had keened for nine days, and on the tenth night it had lowered its great head onto its coils and gone still, and not even the King’s court magicians with their silver chains could wake it. *It won’t wake for anyone else. Not till she calls.* And when she calls— No one ever finished that sentence.
 
 ---
 
-All around him, the battlefield raged — a nightmare of blades and screams.
+At the edge of the borderlands, where the brown hills came down to a river and a ford and a scatter of stone houses, there was a market once a month. There was no magistrate and no door to nail a decree to. Someone had once hung a copy on a thornbush by the water, but the goats had eaten half of it and the rain had washed the rest to pulp.
 
-He could hear orders shouted through the smoke:
+Esdel went down to it alone in the grey of the morning with his hood up. They needed salt, and flour, and cloth for bandages, and he was the only one whose face had not been drawn on a wanted bill. The decree had named him. It had not described him. He had wondered about that, once, on the road. Half the capital had looked at his face: the masters of the college, the Lián household, the Count across a small table. Someone could have drawn it. He had turned the question over for a night, the way he turned over anything that did not add up, and then he had been too tired, and too grateful, to turn it any more.
 
-“Hold the line!”  
-“Reinforce the barrier!”  
-“Don’t let the beast cross!”
+“One hour,” Xueyao had said. “If you’re not back in an hour, we come down.”
 
-Esdel stumbled, clutching his satchel. His chest ached. Blood trickled down his temple.
+“I’ll be back.”
 
-He looked up. The Titan, still writhing in agony, swung an arm that flattened an entire regiment like insects.
+He bought the salt and the flour and the cloth, and thread from an old woman with no teeth, and a bag of dried apricots for Pei Lun. And at the far end of the market, beside the ford, he saw a peddler with a string of mules, weathered and cheerful, with a long grey beard, whittling a stick on an upturned crate. His packs were half-empty. He was going home. Esdel could see it in the way he sat, with his face turned toward the long road running down out of the hills to the plains.
 
-“No, no, no…” Esdel whispered, his heart pounding.
+Esdel stood there with his arms full of salt and flour and looked at him for a long time.
 
-He ducked under debris, leapt over corpses, every breath a fight against panic.
+Then he went over.
 
-He was no soldier. He was just an apothecary.
+“Going south?”
 
-But the battlefield didn’t care.
+“South and west,” said the peddler. He had very pale blue eyes, faded with sun and wind. “Back to the plains, then the river road to the forest country. I’ve a sister there. I winter with her. Why? You want something carried?”
 
-An explosion threw a rain of metal fragments near him. Esdel raised his arms instinctively, feeling heat lick his sleeves.
+Esdel set the salt and flour down. He took from his pocket a coil of plain brown cord, the kind that tied herbs or bound the joints of bamboo channels. He had bought it that morning from the old woman. He had carried it all through the market, not letting himself know why.
 
-He could see wounded soldiers nearby, screaming for help.
+He sat on the ground with his back to the market and began to tie a knot.
 
-And something inside him — that strange, stubborn spark — refused to let him run.
+His hands knew how. The cord went over, and under, and back through itself — a small tight neat knot, wound in a way no one in the borderlands wound cord, or in the capital, or at the front. In a way no one anywhere wound it except once, a long time ago, in a village at the edge of the desert, on a hot afternoon at the start of the summer. The knot that pulled tighter the harder the water pressed against it.
 
-He tore open his satchel, pulled out bandages, herbs, anything. “Hold on! I’ve got you!”
+Once. Then again, a hand’s width further down. Then a third time.
 
-Even as arrows whistled overhead, even as the dragon’s roar made his bones tremble, Esdel worked—pressing herbs into wounds, covering burns, dragging men to cover.
+Three knots, on a length of plain brown cord.
 
-The ground trembled again, the Titan lurching toward him.
+He sat looking at them. He thought of all the letters he had burned, the thin sheaf of them going to ash in a copper dish, and the bark he had burned in the firelight in the hut. He had written to her in every way he knew. A letter could be followed. A letter could be opened and carried to a man with a ruined hand, who would know exactly what it meant.
 
-A massive shadow fell across the field.
+A piece of cord could not. It was string. It said nothing. It had no name on it.
 
-Esdel froze, staring up at the monstrous silhouette, the burning blue eyes fixed on him.
+He had only ever needed one person to read it.
 
-“Oh gods…”
+---
+
+“There’s a village,” he said, very quietly. “In the forest country, on a river, at the edge of the desert. An old house with ivy on the walls. An old woman, and her granddaughter.” He held out the cord. “Give this to the granddaughter. Into her hand. No one else. She has green eyes.”
+
+The peddler looked at the three small knots. “That’s all? No message?”
+
+“No. If anyone asks, anyone at all, tell them the truth. It’s a piece of cord. For tying herbs.” He paused. “I won’t ask you to lie for me. Only don’t say more than that. Don’t tell her who gave it to you. Don’t say where you were.”
+
+The peddler was silent for a long time. The ford ran over its stones. Somewhere behind them a goat was complaining.
+
+Esdel put the cord into his hand, and a silver coin on top, the last he had. The peddler gave the coin back.
+
+“I’ve a sister,” he said. “A widow. Her boy went for a soldier, three years ago now.” He tucked the cord into the inside pocket of his patched coat, over his heart. “She never got a letter either. Not one. I’d have given a good deal, some winters, for someone to bring her a piece of string.” His creased face did something very gentle. “Into her hand. Green eyes. Say nothing.”
+
+Esdel could not speak. He nodded.
+
+He walked away through the market without looking back, because if he looked back he would not go up the goat track. Up into the brown hills, toward the ruined tower. He was back in less than an hour. The General was standing at the edge of the ruin with her hand on her sword. She looked at his face. She did not ask him anything.
+
+He was grateful. He did not think he could have told her.

@@ -1,131 +1,105 @@
 # **Chapter 43**
 
-The dawn came pale and thin — the kind that felt hesitant to touch the ground after a night soaked in death. Mist still lingered low, ghostlike among the trees, when the order came.
+They rode north all morning, and the Count rode after them.
 
-“Move out. We don’t linger here.”
+They saw him from the top of a long rise: a line of dark specks three miles back, coming on through the wet green country. Thirty riders. At the head of the line, the white of a mourning coat blazing like a flag.
 
-Captain Erven’s voice was quiet but firm. No one argued. The soldiers packed in silence, each movement heavy with exhaustion and the muted awareness that they had survived where others hadn’t.
+“He came himself,” said Pei Lun. He had not stopped crying since the Street of Lanterns, only quietly, the tears running down his bruised face while he rode, as though they belonged to someone else.
 
-The air carried the faint tang of iron, smoke, and damp earth — the scent of a battle that refused to leave their skin.
+The horses were lathered and stumbling. The Count’s were fresh. By noon the dark line was two miles back. By afternoon, one.
 
-Esdel walked near the rear, the weight of his satchel pressing faintly against his side. Every few steps, his vision wavered — a brief, sharp darkness that cut through the edges of his sight. Beneath his skin, something pulsed too deep, too alive.
+They came down into a broad valley with a river running through it, wide and shallow and fast. A ford of pale gravel and flat stone ran just under the surface, and beyond it the road climbed into a dark belt of pine.
 
-The ache behind his eyes whispered of the Karunākṣa, of the price his overworked mind was still paying.
+“If we reach the trees,” said Gao, a lean grey silent man who had not spoken all day, “we can lose them.”
 
-He said nothing. He simply walked.
+They were halfway across when Esdel heard the horns. The Count’s riders were coming over the last rise, so close he could see the wine-colored livery, and at their head the white coat and the silver hair and the sword.
 
-Hours passed before the forest thinned into open land — and with it, the low hum of a living field.
+“*Go,*” said Gao.
 
-The warfront.
+He had turned his horse in the middle of the ford. So had two others, the oldest ones, with the grey in their beards and the old wounds that ached in the damp.
 
-Tents stretched far across the horizon, canvas sagging beneath the morning dew. Smoke rose in thin trails from cookfires. Somewhere, a man cried out in pain — somewhere else, laughter broke briefly before being swallowed by the wind. The ground was trampled, muddied, alive with both the living and the dying.
+“Three men can hold it a while.” Gao’s lean face was perfectly calm. “Han Ruo would have done the same. Get to the trees.”
 
-Esdel’s eyes followed the sound of groans until he reached the largest medical tent. He ducked inside.
+Xueyao stared at him. Then she turned her face to the far bank and spurred her horse, and did not look back. Esdel saw her face as she passed. He would not forget it.
 
-The air changed immediately — thick with herbs, rot, and something like despair.
+The others went after her.
 
-An elderly man with graying hair and a surgeon’s hands knelt beside a soldier whose arm was darkened near the shoulder. His voice cut sharp through the din:
+Esdel did not.
 
-“Clean that wound properly! You think this is a tavern floor? Gods above, wash the blood off before you touch anything!”
+He did not decide to stay. His horse had stopped in the rushing water beside the three old men, and his hand had gone by itself to the small glass vial at the bottom of his satchel, wrapped in linen. *Emergency stimulant,* Halden had said. *And if you use it, try not to die afterward.*
 
-Esdel approached carefully. “Excuse me,” he said. “I’m an apothecary. I can help treat—”
+“Apothecary. Go.”
 
-The man turned with the ferocity of someone who’d forgotten sleep. His eyes flicked over Esdel’s face — too young, too calm, too clean — and hardened.
+“No,” said Esdel. He had watched Han Ruo turn beneath the carved arch, and heard him laughing in the dark, and then the bell stop. And he had ridden away. He found he could not do it twice.
 
-“An apothecary?” he scoffed. “From where? Some quiet village with chickens and soup?”  
-He turned back to his patient. “This isn’t your little hut, boy. Fetch water if you want to help.”
+Gao looked at him a moment. Something in his grey face eased almost into a smile. “The General’s going to be very angry with you.”
 
-Esdel bowed slightly. “Yes, sir.”
+“I know.”
 
-And so, he did.
+The Count’s riders hit the water.
 
-He fetched water until his arms ached. He boiled it, cleaned cloths until his fingers wrinkled, and crushed herbs with hands that blistered under the pestle’s weight. He didn’t speak, not even when the doctor barked commands sharp enough to cut. But when the man’s back was turned, Esdel checked pulses, adjusted doses, and whispered soft reassurances to the wounded who trembled beneath their bandages.
+---
 
-Days bled together.  
-Sleep became a stranger.
+There was no time to be afraid. The world was only noise: the roar of the river, the screaming of horses, water surging white and cold, dragging at the legs. The three old soldiers met the first rank in the middle and it broke on them like a wave on rock. Esdel saw one go down under two blades and the water close over him. He saw the oldest hold the left edge of the causeway alone, his sword going up and down as steady as a man chopping wood.
 
-When the doctor — Halden, as Esdel later learned — collapsed mid-procedure from exhaustion, Esdel simply stepped in.
+Then a spear came out of the press and went into Esdel’s side.
 
-He finished the sutures in silence, wrapped the wounds with steady hands, cleaned every instrument, and started the next patient without pause.
+It went in low on the left, below the ribs, a great flat blow like a horse’s kick, and then heat spreading. He looked down at the shaft standing out of him and the water going red around his horse’s legs. He did not fall. He did not know why.
 
-He never sought praise. Only order.
+For one moment he was not in the river.
 
-By the second week, something shifted.  
-The tent no longer reeked of decay. The air carried less fever. The dying slowed.
+Mint. Honey. Not too hot. A small gold flame on the second step, turned low. A girl on the floor at the foot of the stairs with her face ruined and her fist curled in his shirt, saying it over and over into his neck until it was not a word anymore. *You promised. You promised.*
 
-Halden noticed.
+*I know,* he thought. *I know. I’m trying.*
 
-One morning, Esdel was boiling water outside, sleeves rolled high, scrubbing instruments with ash and vinegar until the metal shone faintly in the dawn light. His movements were slow, methodical — almost reverent.
+He bit the wax seal off the vial and drank it, all of it. It tasted of nothing, cold and faintly blue, like biting into ice.
 
-Halden approached, mug in hand. His voice was still gruff, but softer at the edges.  
-“Boy,” he said. “You’re wasting good hours of sleep.”
+Then everything happened at once.
 
-Esdel looked up. His tone was calm, quiet.  
-“We’re wasting more good men if we don’t clean properly.”
+---
 
-Halden blinked, then exhaled through his nose — something between a scoff and reluctant amusement.
+It came up through him like fire through dry grass. Not the Veil, the slow deliberate thing with the blink and the breath. The other thing. The first thing. Some part of him knew he was going to die, and that part, the part beneath memory, opened its eyes.
 
-“You think keeping things tidy wins wars?”
+The world stopped.
 
-“It saves lives,” Esdel replied.
+Not slowed. *Stopped.* The river hung in frozen sheets of brown and white, every droplet a bead of glass. The horses hung mid-rear with their manes spread like wings. The light was red. Everything was red, as though the whole world had been painted in blood.
 
-For a moment, the old man just stared. Then he muttered, “…Damn it, maybe you’re right,” and walked off, the corner of his mouth twitching into the ghost of a smile.
+He could see every man in the ford. Thirty held breaths, thirty jumping pulses. He could see which were afraid, and which would strike next, and where, and how hard. Every movement was written in the bodies before it came.
 
-From that morning onward, the tone in the tent changed.  
-Halden still barked orders, but his eyes held respect now — or something close to it.
+He looked for the Count.
 
-Esdel became indispensable.  
-When Halden’s hands trembled too much to hold a needle, Esdel took it from him without a word. When Halden’s voice slurred mid-command, Esdel finished his sentence and carried on.
+The Count was in the second rank on his grey horse, with his sword raised and his face alight with fierce, radiant joy. The look of the men in the field tents in their last hour. The fever-brightness.
 
-By the end of the second week, even the soldiers had begun to notice.
+And his breathing—
 
-“Morning, Apothecary!”  
-“Esdel, that salve ready yet?”  
-“Hey, don’t forget to eat!”
+Of the thirty men in the ford, twenty-nine were afraid. Even Gao. Even himself.
 
-The name Esdel passed through the camp like a soft, steady wind — spoken in tones that held trust, gratitude, and something warmer.
+The Count was not. His chest rose slow and even, the breath of a man sitting down to supper, and the pulse in his throat beat as calm as a sleeper’s, while his face above it blazed with that terrible joy. The two did not belong together. Esdel had seen that look on the pallets in the field tents. He had seen it, softer, on a woman in a pavilion, turning toward a man like a flower toward the light.
 
-At noon one day, he stopped by a soldier’s bed. The man pushed away his bowl of soup.
+The frozen world began, very slowly, to move.
 
-“Not hungry,” he muttered.
+He did not go for the heart. He could have. It was there in front of him, breathing slow and unafraid, and there was no one in the ford who could have stopped him. He thought of Han Ruo, and Gao, and Lady Anlan with her folded hands, and how easy it would have been.
 
-Esdel crossed his arms. “Then chew anyway.”
+He went for the hand. The right hand on the raised sword, with the pale scar across the back of it, the theatrical scar, the costume scar. His blade went in across the back of the wrist, clean and exact, and he felt it part the cords beneath the skin. Then he put his shoulder into the grey horse’s chest as he passed, and felt the great animal go back and over, and saw the Count’s face turn toward him in the red light with the joy just beginning to leave it.
 
-The man frowned. “You can’t order me—”
+He blinked, and the world came crashing back.
 
-“I can,” Esdel interrupted, voice even but gentle. “If you want to live. You’ve lost enough blood. Don’t lose your will, too.”
+---
 
-The soldier glared for a heartbeat — then sighed and started eating.  
-Around them, others laughed quietly.
+Noise. Water. Pain so vast it felt like weather. He had held the red world open too long, and his head was a bell struck too hard. He was on his knees on the causeway. He could not think of the word for the river.
 
-Later that night, the same men called across the fire:  
-“Hey, Apothecary! You treat our wounds — now treat our stomachs! Got anything for bad soup?”
+In front of him the grey horse had gone over backward into the deep water, and the Count was tangled with it, going under and coming up in a white welter of foam, his right hand flailing uselessly, the sword gone. And his riders were throwing themselves off their horses to reach him, five of them, ten, the whole front of the charge turning in on itself, forgetting the fugitives and the General and everything in the world except the man going under.
 
-Esdel looked up from his work, a faint smirk tugging at his lips. “Discipline.”
+*Of course,* Esdel thought, through the pain. *He’s the one who pays them.*
 
-The camp burst into laughter. Even Halden, sitting by the flames with his tea, cracked a grin.
+Someone had his arm. Gao, bleeding from the scalp, hauling him along the causeway. “*Idiot,*” Gao was saying through his teeth. “Idiot. Idiot.”
 
-When the laughter ebbed, Halden leaned closer, his voice carrying only to Esdel.  
-“You’ve done well, boy. I was wrong about you.”
+Behind them the oldest soldier was still sitting his horse in the middle of the ford, very straight, with his sword across his knees. There was no one left to fight. His breath, Esdel had seen in the red light, had been very short. He raised his sword to them, once, in salute. Then he turned his horse’s head back toward the river and waited.
 
-Esdel blinked, caught off guard. “…Sir?”
+Esdel did not remember reaching the far bank. He remembered the General’s voice, sharp, saying *Apothecary* in a tone he had never heard her use, and hands pressing hard on his side, and the cold blue fire going out like a lamp being turned down.
 
-“You’re not just some backwater apothecary. You’ve got healer’s hands.”  
-Halden paused, watching the fire. “And a soldier’s heart.”
+In the dark, before he went all the way down into it, his hand went to his throat. The silver chain. The small flower. The scrap of paper behind it, with one word on it, in his own strange hand.
 
-Esdel looked into the flames. His reflection shimmered there — a face he still didn’t recognize, but one that felt less empty.  
-“I just do what I can,” he said.
+It was still there.
 
-Halden chuckled softly. “That’s what the best of us always say.”
-
-Silence settled again, but it was a softer kind — not heavy, not suffocating. The kind born of work done well, of lives saved, of purpose rediscovered.
-
-The night breathed around them — the crackle of fire, the murmur of tired men, the steady rhythm of life continuing despite the ruin.
-
-And in that fragile calm, Esdel found something he hadn’t felt in a long, long time.
-
-Not glory.  
-Not pride.  
-But *purpose.*
-
-And though his eyes still ached from the lingering ghost of the Karunākṣa, for the first time since the village of Edenridge, Esdel allowed himself to rest — not as a hero, not as a weapon, but simply as a man with healing hands.
+*Good,* he thought.

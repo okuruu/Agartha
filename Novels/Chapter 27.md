@@ -1,121 +1,103 @@
 # **Chapter 27**
 
-The harvest was coming. You could smell it in the air — dry grass, dust, the green edge of the wheat beginning to turn gold. In the fields, men worked from first light with their shirts knotted at their waists, and in the evenings the whole valley hummed with tired, satisfied voices.
+The woman who dismounted from the dragon’s harness did not meet the soldiers’ eyes. Her long hair, black as wet ink, fluttered behind her. Her ivory-and-gold battle attire carried the scent of ash and ozone.
 
-Eldric’s father took his first steps on a crutch on a bright, windy morning — halfway across the yard and back, his wife walking beside him with her hands held out as though he were a child. The news went through the village by noon. People were glad. It meant the farm might hold. It meant the harvest might come in after all.
+“The Maiden has returned!” “Victory! The Dragon burns our foes!”
 
-It meant, the aunties at the well said, nodding to one another, that there would soon be time for other things.
+Her name was Lián Xueyao, titled by birth *The Maiden of the Heavenly Dragon.* The commander greeted her. “Your bravery turned the tide. You saved hundreds today.”
 
----
+“Your words honor the effort of many, Commander,” she replied, the perfect, formal answer.
 
-Eldric found Esdel at the edge of the southern fields at dusk, where Esdel had come to check the channel mouths after a week of hard sun.
+As she walked away, the cheering dulled and dissolved into nothing, and the silence felt heavier than the screams of war. A sky of swirling embers. The Imperial Dragon’s eyes, ancient, pitiless gold.
 
-The light had gone amber and long. Swallows cut low over the stubble. The channel murmured beside them, clear and cool, carrying the river up the slope the way it had all summer.
+*“You command, and I obey. But I will feed.”*
 
-“My father walked today,” Eldric said, before he had even reached him. His face was bright with it. “Did you hear? All the way to the gate.”
+She had been fourteen when it first spoke to her that way. Everyone celebrated her gift, never knowing the screams that echoed in her dreams when the dragon fed on the prisoners brought to its altar.
 
-“I heard.” Esdel straightened. “I’m glad.”
+Her teeth clenched, and the memory shattered like glass. Later, in a private chamber turned honey-gold by lanterns, she let the warm water swallow her, and said to the dark, “It doesn’t end, does it?” She thought of the unanswered letter from home, her father under guard, *treason* written beside his name. “Why don’t the kings fight each other? One death instead of thousands.” She laughed, hollow and soft, and pressed the thought away. “Enough. Such foolishness.”
 
-He was. He had been at the farm two days before, when Arwen judged the bone ready to bear a little weight. He had watched her walk her thumbs down the shin, slow, listening with her fingers. He had wound the splint tighter at the ankle himself, and padded the head of the crutch with a fold of lambswool, because the old man would sooner have died than admit it chafed.
-
-*Ten steps,* Arwen had told him. *Not one more.*
-
-“All the way to the gate,” Esdel said now. “Arwen will have words.”
-
-Eldric laughed. “She’ll have to catch him first.”
-
-“Lyora’s salves. Arwen’s splints. Your—” Eldric waved at the channel, laughing. “Your water, keeping the fields alive, so there’d be something left for him to come back to. Half this village carried him to that gate.” He stopped beside Esdel and looked out over the fields, hands on his hips, breathing like a man who had run a long way and could finally stop.
-
-For a while they only stood there. The water ran. The swallows turned.
-
-Then Eldric said, without looking at him, “Can I ask you something? Honestly?”
-
-Esdel felt it coming the way one feels weather.
-
-“Yes.”
-
-Eldric turned. His face was serious now — not grave; Eldric was never grave — but open in a way that was almost painful, the whole of him there in his eyes with nothing held back.
-
-“Is there something between you and Lyora?”
-
-The channel water went on murmuring.
-
-“Because if there is,” Eldric said, and swallowed, “tell me. Just tell me. And I’ll step back. I mean that, Esdel. I’m not—” He searched for the word. “I’m not the kind of man who’d stand in the way. Not of her. Not of you, either. You’re my friend.” He laughed a little, embarrassed at himself. “Ma’s got the go-between half-hired already. But I’d rather know now. Before I make a fool of myself in front of the whole valley.”
-
-It was the kindest question anyone had ever asked him. That was what made it unbearable.
-
-Esdel looked at the channel. At the knot on the nearest joint — his knot, holding.
-
-He thought of the well. *Such a good match.* He thought of Eldric’s father walking to the gate, of a farm that would stand, of a mother who never cried and had cried. He thought of a cliff above the sea, and a voice saying *fight*, and a woman in white on a horizon he could not reach — of everything that pulled at him in the night, that he could not name, and could not promise would ever let him go.
-
-A man like that did not get to stand in the road between a woman and a farm and a family and a future.
-
-“No,” Esdel said.
-
-His voice was very steady.
-
-“There’s nothing I can offer her.”
-
-It was true, he told himself. It was the truest thing he knew. Every word of it.
-
-It only sounded like a lie because something in his chest had gone silent — the way the forest goes silent before a storm.
-
-Eldric let out a breath he seemed to have been holding for weeks. Relief broke across his face — and then, a heartbeat after, something like guilt, as though he were ashamed to be so glad. He reached out and clasped Esdel’s shoulder, hard, the way men in the fields did.
-
-“You’re a good friend,” he said roughly. “You know that? The best.”
-
-Esdel smiled.
-
-It felt like holding a knife very carefully by the blade.
+But that was after. First, on a dirt path that led away from the main camp, she saw him.
 
 ---
 
-Lyora had come up the hedgerow path with a jar of comfrey salve wrapped in cloth, because Eldric’s father would have strained his leg walking all the way to the gate, whatever he claimed. She knew him. She knew the whole family. She had been carrying jars up this path since she was twelve.
+He sat on a crate by the roadside, blood-smeared, dust-covered, one sleeve torn, breathing shallow but steady. His horse, found again, somehow, wandering riderless at the field’s edge, grazed beside him, trembling.
 
-She heard their voices before she saw them, and slowed, not wanting to interrupt.
+He looked up when she passed. Brown eyes, weary, terribly human, met her golden ones. And for a heartbeat something red seemed to flicker there, and was gone.
 
-Then she heard her own name.
+She slowed, and turned back.
 
-She stopped behind the hawthorn, where the hedge grew thickest. She did not mean to listen. Her feet simply would not go forward, and would not go back.
+“...You’re from the main post,” he murmured, voice hoarse.
 
-The wind was blowing hard across the fields, tossing the swallows, tearing the words to pieces before they reached her.
+“You were on the field.” It wasn’t a question.
 
-She heard Eldric — *something between you and Lyora* — and then, after a long silence, Esdel’s voice. Low. Very steady.
+“Got thrown in there by mistake. I wasn’t supposed to fight.”
 
-“*No.*”
+Her gaze dropped to his hands, the faint tremor, the dried blood, the scorched hem of his coat. Then to his eyes. Brown again. Ordinary. But she had seen a narrow slit of impossible light, gone too quickly to doubt.
 
-The wind gusted.
+“Your eyes.”
 
-“*…There’s nothing…*”
+Esdel went still.
 
-And then the swallows were shrieking over the stubble and the hawthorn was tossing and she could not hear the rest.
+“Do not play ignorant. I saw it. The mark of the Karunākṣa.”
 
-She did not need the rest.
+The name struck him like a blow. “You know what they are?”
 
-She turned around. She walked back down the hedgerow path the way she had come, carefully, the jar of salve held against her chest. She did not run. She did not cry. She kept her face perfectly still, the way one carries a full cup so that nothing spills.
+Something shifted in her expression, not surprise, but memory. “I met them once. Long ago. The bearers of those eyes.” She looked toward the embers on the horizon. “They were powerful. Too powerful. Their sight saw truth the dragons themselves feared. And so… they were gone. Every last one.”
 
-She left the salve on Eldric’s mother’s step as she passed the farmhouse, knocked once, and was gone before the door opened.
+“Then how do I—”
+
+“Then tell me,” she cut him off, frost in it. “How do *you* possess their eyes?”
+
+“I don’t know. It happened. I almost died, and then—”
+
+“Enough. You carry something that should not exist. The House of Kālākṣa was eradicated for a reason. For what they could see, for what they could *become.*”
+
+“Then tell me what they were.”
+
+“No.” The single word carried the weight of finality. “I owe you no answer. But you will answer me.”
+
+The wind carried the faint sound of the dragon’s distant roar. Her golden eyes locked onto his.
+
+“Who are you?”
+
+The question hung between them, cold as the night air. She did not repeat it. Beneath the frost there was something else, a tremor of curiosity wrapped in composure, faintly sorrowful.
+
+He parted his lips, unsure whether to begin with *Esdel*, the only name he had, or with something else. Something that could explain why he always stood half in shadow, half in silence.
+
+“My lady.” A maid stood at the edge of the torchlight, bowing like someone trained to vanish. “Your private chamber is ready.”
+
+Xueyao’s gaze lingered a moment longer. Far off, the Dragon stirred.
+
+“This is not finished,” she said, and turned away, leaving behind the scent of jasmine and something colder.
+
+Esdel stood still, caught in the wake of her silence, as though he were a shadow she had already stepped past.
 
 ---
 
-At home, the kitchen was empty and dim. Arwen was in the back room with her ledgers.
+Later, beneath an old tree near the medical division, he sat with the moon pale above the camp. His uniform smelled of herbs and smoke. In his hand he held the small silver necklace, its chain thin, fragile, beautiful.
 
-Lyora took down the mortar. She took down a jar of dried hawthorn berries, poured some out, and began to grind.
+He pressed it tightly between his palms until the cool metal bit.
 
-She ground them to powder. She kept grinding. The pestle rang against the stone, sharp and rhythmic — faster, harder, until the sound was all there was in the room, until her wrist ached and a lock of hair fell into her eyes and she did not push it back.
+“She’d hate this place,” he whispered, half-smiling to no one. “Too cold. Too quiet.”
 
-*There’s nothing.*
+He remembered her laughter, how it used to rise above the sound of rain, and the way she used to fix his collar, her fingers brushing herbs like an afterthought. He remembered the last sight of her from the first rise, standing in the road, not moving.
 
-Well. Of course there wasn’t. She had known that. She had always known it. He had never said a word. She had built it all out of cups of tea and glances across the worktable and one night of lamplight, and he had never once said a single word.
+He had been asked a question tonight by a woman who ruled dragons, and could not answer it. Only one other person had ever looked at him as if the answer mattered, and she was asleep a very long way from here.
 
-The pestle rang. Rang.
+“Lyora…” he whispered. “I still…”
 
-A hand closed over hers.
+The words broke apart before they finished.
 
-Arwen stood beside her. She did not ask anything. She only held Lyora’s hand still on the pestle, gently, until the ringing stopped — and then she took the pestle out of her fingers and set it aside, and put a cup of tea in its place, warm, and folded Lyora’s hands around it.
+---
 
-Lyora looked down at the cup.
+In Edenridge the house was asleep. Lyora knelt at the foot of the stairs with a taper in her hand, though the lamp was already lit.
 
-Neither of them said a word.
+She had meant to trim the wick. Instead she sat with her back against the second step, her cheek on her knees, and let the tears come without a sound. No shaking, no sob. Only wet running into her sleeve, and her breath held until it trembled.
 
-After a while Arwen went back to her ledgers, and Lyora sat at the table with the tea going cold between her hands, and the kitchen grew dark around her, and she did not light the lamp.
+The flame stood very straight above its small blue heart.
+
+“Be safe,” she whispered into her arms. And then, because nobody was there to hear it, and because the dark would keep it: “Please don’t leave.”
+
+Upstairs the attic was empty, and the boards over her head did not creak.
+
+If dreams came for him that night, wherever he lay, they carried the scent of her hair, the warmth of her laughter, and the ache of everything left unsaid.

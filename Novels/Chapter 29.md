@@ -1,207 +1,105 @@
 # **Chapter 29**
 
-The ankle healed slowly, the way ankles do, and Lyora hated every minute of it.
+Morning unfolded gently over the Lián estate.
 
-Arwen forbade her the garden, the market, and the ridge. She was allowed a chair by the window, a stool for her foot, and as many jars to label as she could bear. She labeled all of them. Then she labeled them again in neater handwriting. On the third day, Esdel came in from the workshop and found her putting the tinctures in order of the alphabet, and she looked up at him with such murderous boredom that he almost laughed.
+Mist clung to the tiled roofs. The gardens were awake with dew, and the air was tinged with jasmine and the rustle of bamboo. Lord Lián Hengzhi sat beneath the peach trees, one hand resting over the head of his infant son, Yueming, who slept in a cradle beside him. Lady Wei Anlan came to sit beside him with an unfinished embroidery of a dragon winding through blossoms, gold threads trailing loose.
 
-Almost.
+“You’ve been sitting here since dawn,” she said gently. “The servants will start believing you’ve turned into a peach tree yourself.”
 
-They had not spoken of the ridge. Of the fields. Of the hedgerow. They said *good morning* and *thank you* and *mind your foot*, and between those words the silence lay heavy and gentle, like rain held in a leaf that might, at any moment, tip.
+“If I do, perhaps she’ll finally come home to see me bloom.”
 
-He no longer went out after supper. He did not seem to decide this. He simply stopped leaving.
+“You still wait for her every morning.”
 
-He sat at the worktable instead, copying Arwen’s old receipts into his notebook by the lamp, or working sums on a slate for no reason anyone could see. Across the room, Lyora pretended to read. Now and then, without looking up, she corrected his spelling of *valerian*.
+“Every sunrise feels like the one she might return with.” He turned the teacup slowly in his hand. “Our daughter has grown into someone even I cannot protect.”
 
----
+When she came home, he said, no guards, no attendants. Only the four of them, a family table, rice and soup and warmth. Steamed fish with ginger. Osmanthus wine, one cup for each.
 
-On the fourth day, Eldric came.
+“She would like that,” Anlan said. “She never cared for the noise of our halls.”
 
-He came to the front door in a clean shirt with a basket over his arm — peaches, the first good ones of the summer, gold and blushing, their scent filling the doorway before he did. He nodded to Esdel, easy and warm, the same as always.
+“Remember when she vanished from her debut banquet? I found her in the stables, feeding the mare with her silk gloves still on.”
 
-“Father’s walking with a cane now,” he said. “Stomping about the yard like a lord. Ma says if he tells her one more time how to hang the washing, she’ll break the other leg herself.” He grinned. “I brought these for the invalid. Is she decent?”
+“And when you scolded her, she only said—”
 
-“She’s labeling,” Esdel said.
+“‘Even the horse was hungry, Father.’”
 
-“Gods help us.”
+They said it together, and both fell silent afterward, smiling at the memory. It was a good day. Almost too good.
 
-From the back room, Lyora called, “I can *hear* you.”
+Then a messenger came to the western gate with the Wei crest, the crane over the moon: a new vessel from the Nanyue fleet had docked in the harbor, a gift to honor their daughter’s service. Would Lord Lián come to inspect it at dawn?
 
-Eldric went in. Esdel stayed in the shop, measuring willow bark for old Richard’s joints, and did not listen. He tried very hard not to listen. He could hear their voices through the doorway — Eldric’s low and steady, Lyora’s lower — but not the words, and he did not try to make them out.
+Hengzhi read the warm, familiar words twice. “My brother-in-law rarely writes so suddenly,” he murmured. But Anlan was already choosing a jade carving to send in return.
 
-Only at the very end, as Eldric’s step came back toward the door, did Lyora’s voice carry clear.
-
-“Thank you for the rack, Eldric. Truly.” A pause. “And tell the one who tied the bindings — they’re perfect.”
-
-There was a silence.
-
-Then Eldric laughed. Softly — not his big field-laugh, but a small one, rueful, almost fond. The sound of a man hearing the answer to a question he had not quite asked.
-
-“I’ll tell him,” he said.
+None of them noticed the glance exchanged between two servants, one of them a man Aldric had bribed weeks before.
 
 ---
 
-Esdel walked him to the gate. It seemed the least he could do. The afternoon was bright and still, the lane shimmering with heat, cicadas loud in the trees.
+The morning broke pale and thin, with an unseasonable chill, the sea mist muffling the docks.
 
-He had the packet ready. Feverfew, dried on the new rack, from the basket someone had carried down off the ridge the morning after the storm; a smaller twist of willow bark beside it. The dose was written on the paper in his small, strange hand — *a pinch of each, steeped, morning and night, not with wine* — and *not with wine* was underlined twice, because Eldric’s father had opinions about wine.
+The vessel was called the *Jade Willow*. Banners of Lián and Wei hung limp from her masts. Deep in her hold, beneath honest bolts of cloth and barrels of famine rice, a man named Zhao had hidden what Rowan Hale had prepared and Aldric had placed: weapons smuggled over the southern border, seals forged with the rebels’ emblem, letters of treason in an elegant hand.
 
-Eldric turned it over. “He says your letters look like a hen walked through the ink.”
+Aldric was already on the pier, in robes of deep crimson, his face a picture of weary duty.
 
-“Tell him the hen was very careful about the dose.”
+“Lord Lián. His Majesty requested an inspection of the larger vessels. Given my — proximity — to the affairs of the court, I thought I might assist.”
 
-Eldric laughed and tucked it into the empty basket.
+“Your presence honors me, Lord Aldric,” said Hengzhi, who suspected nothing.
 
-At the gate, Eldric stopped. He looked at the road, not at Esdel.
+They went into the hold. Hengzhi’s own men opened crates of spice and silk, each stamped with honest accounting. Then Zhao’s voice, trembling and dutiful: there were three crates in the corner, without customs seals, added late last night. Shall we open them, for everyone’s assurance?
 
-“You were wrong, you know,” he said. There was no anger in it. Only a kind of tired amusement. “At the fields. *There’s nothing.*” He shook his head. “You believed it, too. That was the worst of it. I’ve never once heard you say a thing you didn’t believe, Esdel — and you stood there and believed *that*. You went all still, like a heron.”
+“That cannot be,” Hengzhi said. “I gave orders that all cargo be sealed before midnight.”
 
-Esdel opened his mouth. Nothing came out.
+The lid broke with a dry crack that seemed too loud for the dark.
 
-“It’s all right.” Eldric shifted the empty basket on his arm. “I think I knew before I asked. I just — wanted to be sure. You know?” He was quiet a moment. “She knew about the bindings. From the first day. She told me just now. Said she’d know that knot anywhere.”
+Cold steel. Folded banners of rebellion. The blood went out of Hengzhi’s face until it looked carved from pale jade.
 
-The cicadas sang. A cart went by in the lane, and the driver lifted a hand to them both, and they both lifted a hand back.
+“I have never seen these before,” he said, in a voice stripped of all authority. “Someone has—” The word *betrayed* stuck in his throat.
 
-“I asked Ma to wait,” Eldric said. “With the go-between. Told her — not this harvest.” He smiled, crooked. “She wasn’t pleased. But Father’s walking, and the fields will come in, so.” He shrugged. “There’s time.”
+Aldric looked at him with perfect pity, and that was the worst of it. The nobles on the deck looked away, one by one, as men do from a death that is not theirs.
 
-“Eldric—”
+Anlan’s jade carving sat forgotten on a barrel, wrapped in white silk.
 
-“Don’t.” It was gentle. “Don’t say sorry. I’d have to punch you, and then Lyora would have to bandage you, and I think we’ve all had enough of that this summer.”
-
-Esdel breathed out something that was almost a laugh.
-
-Eldric looked at him then, finally. Honest to the bone, as always.
-
-“I’m not saying I’ve stopped,” he said quietly. “I don’t think it’s the sort of thing you stop. I’m only saying I won’t stand in the road.” He clapped Esdel on the shoulder, once. “Look after her. And for the gods’ sake, eat your supper. She told me about that, too.”
-
-He went off down the shimmering lane with the empty basket swinging, whistling something tuneless, and did not look back.
-
-Esdel stood at the gate a long time after he had gone.
+When they led him from his own ship, Hengzhi looked back once at the misty harbor. It was not despair in his face. It was a tired, quiet understanding that the destruction was complete, and that the truth, like all buried things, would one day surface again.
 
 ---
 
-That night it rained again.
+By dusk the capital was aflame with whispers. *Lián Hengzhi, caught trading arms to the rebels. Aldric Reng, loyal hound of the Crown, bled defending the realm.*
 
-Not a storm — a soft, steady summer rain, the kind that goes on for hours without ever raising its voice. It whispered on the roof and ticked in the gutters and made the whole house smell of wet wood and warm earth.
+Rowan Hale told the King what he had come to tell him. The retainers who had cried *frame* had drawn blades on the Crown’s envoy. Aldric had been cut across the hand and struck in the leg. The nobles were calling for swift justice. The Lián name must be silenced, for peace, if nothing else.
 
-Esdel lay awake. He knew, without knowing how, that below him she was awake too.
+“Belief,” the King said, “is not proof.”
 
-After a while he heard her door. The small, halting sound of someone walking on one good foot and one careful one. Then a creak — the third stair, the one that always creaked — and then nothing.
+“And yet belief shapes the realm faster than law.”
 
-He waited. There was no more sound.
+The King leaned back, his face half hidden in the shadow. Under the weariness there was sorrow, the kind that comes from knowing justice may already be lost, and duty demands obedience anyway. He signed for the tribunal. His hand trembled once.
 
-He got up.
-
----
-
-She was sitting on the stairs.
-
-Near the bottom — the second step — with her bandaged ankle stretched out along the floor and her back against the wall, a shawl around her shoulders. A single candle stood on the boards beside her, its small flame leaning in the draft. She looked up when he appeared at the top of the stairs, and did not seem surprised.
-
-“You’ll wake Grandmother,” she said.
-
-“You’re the one sitting on the loud step.”
-
-“I’m on the second step. The loud one is the third.”
-
-“You *stepped* on the third.”
-
-“I had to get *past* it.”
-
-He came down, carefully, skipping the third stair, and sat a few steps above her. Not close. Close enough that if she leaned back, her shoulder might have touched his shin. She didn’t lean back.
-
-They listened to the rain.
-
-It went on a long time — the whisper on the roof, the tick of the gutters, the candle hissing softly when a drop found its way through the old shutters. The house breathed around them. It was so quiet he could hear her breathing, and she could hear his.
-
-Then she spoke.
-
-She did not look at him. She looked at the candle. Her voice was low and uneven, and she spoke the way people speak in the dark — as though the dark were a kind of permission, as though what was said there need not be carried back into the day.
-
-“I heard you,” she said. “At the fields. With Eldric.”
-
-He went very still.
-
-“I was bringing salve for his father. I didn’t mean to—” She stopped. “I heard you say *no*. And *there’s nothing*. And then the wind took the rest.”
-
-The rain whispered.
-
-“I’m not asking what you meant.” Her fingers turned the edge of her shawl, over and over. “I only wanted you to know I heard. Because I’ve carried it around for a week like a stone in my shoe, and I’m tired.” A small, unhappy laugh. “I told myself it didn’t matter. Then I came home and ground a whole jar of hawthorn into dust. And then I burned the tea again. Did you know? The next morning. I burned it and threw it out before you came down.”
-
-He hadn’t known.
-
-“Eldric,” she said, after a while. The name came out carefully, like something fragile being set down. “When I was small — twelve, thirteen — I would have given anything for him to look at me the way he does now. Anything. I used to walk the long way past his fields just to see if he’d wave.” She was quiet. “And now he does. He looks at me like that. He’s kind, and he’s good, and he — he *asked someone* to build me a rack, and apologized to me for holding my hand, and he would never leave this valley as long as he lived.” Her voice thinned. “And all I feel is sorry. Sorry for him. And sorry for the girl I was. She waited so long. And when it finally came, I let her down.”
-
-Esdel said nothing. He did not think she wanted him to.
-
-“The market,” she said — and this time the laugh was embarrassed, almost real. “That woman with the cart. The one with the blue hands.” She put her face briefly in her palm. “I hated her. For a whole afternoon. With my whole heart. She only asked you about a *wheel*.” She shook her head against her hand. “I’ve never been like that. Never. I didn’t know I *could* be. I didn’t like who I was that day. I don’t like that you saw it.”
-
-“I didn’t,” he said. “Not until that night.”
-
-She looked up — startled — then quickly back at the candle. Color rose in her face in the small gold light.
-
-“Well,” she said. “Good. Forget it, then.”
-
-He did not say that he would never forget it. He thought she knew.
-
-The rain went on. The candle burned lower. When she spoke again her voice had changed — quieter, further away, as if she were speaking from the bottom of a well.
-
-“People leave this house, Esdel.”
-
-The words fell into the dark and stayed there.
-
-“They stand in that doorway,” she said, “and they say *we’ll be back*. And they mean it. They always mean it.” She stopped. He waited for more, and none came. She only sat with her arms around her knees, looking at the door at the far end of the dark shop, and he understood that there was a whole story behind that sentence she could not tell tonight. Perhaps not for a long time.
-
-So he did not ask.
-
-After a while she drew a breath and let it go, and when she spoke again it was lighter — almost teasing, almost herself.
-
-“I knew the knots,” she said. “On the rack. The moment I touched them.” She glanced back at him, only for a moment. “You tie them like you’re afraid the water will get away.”
-
-Something in his chest opened, very slowly, like a hand unclenching.
-
-He thought of everything he could say. That the knots were the only way he knew to hold on to anything. That he had tied every one of them thinking of the height of her reach. That he had stood in a field and told a good man there was nothing, because he had believed — *still* believed, in some cold and hollow place — that nothing was the most he had to give.
-
-He said none of it.
-
-He said, very low, “It wasn’t nothing.”
-
-That was all.
-
-She didn’t turn around. But he saw her shoulders ease, the way a held breath eases. He saw her close her eyes.
-
-And then she was quiet. Not the quiet of someone who has finished — the quiet of someone standing at the edge of something, at the very lip of it, with one more word waiting behind her teeth. He felt her standing there. He felt the word, the whole shape of it, in the air between the second step and the fifth.
-
-She did not say it.
-
-She didn’t need to.
-
-He heard it anyway — in the silence where it should have been, in the rain, in the candle leaning toward her in the draft. He heard it more clearly than he had ever heard anything. And he did not say it back, because he did not need to either. She heard him too. He knew she did.
-
-After a while — slowly, as though it cost her nothing at all — Lyora leaned back and to the side, and rested her head against his knee.
-
-That was all. Only that. The small, warm weight of her head, her hair soft against the cloth over his knee, her eyes closed.
-
-He did not move. He did not dare. He kept his hands folded in his lap and his breath slow and even, so that nothing would disturb it — so that she could stay there as long as she wished.
-
-She stayed.
-
-They listened to the rain until the candle guttered, and after. They listened until the rain thinned to a drip, and the drip to silence, and the first grey came up behind the shutters, and somewhere across the village a rooster began, far too early, to crow.
+Prince Ardbert heard the news in a corridor and stood very still. He thought of a man with a steady voice who had never once looked at him the way the other nobles did, and then of the man’s daughter, and he did not know what to do with either. Khalid said nothing. There was nothing a servant could say, and nothing a prince could yet do.
 
 ---
 
-After that night, nothing more was said.
+Two months later Aldric Reng limped into the throne hall on a cane he had never needed. The scar along the back of his hand had healed thin and pale. He bowed so deeply that his surcoat brushed the stone.
 
-Nothing needed to be.
+“Though my body was broken in the service of the Crown, my spirit was not. I did not act from ambition, Your Majesty. Only loyalty. Loyalty that demands decisive action even when it brings destruction to one’s own blood.”
 
-But from then on, Lyora left a lamp burning at the foot of the stairs each night — turned low, just enough to see the steps by. She never mentioned it. It was simply there, every night, a small gold eye in the dark.
+“Loyalty that requires blood, Lord Reng,” the King said, “is still blood.”
 
-Some days later, the third stair stopped creaking. No one saw Esdel mend it. It simply stopped, one morning, and Lyora stood on it a long moment, rocking her weight back and forth on her newly healed foot, listening to the silence where the creak had been. Then she went on down to put the kettle on.
+“Then let mine flow first.”
 
-That morning there were two cups on the table when he came down. His was made the way she took hers — honey, a sprig of mint, not too hot.
+“You serve well,” the King said at last, wearily. “Perhaps too well. The House of Reng has shown itself capable of producing great loyalists and great threats. Take your rest.”
 
-He drank it without a word. It was perfect.
+At the threshold Aldric turned his head. *You will remember me, Your Majesty. And you will be dependent on me.*
 
-And every night after, the supper she left at the foot of the stairs was gone by morning — the plate washed and set back on the shelf, the cloth folded neatly on top.
+Of the ten, only one would die. Garron Reng, who had stolen, and Lián Hengzhi, who had not, were named side by side on a single sheet of vellum, and the King pressed his seal into the blood-red wax and did not look at the second name. *This is simply what peace demands.* The nine were spared. Hengzhi was executed at dawn and denied a burial.
 
-She had said everything but one thing, and he had heard that one most clearly of all.
+By evening the decree had spread along every trade road in the Kingdom. The House of Lián was stripped of its titles and holdings, placed “under the temporary supervision of the Crown,” and the Crown’s hand was the Grand Duke’s.
 
-The lamp stayed lit. The step no longer creaked. And the summer went on, slow and gold, around the two of them — as though the old house itself had let out a long-held breath, and was only now, at last, beginning to rest.
+In the sunlit study of Rowan Hale, servants carried out centuries of Lián labor in bundles. Rowan signed the last parchment, the silver griffin bright on the wax.
+
+“Eight-tenths, as agreed. And the remaining two to you.”
+
+“The rest is of no consequence, Your Grace. I have no need for crumbs when I can secure the harvest.”
+
+Rowan looked up. “You’re either too proud, Reng, or far too patient. I think you dangerous.”
+
+“Dangerous men tend to be exceedingly useful.”
+
+“Until they aren’t.”
+
+Later, alone by the rain-slick glass, Aldric smiled at his own reflection. *You can have your share of the coin, O Grand Duke. I’ll take the rest, not in silver or in gold, but in consequence.*

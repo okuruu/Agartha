@@ -1,106 +1,123 @@
 # **Chapter 17**
 
-The next evening, Esdel found himself following Lyora into the forest, where the air was thick with the mingling scents of damp moss, blooming nightshade, and the faint, earthy tang of decaying leaves, as though the land itself held its breath in anticipation of the secrets they were about to unearth. 
+The village square had become a camp, the biggest tent standing at its heart, the air thick with medicine and dried blood. Rows of cots. Soldiers breathing shallow beneath patched blankets.
 
-The twilight was soft, a delicate veil of gold and indigo draping the world, casting long shadows that seemed to stretch and twist like the unspoken thoughts lingering between them. 
+Esdel sat on a stool washing his hands after changing a bandage, his movements steady and practiced, as though he had done this countless times before. One of the soldiers stirred awake. His face was pale, his lips cracked, but his eyes widened the moment they met Esdel’s.
 
-Lyora moved with a quiet grace, her fingers brushing against the slender stems of feverfew and valerian, her hands steady yet tinged with a restlessness that Esdel could not quite place, as though she were not merely gathering herbs but sifting through the fragments of a memory she had long buried beneath layers of routine and silence. 
+“…It’s you, isn’t it?”
 
-She had promised him this for weeks. Not an errand — a lesson.
+“You know me?”
 
-“Leaves first,” she said, crouching by a clump of feathery green at the path’s edge. “Then roots. Then the ones that lie.”
+“How could I not? You were at the front. During the siege. You stood before the broken gates and told us to hold the line. You lifted the fallen banner yourself.” He struggled for breath. “Everyone thought you died that day.”
 
-“Plants lie?”
+Esdel’s heart began to pound. Around them, villagers guarding the tent exchanged startled glances. “He was in the war?” someone whispered.
 
-“The worst ones do.” She pinched a leaf and held it up. “Feverfew. Smell.”
+“I can’t remember anything before the desert,” Esdel said.
 
-He smelled. Sharp, bitter, almost medicinal.
+“You saved us that day. I never forgot that face.” The soldier’s gaze lingered. “You really don’t remember, do you?”
 
-She pinched another from a clump an arm’s length away — nearly the same feathered leaf, nearly the same small white daisy of a flower. “Chamomile.”
+“No. I wish I did.”
 
-Sweet. Like apples left in the sun.
+Arwen eased the man back down, her hand firm on his shoulder. Later Esdel sat with his palms pressed together, staring at hands that were clean now, as though the stains refused to fade. *Everyone thought you died.* He remembered no battlefield, no banner, no hill. And yet his heart had tightened with a strange ache of familiarity. Was it possible to miss something you didn’t remember losing?
 
-“They grow side by side,” she said. “In a jar, dried, you can hardly tell them apart. So you tell them apart *here*, before they ever reach the jar. You smell every one. Every time. Even when you’re tired. *Especially* when you’re tired.”
+A step at the tent flap, soft and uncertain.
 
-He took out his notebook and wrote it down. She watched him do it and did not tease him, which meant it mattered.
+Lyora stood half in shadow, her herb basket hanging forgotten at her side. “There’s still work to finish,” she said.
 
-At the foot of a bank she showed him valerian, tall and pale-headed, and put his hand on the stem instead of the flower.
+“There’s always work,” said Arwen mildly, rising with her tray. “But some hearts need tending more than herbs tonight. Make sure the lamps don’t go out.” And she was gone.
 
-“The good of it is in the root,” she said. “But not now. In autumn, when the leaves die back and the plant goes down into itself for the winter. Dig it in summer and you get half a medicine and a dead plant.”
+Lyora pretended to sort herbs. Her fingers trembled. “What that soldier said. Was it true?”
 
-“Why does it go down into itself?”
+“I don’t know. He seemed sure.”
 
-She paused. “To keep what it has, I suppose. Until it’s safe to come up again.”
+“And if it is? If you really were that man?”
 
-He looked at her a moment. She was already moving on.
+“Then I was someone who fought in a war I can’t recall, for reasons I don’t understand. And perhaps someone who didn’t deserve to be remembered.”
 
-By the stream she showed him yarrow, and how to tell the good leaf from the tired one, and he wrote that down too.
+Her hands stilled. “Don’t say that.” She turned to face him. “You’re not the man that soldier remembers. You’re the man who mends wounds and carries water and keeps the lamps burning when everyone else is too tired. That’s the Esdel I know.”
 
-They went on. Deeper, where the canopy closed and the light went green and dim.
+“But what if the man I was did things that can’t be undone?”
 
-In a hollow below the path, shaded so deep the moss never dried, something grew that he did not know.
+“Then let him stay buried. You don’t owe the past anything.”
 
-Grey leaves. Not silver, not dusty — *grey*, soft and matte, as if the color had been drawn out of them. Above the leaves hung small pale flowers, bell-shaped, drooping on thin stems like bowed heads.
+He almost reached out. He stopped himself. She noticed, and her lashes lowered, and she took a half-step back as though that invisible distance needed keeping before it shattered them both.
 
-It was beautiful, in a quiet way. He stepped down toward it without thinking.
+“Lyora.”
 
-“No.”
+She stopped at the flap.
 
-Lyora’s hand closed on his wrist. Not gently.
+“Thank you.”
 
-He turned. Her face had gone very still.
-
-“We don’t use that,” she said. “Not ever.”
-
-He looked back at the grey leaves, the bowed white heads, the dim hollow that held them. “Does it have a name?”
-
-A silence.
-
-“Not one we use,” she said.
-
-He opened his mouth — the next *why* already there, the way it always was.
-
-Then he saw her face again, and closed it.
-
-He stepped back up onto the path. After a moment her fingers loosened from his wrist, and she let go, and they walked on as if nothing had happened.
-
-The wind, light as a whisper, carried the faint melody of her humming—a tune that wavered between familiarity and something more elusive, like a lullaby from a childhood she had forgotten, or a song she had never truly learned. 
-
-It was then, as the last rays of sunlight dipped below the horizon and the forest seemed to exhale, that her humming faltered, replaced by a sigh that lingered in the stillness, heavy with unspoken words. 
-
-“You know,” she murmured, her voice a thread of silk unraveling in the quiet.
-
-“When I was younger, I liked someone.” 
-
-Esdel paused mid-step, the basket of herbs he had been filling suddenly feeling like an anchor, its weight pressing against his chest as though the very act of gathering sustenance had become a metaphor for the burden of unspoken truths.
-
-He tilted his head, watching her, his gaze lingering on the way her fingers trembled slightly as she plucked a sprig of thyme, the movement deliberate yet tinged with a vulnerability that made his pulse quicken in a way he could not name.
-
-“He was kind,” she continued, her voice softening, as though the memory itself were a fragile thing she feared might shatter if spoken too loudly. Her smile was a ghost of something brighter, a flicker of the girl she had once been, her eyes distant, tracing patterns in the air as though she were searching for something just beyond the reach of her fingertips. 
-
-“Strong, too,” she added, her words trailing into the hush of the forest, “a farmer who worked near the southern fields. I used to bring him medicine when he got hurt, just to have an excuse to see him.”   
-Esdel’s throat tightened, the air between them thickening like the mist that clung to the forest floor, as though the very atmosphere was holding its breath, waiting for the next word to unravel the quiet tension that had settled between them. 
-
-“But…” she said, her laugh a fragile, almost mournful sound, like the last note of a song that had faded too soon. 
-
-“He was handsome, and a lot of girls liked him. I guess I realized I didn’t stand a chance. So I stopped trying.” Her voice wavered, the final syllables dissolving into the silence like a candle’s flame guttering out, and for a moment, Esdel felt the weight of something ancient and unnameable press against his ribs—an ache that was not entirely his own, a wound he had not yet learned to tend. 
-
-He wanted to reach for her, to pull her into the shelter of his arms, to tell her that the ache she carried was not a burden but a testament to the depth of her heart, but the words caught in his throat, unspoken, as though even the act of speaking them might unravel the fragile balance of their unspoken connection. 
-
-Instead, he watched her, the fading sunlight painting her hair in hues of amber and ash, her silhouette framed by the rustling leaves and the distant, melancholic chirping of crickets that seemed to echo the quiet sorrow she had buried beneath layers of practicality and restraint. 
-
-In that moment, surrounded by the hush of the forest and the weight of her words, Esdel felt the slow, creeping tendrils of something he could not yet name—a realization that even in a place so still and serene, sorrow could still bloom, not in the form of a storm or a flood, but as a quiet, insidious thing, hidden in the spaces between laughter and the glint of a smile, waiting for the night to remember it and the dawn to forget.
+She didn’t look back. But her hand tightened on the edge of the canvas before she vanished into the night.
 
 ---
 
-That night, in the attic, he opened his notebook by the candle.
+Near midnight Arwen came back from the river tents with two of Reyn’s men to take the watch. She looked once at Esdel’s face and sent him home. “I’ll follow when the fever turns. Go.”
 
-Feverfew, bitter. Chamomile, apples. Valerian, autumn, the root. Yarrow, the green leaf, not the brown.
+Lyora was waiting at the edge of the square, her basket at her feet. She had not gone home after all.
 
-Beneath them, slowly, he drew a small grey leaf with a bowed flower above it.
+They walked together. Neither spoke. The lane was pale under the moon, their steps too loud on it. At the well she stopped pretending.
 
-He wrote no name beside it. He had none to write.
+“What you said in the tent. *Someone who didn’t deserve to be remembered.* You don’t believe that.”
 
-Only: *Not ever.*
+“I don’t know what I believe. He knew my face. I didn’t know his.” A pause. “I don’t know mine either, most days.”
 
-Then he sat for a long time with the pen in his hand, thinking not of the plant at all, but of a girl carrying medicine to the southern fields, looking for an excuse.
+She almost smiled. It was the kind of thing he said to make people smile, and she could hear tonight how much it cost him.
+
+At the apothecary the ivy moved in a breath of wind, and the smell of drying herbs came out through the shutters to meet them, as if the house were leaning out to see who was coming home.
+
+“A banner,” he said quietly. “A siege. If I was someone once, then someone is missing me. Or someone buried me.” He looked up at the dark window of the attic. “And I’m here. Eating your supper. Fixing your stairs.”
+
+“You make it sound like theft.”
+
+“Isn’t it?”
+
+She went up the step and opened the door and lit the small lamp on the counter, and the room came up gold around her: the jars, the scales, his notebook still lying open where he had left it that morning. At the small strange writing, and the drawing of a leaf, and a note in the margin: *ask A. why honey, not sugar.*
+
+“Please,” she said, without turning round. “Stop trying to remember.”
+
+“Lyora—”
+
+“You’ll only find something that takes you away. That’s all remembering ever does in this house.” Very evenly, as if telling him the price of feverfew: “Please don’t leave. Don’t leave this village. Don’t leave us.”
+
+He did not move. She set down the taper. Her hand was not quite steady.
+
+“From the first day the caravan carried you to our door, I’ve been waiting for you to go. Every morning. I come down the stairs and look at your cup and think, *not yet.* Every morning for a whole summer.” She laughed, very softly, at herself. “I thought if I waited long enough, it wouldn’t hurt when it came. That’s how it works with Grandmother’s bitter draughts. You get used to the taste.”
+
+She turned, and her eyes were perfectly dry.
+
+“It doesn’t work. I’m not used to it. I’m worse.”
+
+He crossed the room. He did not decide to. He took both her hands, the way he held a patient’s hands before saying something that would hurt.
+
+“You’re too kind to me. Even when I don’t deserve it.”
+
+“And you’re too cruel,” she said. The smallest, most broken laugh. “For making me love you this much.”
+
+The word went into the room and stayed there.
+
+He did not breathe. She did not look away. For one long moment they stood in the lamplight with her hands in his and the word lying between them where neither could pick it up.
+
+Then she took her hands back, gently, one and then the other, and went past him to her room and closed the door.
+
+---
+
+He did not go up to the attic.
+
+He sat down on the second step, in the dark, his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
+
+Through the door he heard her. Not loud. She was never loud. A small, careful, stifled sound, again and again, like someone breathing through a cloth: a woman crying into her pillow so her grandmother, asleep upstairs, would not wake, and so that the man on the stairs would not hear.
+
+He heard.
+
+He sat with his hands clasped between his knees and his head bowed and listened to every breath of it, and did not knock. He wanted to more than he had wanted anything in the whole long summer. But if he knocked he would have to say something. And the only true thing he had was what she had just said, and he did not know if a man with no past had the right to say it back.
+
+So he sat, and listened, and let each small sound strike him exactly where it fell, as if this were a penance. At one point he heard her say his name, once, not to him. At another he heard the bed creak as she turned over, and the pillow muffle something that was almost a laugh and was not. He pressed the heel of his hand to his mouth.
+
+Somewhere near dawn, the sound stopped.
+
+He got up, very quietly, and lit the lamp himself, and turned it low, and set it on the second step where she would find it. Then he went up the stairs, skipping none of them — the third did not creak anymore — and lay on his bed in the grey light with his eyes open.
+
+He had fixed that stair so it would never wake her.
+
+He lay there and wished, for the first time, that it would.

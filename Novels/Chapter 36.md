@@ -1,93 +1,93 @@
 # **Chapter 36**
 
-The night was very still.
+The Count came to see him three days later.
 
-Even the cicadas sang low. The moon came and went behind thin cloud, and each time it came, it laid a little silver across the garden — the rosemary, the bean poles, the stone bench by the wall where Esdel sat with his hands on his knees.
+He came alone, in the evening, his black cane tapping softly down the corridor of the east wing, and he knocked on Esdel’s door, which no one in the Lián house had ever done. Then he smiled.
 
-He was looking at them. His hands.
+“Apothecary. May I come in?” It was not a question. Esdel stood aside. “I wanted to tell you that I bear you no ill will. You did what you were asked. I read your notes; Morrell said it was like reading a book in a language that does not exist. A mind like yours is wasted in a field tent. I could offer you rooms, a laboratory, gold.”
 
-They had been steady all day. Steady on the soldier’s ribs. Steady on the twist that had put a grown man on the ground before anyone else in the tent had understood what was happening. Steady afterward, cleaning the scrape on his own knuckles with calendula, the way Arwen had taught him.
+“I’ve given my word to the General.”
 
-They were not steady now.
+“Ah. Your word.” The Count regarded him with rueful amusement. “You strike me as a man who keeps it. It is a rare quality.”
 
-He could still hear it. The small, dry, terrible sound of her breath stopping. He could still see her hands clawing at a stranger’s wrists, and her eyes finding his across the tent — not asking for help. Only finding him. As if, whatever was about to happen, she wanted his face to be the last thing.
+At the door, with his hand on the latch, he turned back, as though it had only just drifted into his mind.
 
-He had moved before he knew he was moving. And the part of him that had moved had not been afraid at all.
+“I had your service record brought up from the Ministry of War. Almost nothing in it. Just a levy, taken up by the Third Logistic, last summer, from a village near the desert’s edge.” He smiled. “*Edenridge.*”
 
-That was what he could not stop looking at.
+Esdel did not let one muscle of his face move. He thought afterward that it was the hardest thing he had ever done.
+
+“What a pretty name,” said the Count softly. “It sounds like a place where people are very kind. Where they would take in a stranger from the desert, and never ask where he came from.” He tilted his head. “I imagine they miss you there. I imagine someone is waiting.”
+
+The lamp hissed on the table.
+
+“Think about my offer. There is no hurry. I am a patient man.”
 
 ---
 
-The kitchen door opened behind him.
+Esdel sat on the bed while the lamp burned down. He had never said her name. Not here, not at the front, not to Halden, not to the General. He had kept it inside him the whole year like a coal carried in a clay pot, and never once let anyone see the light of it.
 
-He knew her step. He did not turn round.
+And it did not matter. The Count did not need her name. He had a village, and a map, and a patient mind. A letter to the right man. A rider on the south road. He thought of the ivy on the walls, and the lamp at the foot of the stairs, and Lyora on the second step in the dark with her face in her knees, saying *people leave this house*.
 
-“You’re still awake,” she said.
+Near midnight he took the whole thin sheaf of letters out of his coat, soft now at the folds from a winter against his chest. A patient man, who had read his service record, might one day search a room, and find folded papers that spoke of a river and a garden and a lamp on a stair.
 
-“So are you.”
+He fed them one by one into the lamp flame, and held each until it caught, and set it burning in a copper dish on the floor. He did not read them first. He knew what they said.
 
-She came across the grass in her shawl and sat down on the bench beside him — not close. A hand’s width. There were red marks on her throat, going dark at the edges now. She had not covered them. He did not let himself look at them for long.
+The last one he held longest. It was written in the ruined inn, the night the General told him to send them. It had only one line.
 
-They sat.
+He burned that too.
 
-“Thank you,” she said, after a while.
+When they were gone, he sat with his hand pressed flat over the silver flower until the window went grey. He did not take the necklace off. He thought about it for a long time. And then he did not, because there was a promise in it, and he had never broken that one, and he did not know how to begin.
 
-“I only—”
+---
 
-“No.” Not sharp. Only certain. “Not anyone.”
+“You can undo it,” said Xueyao, at the window of her sitting room. “The college will not help. My mother has asked me to stop. So I will not ask anyone else for anything, ever again. I am asking you.”
 
-He said nothing.
+“Not undo. But the greyveil I know. If it stopped all at once, after a year, it wouldn’t be gentle. And he watches her face as she drinks.”
 
-“When his hands were on me,” she said, “I thought, *so this is how.* That was all. Not frightened, even. Just — *oh. So this is how.*” She looked at the bean poles. “And then you were there.”
+“Then we don’t stop it all at once,” said Changli. “The bottle comes up on the steward’s tray. What if it were the same color, the same smell, but with half the greyveil? And the next one, half of that?”
 
-“I didn’t think,” he said. “My body just moved.” He turned his hand over in the moonlight. “It didn’t feel like saving you. It felt like remembering something.”
+He could do it. He could draw the greyveil out of the tonic and put the rest back as it was. And the gold oil he could not name would stay in it, untouched.
 
-She was quiet.
+*So the binding stays,* said a voice in his head. *So she still turns to him like a flower. Only now she’ll have the will to wonder why.*
 
-“Sometimes,” he said, “when I close my eyes, I see a woman. In white. Standing a long way off, looking at the horizon. I can’t see her face.” He had never said it aloud. It came out of him very plainly, like a stone set down on a table. “But I know she’s waiting. For me.”
+He did not say it.
 
-Lyora did not move. The moon went behind a cloud and came out again.
+He worked at night in an old stillroom behind the stables, with Han Ruo’s key and Pei Lun on a bucket outside the door. It was slow, delicate work, and he loved it, in a way he was ashamed of. In the second week a petal fell on Lady Anlan’s hand, and she looked at it for a long time, and frowned. In the third, her hands began to tremble, and the Count felt it shake, and his grey eyes went very still. In the fourth, she had a fever for three days, and on the third night Esdel stood in the dark gallery beneath her window and listened to her crying out in her sleep, not for the Count, but a name he could not hear, in a voice that did not sound soft at all anymore. A woman who had woken in a strange room, and was very frightened, and very angry, and did not yet know which.
 
-“Do you want to find her?” she said.
+---
 
-“I don’t know.” He pressed the heel of his hand against his chest, where it had ached all summer, for no reason anyone could find. “Part of me does. And part of me thinks if I remember her, I’ll lose something I can’t ever get back.”
+The fever broke before dawn on the fourth day.
 
-She sat very still beside him.
+Xueyao had sat all night on the floor outside her mother’s door. Near the grey hour, the crying went quiet, and her mother’s voice, hoarse and thin and very clear, said: “Where are the orchids?”
 
-Then she said, quite quietly, “Then don’t remember her.”
+Lady Anlan went down to the garden alone, barefoot on the cold stones, while the Count was away at the palace. Xueyao followed at a distance. Esdel stopped at the edge of the gallery, where the shadows were. She knelt at a bed of old orchids, and touched a leaf, and found at its base a small clean cut, old, healed over.
 
-He turned his head.
+“He trimmed too much,” she whispered. “I always said he trimmed too much.”
 
-She was not crying. Her face was pale and composed in the moonlight, and her hands were folded in her lap. Only her voice gave her away — very low, and very careful, the voice of someone walking across ice.
+Then she put her hands over her face and made a sound lower than weeping, and older: something frozen for a year beginning, all at once, to break.
 
-“I’m not a good person tonight,” she said. “I know that. I know I should say *go and find her, find out who you are, you deserve to know.* Grandmother would say that. I’ve been saying it to myself all evening, in the kitchen, with the kettle.” She looked down at her hands. “I can’t. I’m sorry. I don’t want you to find her. I want you to stay here, where it’s warm, and grind feverfew badly, and never remember anything at all.”
+Xueyao ran. Esdel had never seen her run. She fell to her knees on the wet stones and put her arms around her mother, who stared with frightened eyes —
 
-A tear went down her face. Only one. She did not wipe it. He did not think she had noticed it.
+“*Yaoyao?*”
 
-“Every time you look at the horizon,” she said, “I watch you go a little further away. Even when you’re sitting right next to me. Do you know what that’s like? To watch someone leave while they’re still in the room?”
+Her hands came up, trembling, and touched Xueyao’s face like a blind woman learning it. “Oh, look at you. You’re so thin.” And then Esdel watched the memory rise in her like a stone from the bottom of a pond. The harbor. The crates. The decree with its blood-red seal. A soft voice at the door, and a warmth that spread through her chest like mercy.
 
-He knew. He was doing it to her now.
+“I married him,” said Lady Anlan, in a small, dead, perfectly lucid voice. “He *stood* there. He opened the crates. And I let him sit in your father’s chair. Why? I can’t remember *why*. I remember being so tired. And then he came, and I wasn’t tired anymore. I remember being so *grateful*—”
 
-“I’m frightened,” he said. It surprised him, how easily it came. “Not of her. Of — something coming. Something that’s going to take you from me. I don’t know what. But I can feel it, the way you feel rain before it comes.”
+“It wasn’t you,” said Xueyao fiercely. “It was the tonic. He did it *to* you.”
 
-She reached out, then. Only her fingertips, on the back of his hand. The lightest touch.
+Esdel, in the shadow, closed his eyes. That was all she knew. That was all he had told her. She did not know that the gratitude, and the way her mother had turned to the Count like a flower, might have been poured into her one drop at a time. And her mother would never know either. Not from him. He did not know if that was mercy or cowardice. He was beginning to think there was not always a difference.
 
-“Nothing is taking me anywhere,” she said. “I’m the one who stays. That’s what I do.” A breath. “So stay with me.”
+They stayed until the sun turned the dew to gold. Lady Anlan talked about small things: Xueyao as a girl, the mare in the stables, Lord Hengzhi pruning his orchids before breakfast while she scolded him. Her voice was exhausted, and unmistakably her own, dry and quick and a little sharp at the edges. Esdel thought: *Xueyao has her voice.*
 
-He looked at her hand on his.
+Then she took her daughter’s face between her hands, steadily, her fingers not trembling at all.
 
-“I asked you last night,” she said. “You didn’t answer.”
+“Listen to me. I don’t know how long I have like this. I can feel something wanting to pull me back down, like a tide. So listen. Whatever happens to me, you keep him safe. Your brother. Keep him away from that man. Not the house. Not the name. Not the ships, not the gold. *Him.*”
 
-“Stay,” she said again, so softly he almost did not hear it. “Please. Don’t chase ghosts.”
+“I promise,” said Xueyao.
 
-And he looked at the red marks on her throat, and the single tear drying on her cheek, and the small brave line of her mouth, and he heard himself say it.
+Her mother leaned, heavily, against her shoulder, like a woman who has carried something a very long way. “Good girl. You always kept your promises. Your father used to say it was the most inconvenient thing about you.”
 
-“I’m answering now. I’ll stay.”
+Over her bowed head, Xueyao’s eyes found him in the shadow. She had known he was there. Of course she had. Neither of them looked away. And somewhere at the front of the estate, faint and far, came the clatter of hooves, and the creak of the great gate opening.
 
-She let out a breath. “Promise?”
-
-“I promise.”
-
-She turned her hand over, then, and laced her fingers through his, and they sat like that on the stone bench in the garden while the moon came and went. Neither of them said anything else. There was nothing else to say. He had promised, and she had believed him, and for a little while — an hour, perhaps less — the whole wide dark world beyond the garden wall went quiet, and let them have it.
-
-He would remember that, afterward. That it was less than an hour.
+The Count was home.

@@ -1,51 +1,109 @@
 # **Chapter 23**
 
-The night waned, and the festival’s brilliance softened into a hush. Lanterns dimmed one by one, their warm light fading into the dark like breath leaving glass. From the hilltop, Esdel and Reyn remained seated, the hum of laughter below now a distant echo.
+By the third day the road had turned narrow and wild. The air hung damp beneath a ceiling of leaves, and roots clawed through the path like bones surfacing from the earth.
 
-“You know,” Reyn said at last, swirling the last drops of fruit wine in his cup, “you’ve done a lot for this village. People talk about you. Even the kids—say the apothecary’s strange lodger can fix anything.”
+Esdel walked near the rear, one hand on the sword’s worn grip as if trying to remember something it should know. Every sound was too clear.
 
-“Apprentice,” Esdel said mildly. “Lodgers don’t have to scrub the mortars.”
+Something felt wrong. Not in the obvious sense — in the *absence* of what should be there. No birdsong. No wind in the branches. Even the insects had vanished. The forest seemed to be listening.
 
-Reyn snorted.
+The captain raised a hand. The column halted.
 
-Then Esdel gave a quiet laugh, low and unsure. “I’m just… trying to help.”
+“Wind’s changed,” he said quietly. “Enhance your bodies.”
 
-“Maybe,” Reyn replied, turning the cup in his hands. “But sometimes, the ones who try hardest to help forget they’re allowed to be happy too.”
+Around him, men whispered incantations, and a faint shimmer of blue and silver wrapped them. Their breaths deepened; their eyes sharpened. They moved like wolves scenting prey.
 
-The words landed softly, but something in them stayed. Esdel didn’t answer right away. The silence stretched between them, carrying the weight of things left unsaid. He looked down at his cup, his reflection faint and broken by the ripples.
+Esdel stood still. He didn’t know the words. *Enhance your bodies,* the captain had said — but Esdel’s body was all he had: unenchanted, untrained, uncertain.
 
-When he lifted his gaze again, he saw her.
+*Thwip.*
 
-Lyora was walking through the square below, her hand clasping a folded ribbon, her laughter mingling with the others’. The faint glow of lanterns brushed her hair with amber light, her green eyes half-hidden in the dark. Beside her walked Eldric—the farmer—with their friends in tow, easy and carefree.
+A single arrow. The man beside the cart fell to his knees, blood spreading down his neck like spilled ink.
 
-Esdel’s lips curved faintly, though it wasn’t quite a smile. Something inside him tugged—gentle, persistent, unrelenting.
+“AMBUSH!”
 
-Then, as if drawn by instinct, she looked back.
+Arrows rained from the treeline. The soldiers dragged the cart toward the ridge and locked shields in a circle, litters and supplies inside. Esdel threw himself behind a tree, rose halfway — and realized too late that he was outside the ring. The gap had already sealed.
 
-Their eyes met across the distance—one heartbeat, two—and the noise of the festival fell away. For that brief second, the world narrowed to nothing but her gaze and the quiet ache that came with it.
+Beyond it the enemy poured from the forest in dark armor, their insignia a dull crimson like dried blood. Twice as many as the seventy. Maybe more.
 
-And then she turned again, the moment slipping like sand through his hands.
+One came at him. Esdel’s blade lifted just in time, and the clash rang through his bones. He ducked, clumsy and desperate, and drove upward. Then another came, and another. He didn’t think; he *reacted*. His muscles remembered what his mind didn’t. He fought like a man born from panic and instinct — not trained, *driven*.
 
-The great tree stood tall at the heart of the square, its branches heavy with hundreds of colored ribbons. The night wind stirred them into motion—silver threads and blue ones twisting together, only to drift apart again. He watched until they were lost in the dark.
+Behind him a voice cried out, the gruff soldier from the fire. “The apothecary—! He’s out there!”
 
-By the time he returned to the apothecary, the streets had grown still. The air smelled faintly of rain and wilted petals, the remnants of the festival scattered along the cobblestones.
+The captain looked up, jaw tightening. His hand rose, not to point, but to signal.
 
-Upstairs, the room was dim, lit only by the faint glow of a lantern by the window. He sat on the edge of the bed, loosening his collar, his thoughts circling endlessly.
+“Hold formation! Protect the supplies!”
 
-Reyn’s words replayed in his mind: *people who try to help forget they’re allowed to be happy.*
+He couldn’t risk it. Not for one man.
 
-But happiness—what was that, to someone who couldn’t even remember who he truly was?
+And so Esdel fought alone.
 
-He lay back, eyes tracing the wooden ceiling above him. Through the cracks of the shutters, moonlight filtered in—thin and silver, just enough to catch the glint of the small ribbon tied around his wrist. A gift from a child earlier that evening. A wish for “strength.” She had tied it on herself, tongue between her teeth, her salved finger held carefully out of the way.
+Three soldiers fell before him. Then came the arrows — seven of them, dark streaks through the air. He turned, too slow.
 
-He turned his hand over, watching the ribbon sway with his pulse.
+Shoulder. Thigh. Side. Back, twice. Hip. The last pierced his arm and pinned his sleeve to his skin.
 
-Outside, the wind whispered through the trees. Somewhere below, Lyora’s laughter still echoed faintly in his mind—soft, uncertain, fragile.
+He fell hard, the mud cool against his face. Blood dripped black down his wrist. Beneath the noise he heard his own pulse, louder and sharper, until the world began to bend around it.
 
-He closed his eyes.
+*Lyora.*
 
-And as sleep slowly claimed him, he thought of those two threads beneath the wishing tree—  
-silver and blue, twining together for only a breath before the wind took them apart.
+It was the only word left in him. Not a plea. Just a name, held like the flower charm in a closed fist.
 
-How close they came…  
-and how quietly they drifted away.
+Then the pain turned white-hot. His vision split open, and the color bled away until only crimson remained.
+
+Time fractured. Soldiers froze mid-swing. Arrows hung like shards of glass. The smoke curled in still spirals.
+
+He could *see.* Every held breath, every tremor beneath armor, every intention waiting to become movement. His eyes drank in more than any mind should have been able to hold, and somehow his head kept pace.
+
+Amid the frozen fragments one figure stood apart. A stance stronger, steadier. The enemy captain.
+
+Something inside him screamed *go.*
+
+He moved through the still world like a blade through water. The light from his eyes — red, the pupils pinched to narrow slits like a fox’s in the dark — cut two thin glints across the ground. He reached the captain. His sword rose, or perhaps it was already falling.
+
+The sound of the strike never came. Only silence.
+
+Then the world caught up. Blood burst outward, bright and sudden. The man collapsed, and the noise returned in a roar.
+
+Esdel dropped to his knees, gasping. Behind his eyes his skull throbbed as though it had been stretched too wide and was only now snapping back. All around him the enemy reeled at their fallen leader, and the line began to break.
+
+From the back ranks, Captain Erven of the 3rd Logistic Company saw the moment of weakness. “Now,” he breathed. “For the wounded!”
+
+What was left of seventy weary souls charged into twice their number, who had already begun to doubt.
+
+---
+
+When the sun sank completely, the field was no longer a place of war but of ghosts.
+
+Esdel sat apart with his back against a tree. The Karunākṣa was still open. He could see the curve of every falling ember, the tremor of a moth’s wing, the faint mist of breath from a sleeping soldier’s lips. Every second unfolded painfully, drawn out, raw.
+
+*Too much.*
+
+“...Enough,” he rasped, and forced it shut.
+
+The world returned violently. He choked, retching onto the dirt. The glow in his eyes died, and the slits opened back into ordinary round pupils. The pain split through his head until everything blurred, and he breathed through clenched teeth until it dulled.
+
+The arrows had fallen from him somewhere in the dark, and the holes they left were gone as though they had never been. His skin was smooth, unmarred. And his blood still covered the ground.
+
+He stared at his hands. They would not stop trembling.
+
+“Hey…”
+
+The soldier with the pregnant wife crouched beside him. “You scared us. Caught out past the ring like that — gods, I thought we’d lost you.”
+
+“I didn’t think. I just moved.”
+
+“Well, you moved fast enough to save all of us.” The man stared into the embers. “Every time I think I’ll make it home, something tries to take it away. Still… thanks. I might actually see my kid because of you.”
+
+“I think you will,” Esdel said.
+
+The soldier rose, stretching. “You look like death itself. Try to rest, Hero.”
+
+He said it lightly, teasing, but Esdel flinched all the same. He didn’t know the man that word belonged to.
+
+When the footsteps faded, he took the necklace out from under his shirt. His hands were still red to the wrist. He did not want to touch the silver with them, and he held it by the chain alone, and it was warm.
+
+*I broke the first promise on purpose,* he thought. *I nearly broke the second tonight, without meaning to.*
+
+Somewhere a lamp was burning on a stair. He was alive because of a name he could not say aloud.
+
+He tilted his head back to the stars, scattered and imperfect, and for the first time since those cursed eyes had opened, he smiled — faintly, almost uncertainly. Real, but it hurt.
+
+A mercy that burned, and yet did not destroy.

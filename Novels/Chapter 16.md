@@ -1,81 +1,113 @@
 # **Chapter 16**
 
-The change was not sudden.  
-It came like the shifting of wind — subtle, nearly invisible, yet impossible to ignore.
+A week had passed since the rain on the ridge. Lyora’s ankle had mended at last, and each night the lamp still burned, turned low, at the foot of the stairs.
 
-In the days that followed the riverside gathering, Esdel noticed the silence first.  
-A pause in conversation as he walked by.  
-A smile that came a heartbeat too late.  
-Whispers that stilled the moment his shadow crossed the path.
+It was a rare morning of calm, and Esdel spent it wandering the village. The baker, flour permanently dusting his hair, insisted he try a batch of sweet buns that hadn’t come out right. Esdel bit in. His face twisted. “That’s… unexpectedly oceanic.”
 
-No one said anything cruel. No one accused or questioned.  
-Yet something unspoken had settled in the air — a faint distance, as if the village had taken a single step back from him.
+“Oceanic?”
 
-He tried to brush it off. Told himself it was nothing. But even Reyn, usually quick with laughter, seemed quieter now — studying him sometimes as though trying to understand something that didn’t fit.
+“Salty. Very salty.”
 
-And yet they still came to the shop.
+A roar of laughter. “I must’ve switched the jars again!”
 
-In the square they might pause a heartbeat too long. But at the counter, with a cough or a cut or a child who would not sleep, the pause went away. The miller’s mother still asked for “the young one” to mix her joint salve, because his hands were warmer than Lyora’s and gentler than Arwen’s, and she said so to both of them. A carter with a split thumb still sat on the stool and let Esdel clean it, and talked the whole time about his horse.
+“A bold experiment,” said Esdel. “Perhaps you’ve discovered the future of bread.” Even old Richard, who never smiled, was chuckling by the cart. And at the square, where men were struggling with a cart wheel, he said gravely, “The axle’s friction coefficient is throwing off your load balance,” and one of them said, “I don’t know what you just said, but it sounds smart! Do it!” and he laughed until he had to put his hands on his knees.
 
-“Pain doesn’t care what’s strange,” Arwen said, when he mentioned it. She did not look up from the ledger. “It only cares what helps.”
+Arwen found him there, basket on her arm. The vegetable vendor called out, “And this one? Is he any good, Arwen, or do we only keep him for the jokes?”
 
-So he tried to help.
+Arwen looked at him, head tilted, the way she looked at a tincture held to the window.
 
-He stayed up later than he should have, with a candle stub and his notebook, copying out what he had learned that day and what he had not yet understood. When his eyes grew tired of receipts, he drew the slate out from beneath his bed and filled it with sums — long columns of them, angles and weights and numbers that answered to nothing, for no reason he could have given anyone. Then he wiped it clean with his sleeve and started again.
+“He is the best apprentice this house has had,” she said. “He has never once mistaken the sugar for the salt. Unlike some bakers. And unlike *some* granddaughters.”
 
-It quieted something. For a while.
+The older women hooted. “The sugar for the—?” “Later, child,” said Arwen serenely.
 
-By the third night, Esdel couldn’t sleep.
+On the walk home, she told him: the first potion Lyora ever made, sugar for salt, the cauldron exploding into sticky syrup, the walls sparkling for days. The stray cat whose wound she tried to heal with flower petals, gluing its fur together. “She cried for two days straight. She’s always been soft-hearted, stubborn, and hopelessly earnest.” He was laughing so hard he could barely walk, and Lyora met them at the turn of the hill with a basket, and caught “the cat glue incident,” and her face turned crimson. “Grandmaaaa!” She chased them up the lane half-scolding, half-laughing, and the heavy air of the past days lifted.
 
-The moon hung pale and heavy above the rooftops, casting silver across his small room. He sat by the window, the cool air brushing against his face, his thoughts turning in slow, uneasy circles.
+He stopped at the gate to watch them, the old woman chuckling, the young one flushed and pouting. The light wrapped around them like a blessing. He felt something he had no word for but *belonging,* and it ached.
 
-His gaze fell to his hand resting on the sill — the same hand that had once been gone.
+---
 
-It looked ordinary now. Flesh, lines, warmth. No seam, no shadow of what had been lost.  
-And yet, the memory of that missing limb haunted him — not in pain, but in mystery. How had it returned? Why had the dark mark faded only after he came here?
+That night he came down the narrow stairs, restless, and found her at the kitchen table with her sleeves rolled and a cup of tea she was cooling with slow breaths.
 
-He flexed his fingers slowly, watching them move in the moonlight. They obeyed perfectly.  
-But something in his chest tightened — a quiet, wordless dread that he couldn’t explain, even to himself.
+“Couldn’t sleep?” “Not really.” “Same.”
 
-He didn’t understand what he was anymore. Or who.
+“Do you like it here?” she asked, almost shyly. “Living in this village?”
 
-A gentle knock at the door pulled him from his thoughts.
+“It’s the first time I’ve felt that I belong somewhere. Even if I don’t remember anything, being here feels right.”
 
-When he opened it, Lyora stood there — her hair loose, her robe light against the night breeze. She held a small cup of steaming herbal tea, the fragrance of chamomile and wild mint curling softly through the air.
+“I’m glad.”
 
-“You haven’t been resting,” she said quietly. Her voice was soft, but there was concern beneath it. “You’ll make yourself sick again.”
+“Why are you and your grandmother so kind to me? You didn’t even know who I was.”
 
-Esdel hesitated before taking the cup. The warmth seeped into his fingers, grounding him.
+“Grandma says people who’ve lost their way just need someone to remind them what warmth feels like.”
 
-“I can’t settle,” he murmured. “Just… thinking.”
+“Then I’m lucky you did.”
 
-She didn’t press for more. She never did.
+She grinned suddenly. “By the way, I heard you like cats.” They laughed about the cat and the glue, and she buried her face in her hands. Then she leaned over his notebook, and read the two copies of the same cough receipt, one with two spoons of honey and one with one and a half. “Winter honey. It’s thicker when it’s cold — you need less. You’ll find a dozen like that.” He wrote it beside the receipt. *Winter honey — thicker — less.*
 
-Instead, Lyora stepped closer, her bare feet soundless against the wooden floor. Her glance passed over the slate on the crate, the chalk columns marching down it, and moved on without a question. She settled beside him by the window.  
-The two sat in silence, the moonlight painting their faces pale and tender.
+“What do you think of tomato soup?” she asked.
 
-Outside, the village slept — rooftops silvered by light, the faint chirr of crickets rising from the fields.
+“It’s great. Warm and slightly sour. Comfort food.”
 
-Neither spoke. There was no need.
+She stared at him as if he’d said something unthinkable. “I can’t stand it. The texture is slimy. It feels like it’s *judging* me.”
 
-The silence that filled the room wasn’t cold — but it was heavy, thick with unspoken worry and something deeper, something that trembled at the edge of understanding.
+“Tomato soup is judging you?”
 
-Lyora’s hand brushed the windowsill near his, though not quite touching.  
-She exhaled softly, her voice barely above a whisper.
+“It stares into your soul! It knows your secrets.”
 
-“Whatever it is you’re searching for… I hope you find it, Esdel.”
+“Then I’ll eat your share from now on.”
 
-He turned to look at her, but she was watching the moon, her eyes distant, shimmering like quiet water.
+“You and your judgmental soup can live happily ever after.”
 
-For a moment, he wanted to ask her what she meant — if she somehow *knew* that something inside him didn’t belong.  
-But the words refused to come.
+When the laughter faded it left something softer behind. Her fingers curled loosely around her cup.
 
-Instead, he simply nodded, taking a slow sip of the tea. It was bitter, soothing, real.
+“Have you ever thought about the future? I think I’d like a simple wedding. Not too big. Just nice enough. Surrounded by the people I care about. Grandma, my friends… people like you.”
 
-They stayed like that for a long while — two souls awake in the quiet hours, bound not by answers, but by the fragile comfort of being *seen*.
+The words hung between them, gentle and heavy.
 
-Outside, a wind passed through the bamboo pipes, carrying a low, mournful hum across the sleeping village.
+“That sounds perfect for you,” he said.
 
-Esdel closed his eyes.
+“What’s your dream wedding like?”
 
-And though the warmth beside him steadied his heart, the unease remained — deep, quiet, and patient, like something waiting just beneath the surface of his calm.
+He pretended to think, though his heart had already begun its quiet, steady ache. “I’d follow whatever my future wife wants. Seems easier.”
+
+“You’re no fun.”
+
+“Maybe not. But at least I’m honest.”
+
+She laughed. She picked up their cups and went to the basin with her back to him, and for a long time she rinsed one cup, and then the same cup, and then the same cup. He saw her free hand rise and press once, hard, against her mouth. He saw her shoulders rise and fall.
+
+*A simple wedding.* She had said *people like you,* the way one says the name of a guest who will not be there.
+
+“Onions,” she said, to the basin. “From supper. They linger.”
+
+There had been no onions at supper. Esdel looked at the lamp and let it have the page of his notebook, and said nothing, because he had nothing to say that he could say aloud, and because it was too late in the night to start lying to her now.
+
+When she turned, her eyes were bright and her smile was in place. Their eyes met across the table, above the rising curls of steam, and neither of them could look away. Something invisible and vast stirred between them, not spoken, not even fully understood, but undeniably there. Like the first bloom of spring daring to open in the heart of winter.
+
+He went up to bed with the sound of that single cup being rinsed ringing in his ears, and lay awake until the lamp at the foot of the stairs burned down.
+
+---
+
+The days grew softer between them. They slipped into the rhythm of the village as though it had made space for them. When the wind turned crisp and he forgot his cloak, again, she muttered about hopeless men and wrapped hers around his shoulders with a firmness that left no room for argument.
+
+“Oi, lovebirds!” called one of the blacksmith’s apprentices in the square. “Don’t burn the tea again like last time!”
+
+“That was her,” Esdel protested, a touch too fast. “Twice. She told me.”
+
+“That was *one time!*” cried Lyora, and the whole square rang with laughter. The baker presented them with a heart-shaped loaf. Lyora tried to give it back, flustered beyond words.
+
+Beneath the veranda, drying chamomile, a gust of wind scattered the petals. “Ah! My chamomile!” She reached for them helplessly, and he laughed, a real laugh, and when she looked up, startled, he said, without meaning to, “You’re beautiful when you panic.”
+
+Her cheeks turned crimson. “D-don’t say weird things!” But her voice trembled not from irritation. It trembled from something softer that hung between them long after the laughter had gone.
+
+At sunset, there was shouting on the southern path, and hooves, and the unmistakable cry of pain.
+
+Esdel’s laughter died instantly.
+
+They ran. At the end of the road, soldiers lay collapsed and broken, armor split, blood pooling in the dust. Arwen was already kneeling beside one. “Get the bandages!” Lyora dropped beside her grandmother, trembling for a moment before her training took over. “Esdel, help me.” He was already there.
+
+Through the long night of torches and blood he found himself watching Lyora — the hair clinging to her face, her hands shaking but never stopping. She looked nothing like the girl who argued about soup. And she was more herself than ever. When she caught him looking, neither spoke.
+
+He didn’t say it. She didn’t either.
+
+But everyone around them could feel it, even the quiet night itself: a love that didn’t need to be confessed, because it was already understood, and already, he feared, running out of time.

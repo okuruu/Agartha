@@ -1,167 +1,101 @@
 # **Chapter 28**
 
-The storm came up out of the west in the middle of the afternoon, the way summer storms do — no warning but a stillness, then a darkening, then the whole sky tearing open at once.
+The banners of House Reng still hung from the great hall — deep red, embroidered with the silver crest of the serpent devouring its own tail. Once, it had been a mark of cunning and survival. Tonight, it looked more like a curse.
 
-Esdel was at the bridge when it broke. By the time he had lashed down the loose planks and run back through the streaming lanes, the gutters were rivers and the air was white with rain. He came into the apothecary soaked to the skin, shaking water from his hair.
+Count Aldric Reng sat at the head of the long table, the sleeves of his coat rolled up, his fingers stained with ink and rage.
 
-Arwen was standing at the window.
+The war had bled everyone dry. House Reng had given more soldiers than most, and the King had rewarded them well: a hundred thousand gold crowns, entrusted to fund armor, grain, and medicine. But rumor traveled faster than truth ever could.
 
-She did not turn around. That was how he knew.
+Now, the rumor had a name.
 
-“Where is she?”
+A soldier entered, removed his helm with shaking hands. “My lord… it’s Lord Garron Reng — your cousin. The treasury’s auditors found records. He’s been diverting funds from the royal stipend. Nearly twenty thousand gold. Horses, jewels, silks.”
 
-“The ridge.” Arwen’s voice was calm. Her hands, folded before her apron, were not. “She went up for feverfew after the noon meal. For Eldric’s father — the fever came back in the night, after all that walking. She said she’d be home before the clouds.” A pause. “The clouds came an hour ago.”
+Aldric’s pen rolled off the table and struck the stone.
 
-He knew the fever. He had stood beside Arwen at the farm that very morning while she laid the back of her hand along the old man’s shin and frowned at the heat in it. He had written the receipt down himself, in his notebook, while she spoke it: *feverfew, fresh if it can be had, steeped strong — willow for the pain.* He had underlined *fresh*, because she had said it twice. The jar on the shop shelf held only dust and a few brown stalks.
+“The King is enraged,” the soldier added quietly. “The word among the guards is that His Majesty means to execute ten members of your House. To make an example.”
 
-He had meant to go up for it himself, after the bridge.
+A sharp crack — the sound of Aldric’s goblet shattering against the floor. The wine bled into the cracks like spilled blood.
 
-Esdel was already at the door.
-
-“Esdel—”
-
-“I’ll find her.”
+“Ten,” he whispered. “Ten for one man’s greed.”
 
 ---
 
-The ridge path climbed above the eastern fields into the forest, where feverfew grew thick in the clearings. In fair weather it was a pleasant hour’s walk. In the storm it was a streambed. Water sheeted down over the roots and stones, the trees roared overhead, and the light was a drowned green-grey that made everything look like everything else.
+Garron knelt on the marble of the great hall with the dust of travel on his velvet sleeves.
 
-Behind him, down in the village, a bell began to ring, and there were voices — men gathering, lanterns being lit. Someone shouted Lyora’s name. Eldric, his voice carrying even through the rain.
+“It was not greed — only desperation — I meant to return it, every coin—”
 
-Esdel did not wait for them.
+“Only?” The King did not raise his voice. He did not need to. “Twenty thousand lives could be fed with what you call *only*.” He looked down at the trembling man. “Ten of your bloodline shall answer for your theft. The price of one man’s greed is the shame of his House.”
 
-He could not have said how he chose his way. The path split, and split again, and at every fork his feet simply went, without asking him. Left, past the lightning-split oak. Up, where the stones were steepest. Along the lip of a gully where the water ran brown and loud. It was not memory — he had walked this path only twice. It was something beneath memory. The same thing that had once walked him out of the desert when every direction looked the same. Something that read the ground and the water and the broken ferns the way he read the slope of a field.
+The hall erupted. Garron clutched at the guards’ boots as they dragged him away, screaming a name.
 
-*Here,* it said. *She came this way.*
+“Aldric! Aldric, help me—!”
 
-A basket, overturned, spilling white-faced feverfew into the mud. Enough for a week of doses, some small, useless part of him counted. More.
+The Count’s gaze stayed fixed ahead. He neither acknowledged the plea nor denied it. When the noise ended he stepped forward and bowed.
 
-And beyond it, sitting against the roots of a great beech with her knees drawn up and her hair plastered dark to her face, shivering so hard he could see it from twenty paces—
+“House Reng accepts the decree. The will of the crown is law.” His voice was polished glass. “But the greed of one fool does not define the blood of an entire House.”
 
-“Lyora.”
+His words were perfect. His tone was flawless. Only his jaw tightened, for a heartbeat, before he smoothed it away.
 
-She looked up.
+That night the King stood alone at the window with his Prime Minister, rain drawing silver lines down the glass.
 
-For a moment neither of them moved. The rain came down between them in ropes.
+“It is meant to stir them,” he said softly. “If fear spreads, so will obedience. My son will not inherit weakness. Before one builds, one must let the walls crumble.”
 
-Then she said, in a small, furious, shaking voice, “I *twisted* it. On a *root*. Like a *child*.”
+“And what do you plan to do, Your Majesty?”
 
-He was beside her before she finished. He knelt in the mud. Her right ankle was already swelling against the strap of her sandal, hot beneath his fingers. She hissed when he pressed it.
-
-“Not broken,” he said.
-
-“I *know* it’s not broken, I’m an *apothecary*—”
-
-“I know you are.”
-
-Her teeth were chattering. Her lips had gone a pale, frightening blue. He took off his coat — soaked through, nearly useless, but it was something — and put it around her shoulders, and she let him, which frightened him more than anything.
-
-Neither of them said anything about the week behind them — the fields, the silences, the suppers gone cold. There was no room for it. There was only the rain.
-
-He turned his back to her and knelt low.
-
-She hesitated. He felt her hesitate.
-
-Then her arms came around his neck, and her weight settled against his back, light and cold and trembling, and he stood.
+“Nothing. Only touch the surface of still water. The ripples will do the rest.”
 
 ---
 
-He carried her down the mountain.
+Prince Ardbert came home from the famine lands to a palace that did not know what to do with its own quiet.
 
-It was slow. The path was treacherous, the stones slick, and he placed each step with care. She was lighter than he had expected — or he was stronger than he knew; he did not let himself wonder which. Her arms were locked around his neck. Her cheek rested against his shoulder, just behind his ear. Every breath she took, he felt.
+He had fed villages for three months and slept on straw. The people cheered his name in the markets, and the King, who rarely smiled, smiled at him. But that night, in the carriage, with his own tired face in the silver mirror, his thoughts went somewhere he did not send them. To a hall full of candlelight on his seventeenth birthday. To a girl with gold eyes who had looked at him as a person before a prince.
 
-After a while the shivering eased. Her body warmed against his back, and his against hers, the heat passing between them through two layers of soaked cloth.
+Lián Xueyao. She was at the front now, and he did not know what to do with the thought either.
 
-He felt her hand move. It had been clutching the front of his shirt; now it flattened, slowly, until her palm lay open against his chest.
+Khalid watched him a moment. “We are nearing the gates, Your Highness.”
 
-Over his heart.
-
-He knew what she would feel there. The heartbeat he lay awake listening to at night. The one that never faltered, never stumbled, never tired — too even, too precise. The one he had come to think of as borrowed.
-
-He waited for her to notice. To flinch.
-
-She didn’t. Her palm stayed where it was. And after a while he heard her breathe out — slow, and long, and almost peaceful — as though what she felt beneath her hand were the steadiest thing left in a world that had come loose.
+“Yes,” said Ardbert. “Let’s return.”
 
 ---
 
-Halfway down, at the lightning-split oak, a lantern came swinging up the path toward them.
+The rain would not stop. Aldric stood in his study with his reflection broken by the glass, and he heard Grand Duke Rowan Hale come in behind him without knocking.
 
-Eldric. Drenched, hair in his eyes, three men from the village behind him. He saw them, and his whole body sagged with relief.
+Ten names. Brothers, cousins, uncles. All of them to die. And Aldric spared, not for innocence but for use.
 
-“*Lyora* — thank the gods — are you hurt?”
+“I received your letter,” Rowan said, sitting without invitation. “A desperate one.”
 
-“My ankle,” she said into Esdel’s shoulder. “Only my ankle. I’m all right.”
+“Desperation sharpens clarity.” Aldric laid a stack of parchments on the table, each marked with the sigil of House Lián. “Protection, yes. But not charity. Eight-tenths of Lián’s ports and trade rights. Their eastern routes. And in return, you give me what I need most — a way back into the King’s favor.”
 
-Eldric came close, holding the lantern up. Its light fell over the three of them, gold and wet and trembling. He looked at Esdel’s face — rain streaming down it, jaw set hard with effort.
+“Eight-tenths.” Rowan smiled faintly. “Tell me, why them? Why House Lián, out of all the houses in this kingdom?”
 
-“Here,” Eldric said kindly, reaching out. “Let me take her. You’ve carried her all this way. I know the path better, and I’m—”
+Aldric turned back to the window.
 
-Lyora’s fingers tightened on Esdel’s collar.
+“Because this plan will be perfect,” he said. “You will understand, as I uncover my motives.”
 
-It was a very small movement. The smallest thing. A hand closing on a fold of wet cloth, the knuckles whitening for a moment, then easing.
-
-Esdel did not see it. It was behind his head.
-
-Eldric saw it.
-
-The lantern was right there. He saw her hand, and he saw her face — eyes half-closed, cheek pressed to Esdel’s shoulder — and on it an expression he had never, in all the years of their childhood, seen her turn toward him.
-
-His outstretched hands stopped in the air.
-
-For a moment something passed over his face. Not anger. Eldric did not have anger in him; he never had. It was something quieter, and much harder to watch. The look of a man opening a letter he had waited for all his life, and finding it addressed to someone else.
-
-Then he smiled.
-
-It was a real smile. That was the worst of it, and the best. It was a real smile, and it hurt him, and he smiled anyway.
-
-“Right,” he said softly. “You’ve got her. You’re doing fine.”
-
-He lowered his hands. He turned around. He lifted the lantern high.
-
-“Stay close behind me,” Eldric said. “The stones are bad from here down. I’ll light the way.”
-
-And he did.
-
-All the way down the mountain, through the roaring rain, Eldric walked a few steps ahead of them with the lantern held high above his head, turning back at every bad stone and every root — *careful here — step left — there’s a hole* — lighting the path for the man she had chosen. He did not look at Lyora again. He looked only at the ground, and made sure it was safe for them to walk on.
-
-The men behind them were silent. Perhaps they understood. Perhaps they only thought Eldric was being Eldric — which was also true.
-
-At the apothecary door, he stood aside and held the lantern up so Esdel could see the step.
-
-“Get her warm,” he said. And then, to Lyora, gently: “The feverfew can wait. Father will live. He’s too stubborn not to.”
-
-Then he went back out into the rain.
+The candle flickered once and died, leaving two shadows in the dark, smiling for different reasons.
 
 ---
 
-The fever came that night, as Arwen had known it would.
+In Edenridge, the first real snow had come, and the shop was shut early.
 
-Lyora burned and shivered in her bed downstairs while the storm wore itself out against the shutters. Arwen bound the ankle, brewed willow bark, and sat with her until midnight. Then her old hands began to shake with tiredness, and Esdel said, “Rest. I’ll stay.”
+Lyora sat at her worktable with the one candle she allowed herself after the lamp was lit. She had told Arwen she was doing the ledger. The ledger lay open under her left hand. Under her right was a sheet of paper, and on it, in her careful small hand, were six words and a long gap.
 
-Arwen looked at him for a long moment.
+*It snowed today. The bamboo*
 
-Then she nodded, and went.
+She had stopped there. She had stopped there for a long time.
 
-He sat by the bed in the dark. He changed the cloth on her forehead when it grew warm. He held the cup to her lips when she stirred, and she drank without waking. The rain softened to a patter, then to the drip of the eaves, and the house creaked around them, old wood settling.
+She did not make a sound. That was the strangest part. Her shoulders did not move. Her face only went quiet, the way water does just before it freezes, and a single tear ran down her cheek and dropped onto the page and spread the ink of the last word into a small grey bloom.
 
-Somewhere past the middle of the night, she turned her head on the pillow and murmured something.
+She looked at it. She put the back of her wrist to her face, hard, as if she could press it out of her. Then she folded the paper in half, and in half again, and slid it under the ledger into the drawer with the others, and closed the drawer very gently, so it would not knock.
 
-He leaned close.
+Arwen was standing in the doorway.
 
-“*…Esdel…*”
+She had been there some time. She wore her shawl over her nightdress and her silver braid hung over one shoulder, and she did not say *child*. She did not say anything. Her soft green eyes went to the drawer, then to the wet bead on the wood of the table, and then they came back to her granddaughter’s face and stayed there, without pity, only with the long patience of a woman who had cried in this same room for a daughter and a son-in-law, and had learned what could be said to it, which was nothing.
 
-Only that. His name, soft and slurred with fever, the way a person says a word they have said many times alone in the dark.
+Lyora did not turn away. She was too tired to pretend.
 
-He sat back very slowly.
+Arwen crossed the shop. She did not touch her. She went to the foot of the stairs, where the lamp stood on the second step turned low, throwing its small gold circle on the worn wood, and she sat down on the bottom stair beside it with a slow old person’s care.
 
-He did not move for a long time after that.
+After a moment, Lyora came and sat on the other side.
 
-When the window began to turn grey, her fever broke. She sighed and went still, her breathing deep and even, a faint sweat on her brow. He held his hand an inch above her forehead — not touching — and felt that the heat had gone.
-
-Then he rose, set the cup on the table where she would see it, and went out quietly to the stairs.
-
-In the grey half-light, Arwen sat in her chair by the cold hearth, wrapped in her shawl. She had not been asleep.
-
-She watched him climb.
-
-She said nothing at all.
+The lamp was between them. Neither of them looked at it directly. Outside, the snow fell on the hill with no sound at all, and the flame stood perfectly still, and went on burning for the one who was not there to see it.

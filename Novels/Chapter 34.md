@@ -1,85 +1,73 @@
 # **Chapter 34**
 
-The moon hung low over Edenridge, veiled in a thin silver haze. The fires in the square had burned down to embers. Somewhere behind them, in the tents, a wounded man was talking in his sleep.
+In Edenridge, the river was running high with snowmelt, and the willows along its banks had come into leaf, and it had been a year.
 
-Near midnight Arwen came back from the river tents with two of Reyn’s men to take the watch. She looked once at Esdel’s face and sent him home. “I’ll follow when the fever turns,” she said. “Go.”
+Lyora knew the day exactly. She had not meant to count. But there was a morning, early in spring, when she went out to the garden and found the first green shoots of the mint coming up between the stones — and she stood there with the watering can in her hands and thought, *this is when the caravan came.* A year ago, almost to the hour. The shouting in the lane. The cart. The man on the stretcher with his lips cracked white and sand in his hair, whom she had thought was dead.
 
-Lyora was waiting at the edge of the square, her basket at her feet. She had not gone home after all.
-
-They walked home side by side. Neither spoke.
-
-The lane was pale under the moon. Their steps sounded too loud on it. Lyora kept her hands folded in her apron, the way she did when she had been grinding all day and did not trust them to be still.
-
-At the well, she stopped pretending.
-
-“What you said in the tent,” she said. “*Someone who didn’t deserve to be remembered.* You don’t believe that.”
-
-Esdel did not answer at once.
-
-“I don’t know what I believe,” he said. “He knew my face. I didn’t know his.” A pause. “I don’t know mine either, most days.”
-
-She almost smiled at that. Almost. It was the kind of thing he said to make people smile, and she could hear, tonight, how much it cost him to say it.
-
-They turned up the lane toward the apothecary. The sign creaked on its bracket. The ivy moved in a breath of wind, and the smell of drying herbs came out through the shutters to meet them, the way it always did, as if the house were leaning out to see who was coming home.
-
-“A banner,” he said quietly. “A siege. Everyone thought I died.” He looked up at the dark window of the attic. “If I was there — if I was someone, once — then someone is missing me. Or someone buried me.” He stopped walking. “And I’m here. Eating your supper. Fixing your stairs.”
-
-“You make it sound like theft.”
-
-“Isn’t it?”
-
-She did not answer that. She went up the step and opened the door and lit the small lamp on the counter, and the room came up gold around her — the jars, the scales, the worktable with his notebook still lying open on it where he had left it that morning, before the soldiers came. She looked at the notebook for a long moment. At the small strange writing, and the drawing of a leaf, and a note in the margin that said *ask A. why honey, not sugar*.
-
-“Please,” she said, without turning round. “Stop trying to remember.”
-
-He stood in the doorway.
-
-“You’ll only find something that takes you away,” she said. “That’s all remembering ever does in this house.”
-
-“Lyora—”
-
-“Please don’t leave.” Very evenly. As if she were telling him the price of feverfew. “Don’t leave this village. Don’t leave us.”
-
-He did not move.
-
-She set down the taper. Her hand, he saw, was not quite steady.
-
-“From the first day the caravan carried you to our door,” she said, “I’ve been waiting for you to go. Every morning. I come down the stairs and I look at your cup, and I think — *not yet.* Every morning for a whole summer.” She laughed, very softly, at herself. “I thought if I waited for it long enough, it wouldn’t hurt when it came. That’s how it works with Grandmother’s bitter draughts. You get used to the taste.”
-
-She turned round then, and looked at him, and her eyes were perfectly dry.
-
-“It doesn’t work,” she said. “I’m not used to it. I’m worse.”
-
-He crossed the room. He did not decide to. He was simply there, in front of her, and he did not know what to do with his hands, so he did the only thing they knew — he took hers, both of them, the way he held a patient’s hands when he was about to say something that would hurt.
-
-“You’re too kind to me,” he said. “Even when I don’t deserve it.”
-
-“And you’re too cruel,” she said. The smallest, most broken laugh. “For making me love you this much.”
-
-The word went into the room and stayed there.
-
-He did not breathe. She did not look away. For one long moment they only stood there, in the lamplight, with her hands in his and the word lying between them where neither of them could pick it up.
-
-Then she took her hands back — gently, one and then the other — and went past him to her room, and closed the door.
+She set the can down on the path, very carefully, and went inside, and ground a whole morning’s worth of feverfew with her back to the door. Her hands kept moving. Her eyes did not. A tear ran down beside her nose and she wiped it with the back of a floury wrist and told the empty shop it was the dust.
 
 ---
 
-He did not go up to the attic.
+The winter had been long. The river had frozen at the edges for the first time in a decade, and old Richard had slipped on the ice by the shrine and cracked two ribs and complained about it, magnificently, until the thaw. The bamboo channels had held. Reyn had gone out along them every week in the worst of the cold, knocking the ice from the joints with a mallet, muttering at them as though they were disobedient children. *He built them too well. He built them so well I can’t even complain properly.*
 
-He sat down on the stairs, on the second step, in the dark, with his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
+No one said his name when they said it. But everyone knew whose hands had tied the knots.
 
-Through the door he heard her. Not loud. She was never loud. Only a small, careful, stifled sound, again and again, like someone trying to breathe through a cloth — the sound of a woman crying into her pillow so that her grandmother, home at last and asleep upstairs, would not wake, and so that the man on the stairs would not hear.
+The lamp still burned at the foot of the stairs.
 
-He heard.
+She had not decided to keep lighting it. She had simply never stopped. Every night, all through the long dark winter, she had turned it low and set it on the second step and gone to bed. Once, in the depth of midwinter, when the oil ran short and the traders could not get up the road through the drifts, she found that her grandmother had quietly given up the lamp in her own room so there would be enough for the one on the stairs.
 
-He sat with his hands clasped between his knees and his head bowed and listened to every breath of it, and did not knock. He wanted to. He wanted to more than he had wanted anything in the whole long summer. But if he knocked, he would have to say something. And the only true thing he had to say was the thing she had just said, and he did not know if a man with no past had the right to say it back.
+Neither of them spoke of that. Arwen went to bed in the dark, and Lyora lay awake on the other side of a thin wall and listened to the old woman’s careful breathing, and pressed her mouth into the pillow so that the only sound in the house would be the small, ordinary creak of the roof settling.
 
-So he sat, and listened, and did not knock.
+---
 
-Somewhere near dawn, the sound stopped.
+Eldric’s father was walking without the cane now. He came down to the apothecary in the first week of spring to prove it, doing a slow, triumphant circuit of the shop while Eldric stood in the doorway with his arms folded, trying not to grin.
 
-He got up, very quietly, and lit the lamp himself, and turned it low, and set it on the second step where she would find it. Then he went up the stairs, skipping none of them — the third one did not creak anymore — and lay on his bed in the grey light with his eyes open.
+“It was your salves, girl,” the old man said. “And your feverfew. Eldric told me you twisted your ankle going up the ridge for it. You did it for me. I don’t forget that.” He looked at her a little longer than he needed to, and then at his son, and then away, and Lyora pretended very hard to be busy with the jars.
 
-He had fixed that stair so it would never wake her.
+When they left, Eldric lingered at the door. He did not say anything. He never did, anymore. He looked at the lamp on the second stair — unlit now, in the daylight, its glass clean and its wick trimmed — and then at her.
 
-He lay there and wished, for the first time, that it would.
+“Still?” he said quietly.
+
+She did not pretend not to understand. “Still.”
+
+He nodded. His face did something gentle and tired and kind. Then he went out after his father into the spring sunshine, and she heard the old man say *well?* and Eldric say *leave it, Da*, and then their voices went away up the lane.
+
+She stood very still until they were gone. Then she turned the lamp a quarter turn on its step, to straighten it, and her hand stayed on the cool glass a moment longer than the lamp needed.
+
+---
+
+No letters had come. She had not really expected any. She did not know where he was. She did not know if he was alive.
+
+She wrote to him anyway.
+
+She had started in the autumn, on the night the first frost came and she could not sleep. She wrote at the kitchen table by the light of a single candle, and she did not put his name at the top, and she did not sign her own at the bottom. She wrote about small things. The harvest. Old Richard’s ribs. The cat, who had taken to sleeping on the third stair — the silent one — as if waiting for someone to come down it. She never sent them. She had nowhere to send them. She folded each in half, and in half again, and put it in the drawer of her worktable beneath the ledger, where Grandmother would not look.
+
+There were a great many of them now.
+
+---
+
+On a warm evening in the middle of spring, a soldier came through Edenridge, alone, on foot, with a bandaged hand and a pack on his back. Lyora changed the bandage. When she asked — very casually, as though it were nothing — whether he had served in the supply companies, he said yes. The Third Logistic, under Captain Erven.
+
+Her hands did not stop moving. She was proud of that, afterward.
+
+“There was a man,” she said. “From here. He went with Captain Erven as a medic. In my place. His name was Esdel.”
+
+The soldier frowned, thinking. Then his face cleared. “The apothecary. Aye. Tall, quiet? They put him in the medical tents at the Eastern Post. I heard he did good work. The old surgeon thought the world of him. Then he was transferred. North, I think. To one of the ridge posts.”
+
+“And after that?”
+
+“I don’t know, miss.” He hesitated, and then, perhaps because she had been kind to him, or perhaps because of something he saw in her face, he said, “He was alive. Last I heard. Alive and working. That’s worth something, at the front.”
+
+She tied off the bandage. She told him to keep it dry. She stood in the doorway until he was gone down the river road with the sun setting red behind him.
+
+Then she went back inside, and sat down at the kitchen table, and put her face in her hands.
+
+She made no sound. Her shoulders did not even move. There was only the slow wet warmth between her fingers, and her breath held until it shook, and the light going gold and then grey around her. *Alive. Alive and working.* Alive, and somewhere she could not follow, and still not here.
+
+In the doorway to the passage, Arwen stood with her hand on the frame. She had been standing there for some time. She did not come in. After a while she went away, and came back with a cup of tea, and set it by her granddaughter’s elbow without a word, and touched her hair once, and left her alone.
+
+When it was dark, Lyora got up. She washed her face at the basin. She trimmed the wick of the lamp on the stairs, and filled it, and lit it, and turned it low.
+
+Then she took a fresh sheet of paper from the drawer, and sat down again at the table, and began — without a name at the top, without a name at the bottom — to write.
+
+*They say you are alive,* it began. A tear fell on the *alive* and the ink ran, softly, into the grain of the paper, and she let it.

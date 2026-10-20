@@ -1,168 +1,77 @@
 # **Chapter 33**
 
-The night had grown heavy with the scent of herbs and smoke. The once-quiet village square had been turned into a makeshift camp, the biggest tent standing right in the middle — its fabric fluttering softly against the wind. Inside, the air was thick — the faint sting of medicine and dried blood mixed together. Rows of cots lined the space, soldiers resting beneath patched blankets, their breaths uneven and shallow.
+The banner over the gate was red.
 
-Esdel sat on a stool near the center, washing his hands after changing a bandage. His movements were steady, practiced — as though he’d done this countless times before. Arwen was at the far end, murmuring instructions to a few villagers who were assisting with boiling water and preparing poultices.
+That was the first thing. Before the walls, before the grooms running out into the street — the banner, deep red, snapping in the evening wind above the old gate of the Lián estate, and on it, stitched in silver thread, a serpent devouring its own tail.
 
-A cough — sharp and sudden — broke the silence.
+Xueyao reined in beneath it. Esdel, at the back of the column, saw only her back, very straight, very still, and the way her hand had closed on the reins. Han Ruo was staring up at the banner, his jaw working as though he were chewing something he could not swallow.
 
-Esdel turned. One of the soldiers was stirring awake. His face was pale, his lips cracked, but his eyes — those weary eyes — widened the moment they met Esdel’s.
+Beneath the serpent, carved into the stone lintel, the old characters of the Lián name were still there. Someone had not bothered to chisel them away. Somehow, that was worse.
 
-“…You…” the soldier rasped. His voice was hoarse, but filled with disbelief. “…It’s you, isn’t it?”
-
-Esdel blinked, confused. “You… know me?”
-
-The soldier tried to sit up, wincing as pain shot through his side. “How could I not? I saw you— you were there… at the front lines. During the siege…” He struggled to breathe. “You stood before the broken gates and told us to hold the line.”
-
-Esdel froze. Around them, a few nearby villagers who were guarding the tent exchanged startled glances. One of them whispered, “The front lines…? He was in the war?”
-
-Esdel’s heart began to pound in his chest. “What are you talking about?” he asked quietly. “I… I don’t remember being there.”
-
-The soldier frowned. “No, you were— I remember your face clearly. You lifted the fallen banner yourself. Everyone thought you died that day.”
-
-Esdel’s breath hitched. The words echoed painfully in his mind — *you died that day.*
-
-Arwen approached, her steps soft yet deliberate. “What is going on?” she asked, setting down a bowl of clean water.
-
-Esdel turned to her, his expression pale. “He says he saw me… on the battlefield.”
-
-Arwen’s brows furrowed. “The battlefield…? You mean, you were a soldier?”
-
-“I— I don’t know.” Esdel’s voice trembled slightly, as if the weight of the unknown was pressing against his chest. “I can’t remember anything before the desert.”
-
-The soldier coughed, gripping the blanket tight. “You saved us that day… even though everything was falling apart. You stood on that hill when everyone was retreating. I never forgot that face.”
-
-Silence fell between them. The villagers who were listening dared not move.
-
-After a moment, Arwen exhaled softly. “We can speak more about this later. For now, he needs rest.” She placed a firm hand on the soldier’s shoulder, guiding him back down. “You’re safe here, soldier. Let your wounds heal first.”
-
-The soldier nodded weakly, his gaze lingering on Esdel. “You really don’t remember… Do you?”
-
-Esdel shook his head. “…No. I wish I did.”
+She lifted her chin. She rode through the gate.
 
 ---
 
-Inside the largest tent, the lamplight trembled with every movement, throwing soft, uneasy shadows across Esdel’s face. His hands were clean now, yet he kept staring at them as though the stains refused to fade.
+At the foot of the steps, waiting, stood Count Aldric Reng.
 
-The soldier had fallen asleep again — breath shallow, skin slick with fever — but his earlier words still echoed in Esdel’s mind.
+He was taller than Esdel had imagined. Silver-haired, straight-backed, dressed in soft dove grey with no ornament but a small silver clasp at his throat. He leaned lightly on a black cane, and when he smiled up at the General, it was the most perfect smile Esdel had ever seen on a human face. Warm. Welcoming. A little rueful. Exactly as much grief in it as the occasion required, and not one drop more.
 
-*You lifted the fallen banner yourself.*  
-*Everyone thought you died that day.*
+“General Lián,” he said, and bowed, deeply, beautifully. “Welcome home. We have counted the days.”
 
-Each phrase struck like a blade dulled by memory, cutting deeper for being half-forgotten.
+Xueyao dismounted. She did not bow back. “Count Reng.”
 
-He pressed his palms together, leaning forward until his elbows met his knees. The sound of distant crackling fire filled the silence — small, ordinary, grounding. Yet the world inside his head felt anything but ordinary.
+If the omission stung, he did not show it. His smile only deepened, as though she had done something charming. “Your mother is resting. The journey of her nerves has been long. Your rooms are prepared, in the east wing, as it always was. I had the orchids moved to your sitting room. I remembered you planted them.” His gaze passed over Esdel without pause, the way it might pass over furniture.
 
-He remembered no battlefield, no banner, no hill.  
-And yet, somewhere beneath the quiet, his heart had tightened with a strange ache of familiarity.
+Xueyao’s hand closed very slowly into a fist.
 
-Was it possible to miss something you didn’t remember losing?
+“Your father spoke of you often,” said Aldric, his eyes grey and clear and kind. “He was proud of you, you know. Even at the end.”
 
-He exhaled shakily, looking toward the corner where Arwen worked quietly, mixing a small bowl of crushed herbs. The old woman’s calmness felt like a steadying weight in a world that kept shifting beneath his feet.
+For one moment the courtyard was so quiet Esdel could hear the lantern flames.
 
-She glanced up briefly, her silver hair glinting faintly in the lamplight. “You should rest, Esdel,” she murmured, not looking away from her task. “The night grows long.”
+Then Xueyao said, “Take me to my mother,” and walked past him up the steps without another word.
 
-He managed a faint, brittle smile. “You always say that when you see me thinking too much.”
+---
 
-Arwen gave a small hum, neither confirming nor denying. “Thinking is good. Drowning in thought is not.”
+Esdel was shown with the soldiers to the east wing, to a narrow room at the end of a narrow corridor that looked out on a kitchen garden and a wall. He set down his chests. He sat on the bed.
 
-Esdel let out a breath that was half a laugh, half defeat. “Hard to tell the difference sometimes.”
+He heard it anyway. Not the words; the walls were thick. But an hour later, as the light was going, he heard the General’s footsteps come down the corridor — the brisk, even tread he had learned on the road — and pass his door.
 
-For a while, the only sounds were the quiet grind of pestle against stone and the rustle of wind pressing against the tent walls.
+They did not sound brisk. They sounded like someone walking very carefully across ice.
 
-Then — a faint sound near the entrance.  
-A step, soft and uncertain.
+It was Changli who told him, later, standing in his doorway with her hands folded in her sleeves and her beautiful face perfectly composed. Only her voice was wrong.
 
-Esdel turned.
+“She knew her. She said *Xueyao*, and held out her arms, and she was so glad. She patted her hair and said she was too thin and asked if the war was very cold.” Changli’s mouth tightened. “And then the Count came in behind us. And she let go. She let go of her daughter to turn and look at him. Like a flower turns to the light. She held his hand for the rest of the visit. She didn’t hold Xueyao’s again.”
 
-Lyora stood there — half in shadow, her dark brown hair looking dark as the space behind her, eyes reflecting the lamplight like a ripple of green glass. Her hands still clutched her herb basket, though it hung loosely now at her side, the contents forgotten.
+Esdel said nothing.
 
-He felt something stir in him — a quiet pulse of relief, followed immediately by something harder to name.
+“Lady Anlan argued with the Minister of Rites at her own wedding banquet over the order of the toasts. And won. She read the ledgers of forty ships every month. She *frightened* people.” Changli looked down at her folded hands. “Tonight she asked the Count three times whether she ought to have the red tea or the white. And each time he told her, she smiled at him like he had given her a jewel.”
 
-“Lyora,” he said, voice gentler than he intended. “You’re still awake?”
+“How did the General take it?”
 
-She hesitated before stepping inside. “I… couldn’t sleep. There’s still work to finish.”
+“She said, *I’m glad you’re well, Mother.* Then she said she was tired from the road, and walked out.” Changli lifted her eyes. “She has not cried since she was fourteen, Apothecary. I was there. I would know.”
 
-Arwen didn’t lift her gaze. “There’s always work to finish,” she said mildly, setting down the pestle. “But some hearts need tending more than herbs tonight.”
+---
 
-Lyora shot her grandmother a fleeting look, cheeks warming, though her voice stayed steady. “Then perhaps I’ll tend to both.”
+He could not sleep. He went out.
 
-Arwen’s lips curved faintly — a ghost of amusement — before she rose, collecting her tray of salves. “I’ll check on the wounded by the river tents. Lyora, Esdel, make sure the lamps don’t go out.”
+The east wing opened onto a long gallery, and the gallery onto the gardens, and at the heart of the gardens, silver in the rising moon, stood a peach tree in full flower. Its trunk was thick and gnarled and split in two places, bound with iron bands, and every branch was so heavy with blossom that the tree seemed to glow, as though it had drawn in all the light of the day and was now, quietly, giving it back. Petals drifted onto the black water of a small pond and floated there like boats.
 
-And just like that, she was gone, leaving the air between Esdel and Lyora heavier than before.
+Beneath it, on a stone bench, someone was sitting with a bundle in her arms.
 
-Lyora lingered by the table, pretending to sort through the herbs, but her fingers trembled slightly. Esdel noticed — he always noticed — though he didn’t say anything.
+It was the General. Her hair was loose down her back, and in her arms, wrapped in pale blue, was a child. Not yet a year old. Fat-cheeked and fast asleep, with one fist curled against his mouth.
 
-The silence stretched.
+Esdel should have gone. But he could not move, and so he stood in the shadow of the gallery and watched the woman who had burned a Titan from the inside out hold her brother for the first time in her life.
 
-Finally, she spoke, barely above a whisper. “What that soldier said… was it true?”
+She held him as though he were made of something that might shatter. She was not rocking him; she did not seem to know how. A petal fell onto the child’s cheek, and she lifted it away with one fingertip so gently that he did not stir.
 
-Esdel’s throat tightened. “I don’t know,” he said quietly. “He seemed sure. But I can’t remember any of it.”
+“Yueming,” she whispered. “I’m your sister. I’m sorry I didn’t come sooner. I’m sorry. I’m here now.”
 
-Lyora nodded, her gaze dropping to the half-crushed leaves before her. “And… if it is true? If you really were that man?”
+And then her shoulders began, very slowly, to shake.
 
-He hesitated. “Then I was someone who fought in a war I can’t recall, for reasons I don’t understand.” A beat. “And perhaps… someone who didn’t deserve to be remembered.”
+She made no sound. Not one. She wept the way soldiers learn to, so that no one in the camp will hear.
 
-The words slipped out, low and raw, and Lyora’s hands stilled.
+Esdel stepped back into the dark of the gallery.
 
-She turned to him then — fully, searching his face. “Don’t say that.”
+He knew that kind of crying. He had heard another kind, once, on a stair at night, in the rain — a girl with her face in her knees, saying everything, until there was nothing left in her to say. He had not been able to say a word then either. He had only held her.
 
-Her voice was soft, but it carried something that broke through the stillness.
-
-Esdel’s eyes flicked up, meeting hers. “You heard him, didn’t you?”
-
-Lyora looked away, guilt passing over her features. “I didn’t mean to.”
-
-“I don’t blame you.” His tone softened. “If our places were reversed, I’d have listened too.”
-
-A faint, humorless smile touched her lips. “You make it sound easy.”
-
-“It isn’t.”
-
-That was the truth neither of them wanted to admit — that nothing between them ever felt easy. Not the silences, not the glances, not the way her presence could both calm and unravel him.
-
-Lyora set down the herbs and moved closer, the space shrinking between them until Esdel could catch the faint scent of mint and lavender on her hands. Her eyes were searching, almost pleading.
-
-“You’re not the man that soldier remembers,” she said quietly. “You’re the man who’s been helping here — who mends wounds and carries water and keeps the lamps burning even when everyone else is too tired. That’s the Esdel I know.”
-
-He wanted to believe her — wanted to live inside the warmth of her words — but his voice faltered when he spoke. “But what if the man I was… did things that can’t be undone?”
-
-Lyora’s breath caught.
-
-“Then let him stay buried,” she said. “You don’t owe the past anything.”
-
-Something inside him twisted painfully. He wanted to thank her — to tell her how much her words steadied him — but all he managed was a quiet, “You say that as if it’s that simple.”
-
-“It isn’t,” she admitted, her gaze softening. “But sometimes, we have to choose who we are — even when we don’t remember who we were.”
-
-For a long moment, neither of them moved. The night outside whispered through the cracks in the tent, and the flame in the nearest lamp bent sideways under the breath of wind.
-
-Esdel looked at her — really looked — and for a heartbeat, he almost reached out.
-
-But he stopped himself.
-
-Lyora noticed. Of course she did. Her lashes lowered, and she took a half-step back, as though that invisible distance between them needed to be maintained before it shattered them both.
-
-“…You should get some rest,” she murmured.
-
-“So should you.”
-
-“I will,” she said, though she didn’t move right away. Her gaze lingered on him, tracing the faint exhaustion in his features, the haunted uncertainty in his eyes. Something unspoken hovered between them — fragile, aching, unresolvable.
-
-Then, finally, she turned toward the tent flap.
-
-“Lyora,” he called softly.
-
-She stopped.
-
-He hesitated, then said only, “Thank you.”
-
-She didn’t look back. But her hand tightened slightly around the edge of the canvas before she disappeared into the night.
-
-When the flap fell shut, Esdel sat in the quiet again, listening to the echo of his own heartbeat — and the faint rustle of her footsteps fading into the dark.
-
-The lamps flickered low, their light soft and uneven, casting his shadow long across the ground.
-
-He looked at his hands once more — the hands that had saved, fought, forgotten.
-
-And though the night outside had begun to calm, inside him, something restless had just awakened.
+He went back to his narrow room, and closed the door, and sat on the bed until the moon went down. He did not write anything that night. He sat with his hand pressed flat against his chest, where the small silver flower lay warm against his heart, and thought of another house, and another tree in another garden, and a lamp that someone had surely lit again tonight, low, on the second step, for no one at all.

@@ -1,103 +1,107 @@
 # **Chapter 8**
 
-The days in Edenridge had become a seamless thread — woven with the rhythm of simple things.
+The village thrived. Sunlight poured over the rooftops like honey, and bamboo pipes whispered along the river. His mornings still belonged to the shop — the broom, the mortar’s low grinding song, Arwen asking *why* before he could — and only after that did the rest of the village have him.
 
-Mornings filled with the sound of roosters and laughter. Midday sun pouring over green fields. Evenings painted with amber light through the apothecary’s windows, the scent of drying herbs wrapping the air like memory.
+Evenings belonged to the garden.
 
-Esdel worked as always — the shop at dawn, the village after — steady, quiet, dependable. The villagers no longer treated him as an outsider. Children waved when he passed; merchants offered him fruit in thanks. Lyora teased that he was becoming “boringly reliable,” and he pretended to take offense.
+He and Lyora sat on the old stone bench beside the pond while the herbs glowed faintly in the dusk. Some evenings she tested him. She would pinch a leaf without letting him see which bed it came from and hold it under his nose in the half-dark.
 
-Peace had a strange texture — unfamiliar, fragile, yet impossibly precious.
+“Lemon balm.” Another. “Yarrow. For bleeding. And fevers, if you’re out of willow.” Another, long and woolly. “Mullein. For the chest. Strain it twice, or the little hairs catch in the throat.”
 
----
+“Who told you that?”
 
-It was during one of those ordinary days that the rain came without warning.
+“You did. Three weeks ago. You were annoyed with the shelf at the time.”
 
-A sudden downpour swept through the village — hard, silver rain slashing across rooftops and paths. Esdel and Lyora were returning from the eastern fields when the storm broke. Laughing breathlessly, they ran for cover, slipping beneath the overhang of an old storehouse at the edge of the village.
+She went hunting along the garden’s edge and came back with something hidden in her fist, and opened it like a trick: a jagged green leaf. He turned it to the last of the light, crushed a corner, smelled it.
 
-The sound was deafening — the rhythmic drumming of rain against wood, the hiss of wind through the eaves. They stood close, their breaths misting in the chill. Lyora shook the droplets from her hair, strands clinging to her cheeks.
+“Bitter. Deeply toothed. Milky at the break. It could be chicory, but the leaf is wrong. Some kind of wild lettuce, maybe — though the teeth point backward, which is odd, so I’d want to see the flower —”
 
-“Rain never used to come this early,” she said, watching the sheets of water blur the world outside. “It’s the mountain’s doing, I think. The air’s changing.”
+“It’s a dandelion.”
 
-Esdel glanced at her — at the way she spoke to the world as though it could listen. “Do you like it?” he asked.
+He stopped.
 
-“The rain?” She smiled faintly. “I think it makes everything honest. You can’t hide anything when the sky’s crying.”
+“Children make crowns out of them.”
 
-He didn’t know how to respond to that.
+He regarded the leaf with deep betrayal. “It was a very convincing dandelion.”
 
-Instead, he looked down at the baskets at their feet. They had gone out to gather along the field edges that morning, and everything they had picked was soaked through.
+She laughed so suddenly she had to cover her mouth, and a frog startled into the pond.
 
-Lyora followed his glance, then knelt and went through them with quick fingers, the way another woman might count her children after a fright.
+“Why is it bitter, though?”
 
-“Nettles are fine,” she said. “Nettles don’t care about anything.” She lifted a sodden fistful of chamomile and sighed at it. “These are lost.”
+“Because it is.”
 
-“Because they’re wet?”
+“That isn’t an answer.”
 
-“Because they’re flowers. Flowers you gather dry, after the dew’s burned off, or they go black on the rack before they ever cure.” She set them aside. “Leaves you can take damp, if you get them hanging fast. Roots you want after rain. The ground lets go of them easier.”
+“It’s Grandmother’s answer.”
 
-“Flowers dry,” he repeated. “Leaves quick. Roots after rain.”
+Later, by candlelight in the attic, he wrote it down anyway. *Dandelion. Leaves bitter. Because it is.* He looked at the line for a while, and found himself smiling at the page.
 
-“And bark in spring, when it slips.” She glanced up at him. “You’re going to write that down later.”
+“Do you ever think about what came before?” she asked once, tilting her head back to the first stars.
 
-“In the spider hand.”
+“It feels like trying to remember a dream after waking. The pieces are there. The meaning isn’t.”
 
-“In the spider hand,” she agreed, and something in her face eased.
+“Then maybe you were meant to start over.”
 
-For a long while, they simply listened to the storm. The smell of wet earth filled the air. Somewhere nearby, a bell clanged faintly in the wind.
-
-Lyora’s voice broke the silence again, softer this time. “When I was little, I thought the ocean must sound like this,” she said. “Like rain that never ends. My parents used to tell me stories about it — said it stretched farther than the eye could see.”
-
-Her gaze drifted outward, unfocused, her expression caught between longing and loss.
-
-Esdel studied her quietly. “You’ve never seen it?”
-
-She shook her head. “No. Edenridge is all I’ve ever known. But I’d like to, one day. To stand where the land ends and just… let the world breathe around me.”
-
-Esdel was quiet for a moment, listening to the way she had said *my parents*, and to what she had not said after it.
-
-“Then it’ll still be there when you go,” he said gently. “The ocean isn’t going anywhere. I think it would wait for you.”
-
-She turned her head and looked at him.
-
-There was a pause — the kind that feels too delicate to break.
-
-Without realizing it, Esdel smiled. Not the cautious, polite kind he’d learned to offer, but something unguarded — something real.
-
-Lyora noticed. Her eyes softened with surprise, then warmth. “You should do that more often,” she said gently.
-
-“Do what?”
-
-“Smile like that. It suits you.”
-
-He looked away, suddenly unsure what to do with his hands. “I didn’t realize I was.”
-
-She laughed — a small, bright sound against the rain.
+He wanted to believe that. But a part of him, the part that still remembered the burning desert, whispered that peace for him was only ever *temporary.*
 
 ---
 
-That night, the quiet returned.
+At the midsummer feast, the sky burned gold behind the trees and lanterns trembled along the banks. Then a pan clattered at the cooking stalls, and someone yelped.
 
-Esdel lay awake in the small room Arwen had given him, listening to the soft patter of lingering drizzle outside. The day’s warmth still lingered faintly in his chest — a fragile comfort, like the last glow of a dying fire.
+He was moving before he had decided to. The baker’s helper, a lanky boy of fifteen, stood clutching his right hand to his chest, a skillet of oil smoking at his feet. “Butter,” said a woman, reaching for the crock. “Not butter,” Esdel said gently. “It keeps the heat in. My teacher would have my ears.” He pushed the boy’s hand under the water in the barrel and held it there when the boy tried to pull away. “It hurts more in the water. For a moment. Then less. Then much less.” He saw the boy’s eyes slide toward a girl with a ribbon in her hair, her hands pressed to her mouth. “Most people drop the pan,” he said, just loud enough. “You held on. Supper for half the stall, saved. Mostly saved.” The girl laughed, not at him, and the boy’s shoulders came down.
 
-But sleep brought something else.
+When Lyora arrived with the salve, the worst was over. She let him be the one to smooth it on and wrap it, and she stood close enough that her sleeve touched his while he worked.
 
-He dreamt of the desert again. The endless dunes, the burning wind, the taste of dust and iron. And in the distance — a pale figure, walking against the storm.
+Then a small hand tugged at his sleeve. A boy of seven or eight, wind-tousled. “Esdel, how did you make the water flow so well?”
 
-The woman in white.
+“Ah, easy enough. A bit of math and physics, to calculate the slope.”
 
-Her face was blurred, but her presence filled the dream like gravity. She didn’t speak, yet her silence felt heavier than words. Around her, the air shimmered — not with heat, but memory.
+The boy blinked. “Physic?”
 
-When he tried to move toward her, the sand beneath his feet bled red. The scent of rain turned to rust.
+The word dropped into the air like a stone into still water.
 
-Esdel jerked awake.
+Esdel picked up a stick and drew in the dirt. “See? This slope lets water flow downward because of gravity — the pull of weight toward the earth —” He stopped. The faces around him were polite, attentive, and completely lost.
 
-The room was still dark, his breath ragged, his skin slick with cold sweat. The faint light of dawn seeped through the window, and he could hear roosters calling across the village. Everything was quiet. Ordinary. Safe.
+“Like asking the river nicely,” one farmer offered. There was laughter, gentle and well-meaning, and it missed the point entirely.
 
-He sat up slowly, pressing a trembling hand to his chest.
+He looked at the lines he had drawn. To him they were language. To them, scratches. He brushed them away, and the dust swallowed every mark.
 
-“It was just a dream,” he whispered.
+Behind him, the village sang and traded cups. He looked toward the river, and in its reflection saw something that unsettled him: his own eyes, distant and uncertain.
 
-But deep down, he wasn’t sure he believed it.
+For the first time since he woke in this place, Esdel felt separate. Not lonely. Not rejected. Only different.
 
-Outside, the last drops of rain slid from the rooftops like tears.
+---
 
-And far beyond the forest, unseen by anyone in Edenridge, the wind shifted — carrying with it the scent of sand.
+The change was not sudden. It came like the shifting of wind. A pause in conversation as he walked by. A smile a heartbeat too late. Even Reyn studied him sometimes as if trying to understand something that did not fit.
+
+And yet they still came to the shop. At the counter, with a cough or a cut or a child who would not sleep, the pause went away. “Pain doesn’t care what’s strange,” Arwen said, not looking up from her ledger. “It only cares what helps.”
+
+So he tried to help. He stayed up with a candle stub, copying what he had learned, and when his eyes tired of receipts he drew the slate from beneath his bed and filled it with sums that answered to nothing. It quieted something. For a while.
+
+On the third night he could not sleep at all. He sat at the window, looking at the hand that had once been gone. No seam. No shadow. *What am I?*
+
+A gentle knock.
+
+Lyora stood there, hair loose, a robe over her nightclothes, with a cup of chamomile and wild mint. “You haven’t been resting.”
+
+She came in on bare feet. Her glance passed over the slate, the chalk columns marching down it, and moved on without a question. She sat beside him at the window and they said nothing at all. The moon painted their faces pale. Her hand lay on the sill near his, not quite touching.
+
+“Whatever it is you’re searching for,” she said softly, “I hope you find it, Esdel.”
+
+He turned. She was watching the moon, and her eyes were shimmering like quiet water.
+
+He understood, in the way one understands a thing without the words, that she meant the opposite as well. That a part of her hoped he never would; that every finding is a leaving. He saw the tear gather and hold on her lower lashes and not fall, because she did not blink, because she was too careful. He wanted to lift his hand and catch it. He wanted it so badly that his fingers curled against the sill.
+
+He did not move. He took a slow sip of tea. It was bitter, soothing, real.
+
+“Thank you,” he said.
+
+“Drink it while it’s hot.” Her voice was almost steady. She rose, and went to the door, and stopped there with her back to him.
+
+“Good night, Esdel.”
+
+“Good night.”
+
+He heard her go down the stairs. He heard her stop on the third step, which creaked, and stand there a long moment. He heard a breath drawn in and held, and let out, shaking. Then the step creaked again and she went on.
+
+He sat with the cup warm between his hands until it went cold, and the wind passed through the bamboo pipes, carrying a low, mournful hum across the sleeping village.

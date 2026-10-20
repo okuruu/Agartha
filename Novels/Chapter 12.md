@@ -1,124 +1,82 @@
 # **Chapter 12**
 
-Three weeks later, the night came alive with color.
-
-Lanterns of every hue swayed above the village square — red, amber, and pale green, their light trembling like captured stars. Music drifted on the air, the low hum of flutes and the steady rhythm of drums echoing through the forest edge.
-
-It was the *Festival of Flow*, held once every decade — but this year, it carried a new meaning. The fields, so lately parched, had turned green again in a month; they had not just survived, they had *thrived*. And all because of a few lines of hollowed bamboo and one quiet man who believed the world could be reasoned with.
-
-The villagers gathered with joy that seemed to outshine the moon. Children ran barefoot, carrying lanterns shaped like fish and birds. The smell of roasted rice and sweet herbs filled the air. Laughter rolled like a tide — unrestrained, alive.
-
-At the center of it all sat Esdel and Reyn, shoulder to shoulder on a wooden bench near the riverside.
-
-Reyn lifted a clay cup, already a little red in the face. “To the man who solved a three-year drought with *bamboo*!” he announced loudly, voice booming over the chatter.
-
-The crowd erupted into cheers.
-
-Esdel tried to protest, but Reyn clapped a heavy hand on his back. “Don’t you dare say it was ‘simple reasoning,’” he teased. “Let a man be proud for once!”
-
-Esdel could only smile, shaking his head as laughter bubbled around them. The sound was strange to him — not the brittle laughter of soldiers or merchants, but real, full-bodied joy. It moved through the people like a pulse.
-
-The Chief, passing with a lantern in hand, only raised it toward him — the speeches had been made in the square three weeks ago, and once was enough. Esdel, flustered all the same, lifted his cup in return.
-
-The night deepened. Music played again. The river shimmered under the reflection of countless lanterns, drifting slowly downstream like fireflies on a silver road.
+That night, after the Festival of Wishing Threads had ended, the apothecary was quiet. Too quiet. The sleep that claimed him was not rest but surrender.
 
 ---
 
-He did not stay long on the bench.
+He stands beneath a sky that is neither night nor day.
+The world breathes in shades of dying gold.
 
-Lyora had set up the apothecary’s table beneath the great tree, the way the shop did at every gathering — a clean cloth over the boards, a row of stoppered jars, a bowl of water, rolled linen. Arwen had gone home early, her knees complaining of the river damp.
+A vast field stretches endlessly, the grass moving like waves. The air tastes of iron and salt. The sun bleeds orange on the horizon.
 
-“You have your apprentice,” she had told Lyora, patting Esdel’s cheek on her way past. “Make him earn his supper.”
+And there — a figure.
 
-So he earned it.
+A young man in silver armor veined with faint threads of blue light. Sweat clings to his forehead, his breathing ragged. Cracks split his armor like scars, and blood trickles through them, dark and glistening.
 
-A fisherman came first, the back of his neck burned red from a day on the water. Esdel reached for the jar before Lyora could point — aloe cut with calendula, cool as creek stone. He knew the label. He knew, too, Arwen’s voice from that morning: *Thin, child. A burn wants air as much as it wants salve.*
+Esdel doesn’t recognize him. And yet something deep within him twists with terrible familiarity.
 
-He spread it thin.
+The man’s lips move — desperate, urgent. He is shouting something, a name, a warning. No sound reaches Esdel. The world has stolen their voices.
 
-“Why the calendula?” he murmured to Lyora while the fisherman hissed and then sighed.
+Behind Esdel, a cliff yawns open to a raging sea. From the forest comes a roar, low and inhuman, that makes the earth tremble.
 
-“Aloe cools. Calendula mends.” She handed him the linen without looking. “You asked me that yesterday.”
+The man steps closer, eyes wide with fear and fury. He grabs Esdel’s shoulder, shaking him as if to tear sense into him. Esdel wants to answer. His voice fails.
 
-“I wanted to see if the answer had changed.”
+Then the man’s expression breaks. All the fury drains away, replaced by something worse — resignation. He smiles, barely, a tremor of grief curving his lips. His hand tightens once on Esdel’s shoulder. He mouths a single word. At first it is silent. Then it echoes, softly, then thunderously, splitting the air.
 
-“Herbs don’t change their minds.”
+**“Fight.”**
 
-“People do,” he said. “I was checking on you.”
+And he shoves him backward.
 
-The fisherman laughed so hard he forgot to flinch. Lyora pressed her lips together and did not laugh, which was, Esdel was learning, very nearly the same thing.
+Esdel falls. The cliff edge vanishes beneath him. Wind screams. The roar from the forest breaks like glass.
 
----
-
-The girl came later, carried on her mother’s hip.
-
-Five, perhaps. One knee scraped raw from a fall on the stones, and in her fist the crumpled remains of a paper fish lantern, its tail torn half away. She was not crying about the knee. She was crying about the fish.
-
-Esdel crouched until his eyes were lower than hers.
-
-“That’s a very good fish,” he said. “What’s his name?”
-
-She hiccuped. Considered him. “Fish.”
-
-“A strong name.” He held out the little cork stopper from the calendula jar. “Will you guard this for me? If it gets lost, the whole festival is ruined.”
-
-She took it gravely and closed her fist around it.
-
-He washed around the scrape with a cloth, talking the whole while — about fish, and rivers, and how lanterns only tore when they were trying very hard to swim. She almost smiled.
-
-Then he saw her lip begin to shake again as the cloth came nearer the raw place, and he stopped talking about fish.
-
-“This part stings,” he said, quiet and plain. “Only once. Then it’s done. You can squeeze my finger as hard as you like.”
-
-She squeezed. It was done.
-
-When the knee was bound, he took a scrap of spare linen and a dab of the resin Lyora used to seal labels, and mended the fish’s tail. It came out crooked. The girl did not seem to mind. She went away on her mother’s hip, holding the fish in one hand and the cork stopper in the other, and no one had the heart to ask for it back.
-
-Lyora was watching him.
-
-“Where did you learn to do that?”
-
-“From you,” he said. “The boy with the splinter. Last week. You talked to him about his dog until it was out.”
-
-She looked at him a moment longer than she needed to. Then she began, very busily, to roll the linen.
+The world collapses into light.
 
 ---
 
-Later, when the laughter faded into quiet murmurs, Lyora found him by the water’s edge.
+He woke with a strangled gasp.
 
-She carried two cups of herbal tea — steam curling into the cool air — and sat beside him on the old stone embankment. The festival sounds felt far away now, muffled by the rustle of bamboo and the rhythm of the current.
+The ceiling swam in blurred streaks. Sweat clung cold to his skin.
 
-Esdel looked at her and smiled faintly. “You should be celebrating,” he said. “You’ve worked as much as anyone.”
+“Esdel!”
 
-“I am,” she replied, handing him a cup. “Just… differently.”
+The voice came from close — gentle, shaken. His name sounded different in her voice, like something fragile being held too tightly. A lantern flickered on the bedside table. Arwen stood at the door in a robe thrown over her nightclothes. Beside him Lyora knelt, a damp cloth clutched in trembling hands that smelled of lavender water, her green eyes wide and wet.
 
-They sat in silence for a while. The water reflected their faces — blurred, shifting with every ripple. Somewhere downstream, children’s laughter still lingered, fading like an echo.
+“You were screaming,” she whispered. “You weren’t breathing right. I tried to wake you—”
 
-Lyora’s voice came soft. “Do you know what the villagers say about you?”
+He dragged a hand over his face. “I saw someone.”
 
-He shook his head.
+Arwen sat on the edge of the bed. “Tell us, if you can.”
 
-“They say you were sent here by the river gods.” She smiled a little, as if embarrassed by the superstition. “That you were carried from the desert as a sign that our village hadn’t been forgotten.”
+He told them everything: the twilight field, the cliff, the silver armor, the roar, the word. When he finished, the room was silent but for the hiss of the lantern.
 
-Esdel looked down at his hands, at the faint dark spots still marking his skin — small, round, and pulsing dimly in the lantern light. “I’m not sure the gods had anything to do with it.”
+“Dreams that vivid often carry a shadow of memory,” Arwen said gently. “Perhaps something from before you came to us.”
 
-“I don’t know,” she said, watching the river. “Maybe they just wanted you to rest.”
+Lyora swallowed hard. “That must have been terrifying.” A whisper: “You don’t have to face that alone.”
 
-He turned to her — and for a moment, neither spoke. The air between them was filled only by the hush of the current and the flicker of lanterns drifting away.
+He turned toward her. Her eyes shone in the dim light, green and glimmering like wet leaves after rain. Something in him cracked open. He had been holding himself together for so long.
 
-Then, softly, she said, “You’ve changed how this village lives.”
+“I didn’t think I’d cry,” he said.
 
-He smiled faintly. “I didn’t do it alone.”
+But he did. It came quietly, a tremor first, then tears, silent and unrestrained. He pressed a hand over his eyes, ashamed, and the tears kept coming.
 
-Lyora hesitated. Her voice was almost a whisper. “You’ve changed how *we* live too.”
+Lyora’s fingers brushed his wrist, then slid over his hand until she held it properly. Arwen gathered them both into her arms, and Lyora leaned in without thinking, and between their warmth, Esdel finally let go.
 
-The words hung between them like a breath caught midair.
+And as he wept, she wept too. He felt it before he heard it — the tremor in the arm around him, the dampness on his shoulder where her face was pressed. She was crying for him, softly, without sound, as if his pain had found a door in her that was already open. For a moment they were two people weeping on the same breath, and he thought: *this is the cruelest thing the world has ever done to me. It has let me be held this gently, by this person, and I cannot keep it.*
 
-Esdel’s heart gave a small, unsteady beat. He looked away first, watching a lantern bump gently against the riverbank before drifting free again.
+When the tears slowed, he said, rough and small, “It felt so real. Like I’d lost something before I even knew what it was.”
 
-Neither spoke after that. The silence wasn’t awkward — it was full, fragile, alive.
+Her thumb brushed the back of his hand. “Maybe you didn’t lose it. Maybe you just haven’t found it again.”
 
-As the night wind softened and the last of the lanterns floated toward the horizon, Esdel realized that something inside him — something long buried beneath sand and blood and pain — had begun to *move*.
+He looked at her, and it hurt how much he felt in that single glance: gratitude, sorrow, longing, and the impossible wish that the distance between them could vanish if he just reached out.
 
-Something gentle.  
-Something dangerous.
+He didn’t.
+
+The lantern flickered out. Arwen left quietly. Lyora wrung the cloth once more and laid it across his forehead. “Try to rest.”
+
+Her footsteps moved away. At the door she stopped. He heard the faint catch of her breath.
+
+“I was scared,” she said, barely above a whisper. “When I heard you scream. I thought I’d lose you, too.”
+
+He did not answer. He could not. The words struck somewhere deep and raw.
+
+When the door closed, the darkness swelled. In the silence that followed, he understood what it meant to remember pain, and to long for something just out of reach.

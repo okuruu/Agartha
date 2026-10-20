@@ -1,135 +1,139 @@
 # **Chapter 9**
 
-By the time the next moon rose over Edenridge, Esdel had become a part of its quiet pulse.
+She had promised him the forest for weeks. Not an errand — a lesson.
 
-He woke with the villagers at dawn — to the crow of roosters, the soft ring of temple bells, the scent of morning bread drifting through the air. The days no longer blurred together; each one carried its own rhythm, its own shape.
+“Leaves first,” said Lyora, crouching by a feathery clump at the path’s edge. “Then roots. Then the ones that lie.”
 
-The shop came first. It always did now.
+“Plants lie?”
 
-Before anyone else in the house was awake, he had the shutters open and the lamp lit over the worktable, and the first sound of the day was the pestle: that low, patient grinding, leaves giving way to powder. He sorted what had dried overnight, turned what had not, swept the floor, and wrote in his little string-bound book whatever Arwen had told him the evening before, so it would not be lost to sleep.
+“The worst ones do.” She pinched a leaf. “Feverfew. Smell.” Sharp, bitter. She pinched another, nearly the same leaf, nearly the same small white daisy. “Chamomile.” Sweet, like apples left in the sun. “In a jar, dried, you can hardly tell them apart. So you tell them apart *here.* You smell every one. Every time. Even when you’re tired. *Especially* when you’re tired.”
 
-Only then did he take up the hammer.
+He wrote it down. She watched him do it and did not tease him, which meant it mattered.
 
-The fences around the western fields had rotted from years of rain, and so Esdel took it upon himself to repair them. The work was simple, honest, and satisfying in a way he couldn’t explain. The hammer’s rhythm was steady, the sun warm on his back. The villagers often stopped by, offering cool water or small words of thanks before continuing their way.
+At the foot of a bank she showed him valerian, and put his hand on the stem instead of the flower. “The good of it is in the root. But not now. In autumn, when the plant goes down into itself for the winter. Dig it in summer and you get half a medicine and a dead plant.”
 
-Once, an old farmer patted his shoulder and said with a smile, “Never thought I’d see someone patch that fence properly. You’ve got good hands, boy.”
+“Why does it go down into itself?”
 
-Good hands.  
-He had forgotten what it felt like to be praised — not as a stranger or a survivor, but as a *man*.
+“To keep what it has, I suppose. Until it’s safe to come up again.”
 
-Three days later, the same farmer came back up the field with his palm split open on a rusted nail, blood running down between his fingers and dripping from the ends of them.
+He looked at her a moment. She was already moving on.
 
-“Fence bit me,” he said, trying to laugh.
+Deeper, where the canopy closed and the light went green and dim, in a hollow shaded so deep the moss never dried, something grew that he did not know. Grey leaves. Not silver, not dusty — *grey,* soft and matte, as if the color had been drawn out of them. Small pale bell-shaped flowers hung above them like bowed heads.
 
-“I’ll have a word with it,” Esdel said. “It’s been getting ideas.”
+It was beautiful, in a quiet way. He stepped down toward it without thinking.
 
-The farmer laughed properly then. But when he looked down at his own hand, his face went grey, and the laugh went out of him all at once.
+“No.”
 
-Esdel stopped joking.
+Lyora’s hand closed on his wrist. Not gently. Her face had gone very still.
 
-He sat the old man down in the shade with his back against a post and knelt in front of him. His voice dropped, low and even, the way Arwen’s did with frightened people.
+“We don’t use that. Not ever.”
 
-“Look at me, not at that. It’s long, but it isn’t deep. You’ll keep the hand.” He uncorked his water flask. “This will sting. I’ll tell you before it does.”
+“Does it have a name?”
 
-He told him. It stung. The farmer swore at the sky and Esdel agreed with every word.
+A silence. “Not one we use.”
 
-He washed the cut clean, working the rust and dirt out of it with the water and the corner of a boiled rag, the way he had watched Arwen do a dozen times. From his pocket he took the small tin she had made him carry since the first week, calendula in beeswax, and spread it thin. Then a pad of clean linen, and a wrapping firm enough to hold and loose enough that the fingertips stayed pink. He checked them twice.
+He opened his mouth, the next *why* already there. Then he saw her face again, and closed it. After a moment her fingers loosened, and they walked on as if nothing had happened.
 
-“Go to the apothecary tonight,” he said. “She’ll want to see it, and she’ll want to scold you for the nail. Let her. It makes her feel better.”
+A little farther, the last light going gold through the leaves, her humming faltered.
 
-The farmer flexed his bound hand, frowning at it, then at him.
+“When I was younger, I liked someone,” she said.
 
-“Fences, and now this,” he said. “What else are you hiding?”
+He paused with his basket.
 
-“The nail,” Esdel said, and held it up. “I’m keeping it. Evidence.”
+“He was kind. A farmer from the southern fields. I used to bring him medicine when he got hurt, just to have an excuse to see him.” Her smile was a ghost of something brighter. “He was handsome, and a lot of girls liked him. I realized I didn’t stand a chance. So I stopped trying.”
 
----
+He wanted to reach for her. His hand moved on its own and stopped in the air, and he put it back on the basket handle, and the sorrow of that small failed gesture sat in his throat.
 
-When he wasn’t mending wood or hauling grain, Esdel helped carry supplies to the river shrine, a simple stone structure draped with flowers and ribbons. The villagers left offerings there — herbs, coins, even carved figures of birds and leaves.
+That night, in the attic, he opened his notebook. Feverfew, bitter. Chamomile, apples. Valerian, autumn, the root. Beneath them, slowly, he drew a small grey leaf with a bowed flower above it. He wrote no name beside it. Only: *Not ever.*
 
-Lyora joined him often, under the excuse of delivering medicines to the shrine keeper. She always lingered longer than her duties required.
-
-Once, as he set down a crate of offerings, she knelt beside him and watched curiously as he sharpened a farmer’s old chisel.
-
-“You work like someone who’s done this all his life,” she said.
-
-He shrugged. “Maybe I have. I wouldn’t know.”
-
-Her lips quirked into a grin. “You say that so calmly. I’d lose my mind not remembering who I was.”
-
-“Maybe that’s why I haven’t,” he replied, half-smiling. “There’s nothing to lose if I never had it.”
-
-She tilted her head, studying him. “That’s… sad.”
-
-He meant to answer, but she laughed before he could — a bright, effortless sound that carried over the stream. “You talk like an old man, Esdel. You need more sun.”
-
-He looked up at her then, watching how her laughter seemed to draw color into the world. The weight in his chest eased.
-
-“I think I’ve had enough sun for a lifetime,” he said softly.
+Then he sat a long time with the pen in his hand, thinking not of the plant at all, but of a girl carrying medicine to the southern fields, looking for an excuse.
 
 ---
 
-As weeks passed, small things began to change.  
-When Esdel walked through the market square, vendors greeted him with familiarity.  
-“Morning, stranger,” had become “Morning, friend.”  
-Children ran to him with broken toys, asking him to fix them, their small hands smudged with dirt and hope.
+The receipts lived in a cedar box under the counter. Arwen set it in front of him one morning with a thump, and dust rose off the lid.
 
-The baker, a big man with flour in his hair and a voice like a dropped sack, began saving him the heel of the first loaf. Esdel told him it was the best part and the baker, suspicious, tried it himself, and after that there were two heels set aside every morning and a standing argument about which of them had discovered it.
+“If you’re going to keep asking me why, you may as well ask the dead.”
 
-He learned names. He learned whose knee ached in the wet and whose son had gone south and not written. He asked after them, and remembered the answers, and people began to stop him in the lane for no reason at all except to talk.
+Inside were loose yellowed pages, some in Arwen’s younger hand, firm and upright, and some in another, quick and slanting, that crowded the margins as if whoever wrote it had always been in a hurry to get somewhere. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
 
-Even Arwen, usually reserved, seemed quietly content watching him from the apothecary’s porch as he taught the children how to carve simple wooden animals or sharpen dull blades. She said nothing, but her faint smile spoke enough.
-
-He didn’t notice the change at first — how easily his name passed between the villagers’ lips, how naturally he fit into their stories.
-
-Once, while fetching water, he overheard two women by the well.  
-“Esdel helped me repair the wheelbarrow,” one said.  
-“Ah, that man’s a blessing,” replied the other. “I don’t remember when he arrived, but it feels like he’s always been here.”
-
-He almost laughed at that. *Always been here.*  
-If only it were true.
+When a receipt disagreed with what Arwen did now, he asked. *That one burned the tongue. That one Lyora’s mother swore by, and I never did.* The first time she said it she stopped, and looked at the slanting hand for a moment, and went back to her mortar. He did not ask about that one again. He wrote her answers beside the old ones, so the pages talked to each other.
 
 ---
 
-That evening, as twilight painted the sky violet, Esdel sat by the apothecary’s garden. Lyora was tending the herbs — kneeling among rows of green and white, her hands dusted with soil.
+The young widow from the mill lane came in three times that week, and the third time she stood turning a honey cake in its cloth and laughed a little sooner than things were funny. Esdel noticed the way he noticed a fever, early, before it had decided what it was. He took the cake with both hands. “The whole shop will be glad of it.” He broke it into three on the counter. “There. Now you’ve fed the whole house.”
 
-“You’ve been quiet lately,” she said without looking up.  
-“I’ve been busy.”  
-“You’re always busy.”  
-He paused. “…Maybe I like it that way.”
+She looked at the three pieces. Then she smiled, rueful and rosy and not hurt. “Tell your grandmother it was my mother’s receipt.”
 
-She smiled knowingly. “You like feeling useful.”
+“She’s not my grandmother. But she’ll want to copy it, and so will I.”
 
-He looked down at his hands — scarred, steady, alive.  
-“I think I just like feeling real,” he murmured.
-
-For a long while, neither spoke. Only the chirping of crickets filled the dusk.
-
-Later, when the house had gone quiet, there would be the slate.
-
-Arwen had found it for him in a cupboard, cracked at one corner, and he filled it most nights by the lamp with sums that went nowhere and small puzzles of his own making, then wiped it clean with his sleeve and began again. Lyora had asked him once what it was for.
-
-“Nothing,” he had said, a little embarrassed. “I like it.”
-
-She had seemed to find that a perfectly good answer.
-
-Lyora finally said, “You are real, Esdel. Everyone here knows it. You’re part of this place now.”
-
-He wanted to believe her. Truly.
-
-And as the first stars appeared above Edenridge, he realized something quiet but undeniable:  
-He was no longer drifting.
-
-He belonged.
-
-Or at least… he was starting to.
+Behind him Arwen stood in the storeroom door with a bundle of sage. “Kindly done,” she said.
 
 ---
 
-But far beyond the calm village — beyond the forest, where the river met the dry edge of the desert — the wind shifted again. The trees shivered though no storm touched them.
+It was a warm afternoon when he met the farmer Lyora had spoken of. Eldric: broad shoulders, sun-bronzed, a voice like summer wind. “So you’re the one who fixed this! The engineers couldn’t stop talking. Said you saved us a week.” They walked the fields together, and Esdel found himself smiling, a small reluctant thing; there was nothing in Eldric that was not honest.
 
-And if one listened closely, past the hum of cicadas and the rustle of leaves, there was a sound — faint and distant.
+Then Lyora came down the lane with a basket of herbs, and stopped.
 
-A whisper.
+“We were just talking about you!” Eldric called. “She said there was a new apprentice — she never said it was *you,* the bamboo man!”
 
-Calling his name.
+“Oh,” said Lyora. “Really?” Her eyes went to Esdel for the briefest moment and dropped to the ground. “You’ve been busy.”
+
+“I guess so,” he said, and the words fell heavy between them.
+
+“I should go. The herbs won’t dry themselves.”
+
+She passed them, steps measured. He heard the quiver in her breath as she brushed by. Eldric chuckled. “She’s always like that. Never rests, that one. I used to help her pick those herbs when we were kids. I’ve always admired her.”
+
+That word, *admired,* lodged somewhere in Esdel’s chest, and he did not know why it stung.
+
+That night, coming home, he heard something faint and muffled that stopped him cold. Through the thin curtain of Lyora’s window, lit from within, he saw her — shoulders trembling, face buried in her grandmother’s embrace. The old woman murmured, stroking her hair. Lyora was crying quietly and completely, the way a person cries who has done it often and learned to make no sound.
+
+He stood in the dark, frozen. He did not know what had hurt her — whether it was him, or something older. The sound carved straight through him. He wanted to knock. What right did he have?
+
+He climbed to the attic and did not light the candle. He knew without looking what the last line in his notebook said. *And sit with them.*
+
+He lay with his hand pressed to his chest, as if that could quiet it.
+
+He would rather have borne every wound of his forgotten past than watch her break while he could do nothing but listen.
+
+---
+
+In the morning she was at the worktable with her sleeves rolled up and a practiced smile.
+
+“Good morning.”
+
+Her voice was gentle, even — so steady it almost hurt.
+
+They worked in silence. When their hands reached for the same jar, she withdrew too quickly. “Could you hand me the camphor, please?” “Of course.” “Thank you.” “You’re welcome.” That was all of it, and it was worse than any quarrel.
+
+So he did what he knew how to do. He ground yarrow to green dust and sifted it twice because Arwen liked it twice. He wrote new labels, and when Arwen squinted at one and said it looked as though a spider had walked through the ink, he told her the spider was at least very accurate. She snorted into her tea. Lyora didn’t laugh. But her knife paused on the board for a heartbeat before it went on.
+
+At midday he found her alone in the yard, pulling weeds from a bed that had none. Her back was to him. Her hands were moving, slow and mechanical, and her shoulders were shaking in a way she was holding down with her whole body.
+
+He stood at the door with a cup of water in his hand.
+
+She heard him. She did not turn. Her hands went on pulling weeds that were not there.
+
+“I’m fine,” she said. “It’s the sun.”
+
+It was overcast.
+
+He set the cup on the step beside her, very gently, and did not say a word. He did not tell her she was lying. He had never lied to her and he would not begin now by calling her one. He crouched a few feet away and began to pull weeds from the next bed, one at a time, with great care, so that she would not have to be alone and would not have to be seen.
+
+For a long time they weeded. The shaking slowed. She wiped her face with the back of a muddy wrist and left a streak, and neither of them mentioned it.
+
+“Thank you,” she said, very low, to the soil.
+
+“For what?”
+
+“The cup.”
+
+He thought of all the things in the world he wanted to say. He picked up another weed.
+
+That night, upstairs with the slate, the numbers came out even, as they always did. It helped, a little. He wiped it clean with his sleeve.
+
+Below him he could hear Arwen’s unhurried laugh and Lyora’s faint humming. It should have comforted him. It only reminded him how fragile it all was — how peace could fracture without a sound.
+
+He pressed a hand to his chest. The heartbeat there was perfect, mechanical, never faltering, too even to be his own. It did not ache the way a human heart should.
+
+Yet something inside him — something ancient, hidden, and wrong — stirred whenever she hurt. And that frightened him more than anything else.

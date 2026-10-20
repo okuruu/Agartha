@@ -1,137 +1,107 @@
 # **Chapter 45**
 
-The air inside the cave was sharp with the smell of rust and wet stone. Every breath echoed like a whisper against Esdel’s ears.
+He woke in a hut.
 
-The man moved like a shadow, his blade catching glints of dying torchlight as he lunged for Esdel’s throat — again and again. Every strike was fast, deliberate, precise. He wasn’t fighting to wound. He was fighting to **kill**.
+It was small and dark and smelled of smoke and pine and old animals. A fire crackled somewhere near his feet, and above him a low roof of branches and bark had a hole in the middle where a little grey daylight came in. He lay still and looked at it for a long time.
 
-Esdel parried once, twice—then stumbled, boots slipping on wet rock.  
-The man’s knife grazed him, a searing line just below his jaw. Warm blood trickled down his neck.
+For one long, drifting moment he did not know who he was. His mind was as blank and clean as the desert had been, a year ago, beneath that merciless sun. Then it came back. The ford. The spear. The red world. The old soldier on the causeway, raising his sword.
 
-But pain sharpened his focus.
+He shut his eyes again.
 
-He pivoted low, swung the short blade in his hand, and felt it connect—  
-the resistance of flesh and the hiss of breath as steel bit across the man’s chest.
+“Don’t you dare,” said a voice.
 
-The attacker reeled back with a muffled curse.  
-But Esdel’s victory was brief—  
-the torch slipped from his grasp and hit the ground, hissing as water swallowed the flame.
+The General was sitting on the dirt floor with her back against the wall and her knees drawn up. There were dark circles under her eyes and dried blood on her sleeves, and her black hair was loose and matted.
 
-Darkness consumed them.
+“You’ve been asleep for three days. You had a fever like a forge. You talked.” She looked at him. “A great deal.”
 
-The cave was now a void — only the sound of dripping water and the faint rasp of two breaths in the dark.
+He did not ask what he had said. He put his hand to his left side, beneath the linen, and found only smooth skin and a deep ache like a week-old bruise.
 
-Esdel crouched, heart pounding, blade tight in his grip.  
-He couldn’t see. He couldn’t hear the man move.
+“It closed on the second night,” said Xueyao. “I watched it close. Like a mouth.” She was quiet. “Your eyes stayed red a day, even asleep. For two days you didn’t know my name. You called the fire *the bright one*.”
 
-For a moment, there was nothing. Then, a voice — soft, almost conversational — drifted through the black:
+“Is he dead?”
 
-“Don’t light it.”
+“No. A shepherd says they carried him back on a litter. He lives.” She looked at the fire. “Gao says you were standing right in front of him with your sword, and no one in the world could have stopped you. Why didn’t you?”
 
-Esdel froze.
+He thought about it for a long time.
 
-“If you value your life,” the man continued, tone low, “leave the torch as it is. I won’t attack.”
+“Everyone in that river was afraid. He wasn’t. He was breathing like a man at supper, and his face was glad. Lit up. I’ve seen that look on the dying, in the tents.” He paused. “And on your mother, when she turned to him. I thought, if I kill him, I’ll never know what put it there. It won’t die with him. It’ll just go somewhere else.” He looked at his scarred, steady hands on the blanket. “That’s not the whole of it. I didn’t want to. I didn’t want to be the kind of man who would.”
 
-Esdel’s mind raced. Could he trust that? The same voice belonged to the killer of four soldiers.  
-And yet… if the man wanted him dead, why stop now?
+She nodded, slowly, as though it cost her something.
 
-His fingers brushed the torch’s handle. He hesitated. The man’s words echoed again, calm and deliberate.
+“The eye of mercy,” she said softly. “I think it might be the only thing it’s ever been.”
 
-“Why did you come here?”
+The others came in as the day went on. Gao, with a rag round his head, who said “Idiot” with great feeling and then sat beside him for an hour. The old soldiers with rabbit stew in a dented pot. And Pei Lun last, who knelt by the blanket and put his face in his hands and wept like a child. Esdel put his hand on the boy’s shoulder and left it there.
 
-Esdel swallowed hard. “I didn’t come for war,” he said, his voice steady despite his fear. “I’m an apothecary. I came to save lives, not take them.”
-
-A quiet chuckle answered him — not mocking, but faintly bitter.  
-“An apothecary… here, knee-deep in blood. Do you even know what this war’s for?”
-
-“I don’t need to,” Esdel replied softly. “Someone has to heal what’s left of it.”
-
-The voice shifted closer, rippling through the dark. “Where are you from, healer?”
-
-Esdel hesitated. “A small village,” he said finally. “Far from here.”
-
-“What’s its name?”
-
-He didn’t answer. The silence between them thickened — not trust, not hostility, something in between.
-
-Then the man spoke again, his tone colder.  
-“I killed your soldiers. What will you do about that?”
-
-Esdel’s grip tightened on the blade. He didn’t respond.  
-His mind turned inward, fast, calculating.
-
-He retraced the steps in his head—the sound of boots when the soldiers entered, the glow of the light they struck once they were through the gap, and how quickly the silence had come after.  
-The ambush happened the moment they lit the cave.
-
-*He couldn’t see them before that.*
-
-*He isn’t used to the dark.*
-
-Esdel’s pulse quickened, not with fear — but realization.
-
-He crouched lower, one hand tracing the stone wall. He remembered the curve of the entrance, the slope beneath his feet, the scent of fresh air faintly leaking in from one side.
-
-The man spoke again, closer now. “You think silence will save you?”
-
-Esdel didn’t answer. He moved slowly, quietly — following memory, counting breaths.  
-Every step was deliberate, every exhale timed with the drip of water.
-
-Then, the faintest hint of wind brushed against his cheek. The exit.
-
-Behind him, the man’s tone sharpened, realizing too late.  
-“Coward! Come back and die properly!”
-
-Esdel ignored the voice. He slipped through the narrow passage, scraping shoulders against stone, the echo of curses chasing him like shadows.
-
-When he emerged into daylight, the sudden brightness stung his eyes. He staggered forward, panting, soaked, neck bleeding.
-
-But he was alive.
+Eight of them now. The General, the apothecary, Gao, four old soldiers, and a boy. Eight, out of eighteen who had ridden out of North Ridge in the spring.
 
 ---
 
-By dusk, Esdel returned to camp, mud-streaked and trembling. He stormed into Halden’s tent without ceremony.
+That night, when they slept, he took the scrap of paper out from behind the silver flower and held it in the firelight without unfolding it. He knew what it said.
 
-“Poison,” he gasped. “The water source—corrupted. And four men dead.”
+He had been so near the end, in the river, and the only thing in him that had refused was a girl on the floor of a stair saying *You promised.* She did not cry quietly, then. He had held her while she came apart, and she had said everything, and he had said nothing, because there was nothing he could say that was not a promise or a lie. And she had cried until she was empty, and he had cried too. He had learned the sound of her by heart. He thought, now, that she would not cry like that again, not in front of anyone. She would do it the other way, the way she did when she thought no one could hear: without any sound, with her hands still on the work.
 
-Halden shot up from his chair. “*What?*”
+He found a flat piece of bark and a burnt stick, and began to write. *Lyora,* he wrote. His small strange hand, the one a spider might have made, walking through the ink with great care. He wrote one line. He read it. It was true, and it was no use to anyone.
 
-“I found them in the cave. Killed. There was someone—” He stopped, breath uneven. “Someone waiting.”
+He fed it to the fire and watched it curl.
 
-Halden’s face hardened.
+---
 
-Before their conversation could grow, Captain Rorik, who commanded the post, entered, drawn by the commotion. Esdel turned to him.
+The trader came on the eighth day.
 
-“There’s something in that cave,” he said. “Alive. Dangerous.”
+He was a thin, cheerful, bow-legged man with a string of mules loaded with salt and needles and tin pots, working his way up toward the northern passes. He found eight ragged people and a handful of worn-out horses at the edge of a pine wood, and did not seem surprised. He had seen a great many strange things in the hills. He shared their fire and told them the news in exchange for a bowl of stew: grain prices, a flood, a fire in a monastery.
 
-The captain didn’t hesitate. “Then we’ll root it out.”
+And the decree. He had heard it read in a market town, nailed to the magistrate’s door.
 
-Within the hour, fifty soldiers marched toward the ridge, torches blazing, their armor clattering like a storm of steel.
+“Five thousand gold crowns,” said the trader, wiping his bowl with bread. “For her. Living. And a thousand each for the ones who went with her. They read all the names. Soldiers, mostly. And some apothecary nobody knew. Some village near the desert, they said. What was it—”
 
-Esdel stood beside Halden as they waited. Neither spoke.
+He snapped his fingers. The fire crackled. No one moved.
 
-When the soldiers finally returned at dawn, their faces were pale.
+“*Edenridge,*” said the trader. “That was it. Pretty name. Never heard of it.”
 
-“The cave’s clear,” the captain said grimly. “We found the bodies of your men.”  
-He paused, voice dropping lower.  
-“And something else.”
+---
 
-He gestured to the wagon behind him. Covered by a tarp lay piles of rotted flesh — **human and animal alike**, all fused together in grotesque decay. Rusted iron jutted from the mess like bones.
+Esdel went out.
 
-But worse than that were the faces.
+He did not remember the door. He found himself at the edge of the pine wood in the long gold evening with his hand pressed against the rough bark of a tree, looking south.
 
-The soldiers who had been killed—  
-their skin had turned dark, almost charred.  
-Their eyes, once bright, were now pitch black.  
-And every one of them wore the same expression—
+Only hills, green and grey and gold, rolling away one behind another until they faded into haze. Somewhere beyond them was the capital, and beyond that the plains, and a long way beyond that a forest, and a river running between its willows. And an old house with ivy on the walls.
 
-A smile.  
-Wide.  
-Unnatural.
+*Late of the village of Edenridge.*
 
-Halden turned away, bile rising in his throat.  
-Esdel stood still, staring at the bodies.
+Under the peach tree it had been one man watching. Now it was the whole Kingdom, and it was written down. He understood it all at once, the way he understood the slope of a field. The Count had not needed a spy or a map. He had only needed to put one word into a decree. Now every soldier and bounty-hunter and magistrate’s man knew that the traitor’s apothecary, worth a thousand crowns, living or dead, had come from a village called Edenridge.
 
-The smile seemed to look *through* him — cold, knowing, eternal.
+And if the traitor’s apothecary were ever to go home—
 
-Somewhere in the back of his mind, a single thought echoed, quiet and unshakable:
+They would be waiting. Behind every tree on the river road, in every room of the inn. Watching an old house with ivy on its walls. Watching a lamp on a stair.
 
-*Whatever that man was… he wasn’t alone.*
+He could never go back.
+
+Not in a year. Not in ten. If he went back he would lead them to her door, and they would take her, to make him come, or to make him watch. He had promised to come back. He stood with one hand on the bark and the other pressed flat against his chest over the silver flower, and he did not weep. It was too large for that. It was like standing at the edge of the desert again beneath the white sun, looking at the sand stretching away in every direction, understanding that there was no way back.
+
+Only this time he knew exactly what he had lost.
+
+She came out after a while. He heard her step on the pine needles and stop, a few paces off, the way he had learned to stand.
+
+“You heard,” he said.
+
+“Yes. He did it on purpose, putting the name in. I think he did.” The sun was going down behind the western hills. “Go,” said Lián Xueyao.
+
+He turned his head.
+
+“I release you. From my service, from whatever you think you owe me. There’s a price on your head and it’s because of me. So go. Find a road that doesn’t lead anywhere near that village, and follow it until no one has heard the name Lián. Change your name. Be someone else. You’ve done it once before.”
+
+He looked at her for a long time. Then he looked south again.
+
+“If I go alone, and they catch me some day, they’ll want to know where I came from. They already know. They’ll go there, to see who else knew me.” He met her eyes. “But if I stay with you, they won’t look for me alone. They’ll look for the Maiden of the Heavenly Dragon, worth five thousand crowns. Every man who wants that gold will be looking north, and east, into the borderlands. Not south. Not toward the river. Not toward her.”
+
+“I said that before the decree,” said Xueyao.
+
+“It’s truer now.”
+
+He watched her understand, slowly, the way cold water rises, what he was choosing. Not her cause, or her vengeance. Only the one thing he could still do for someone he would never see: be somewhere else. Be the thing the hunters chased. Draw them away from the willows and the lamp on the stair, for as long as he lived, by the simple act of never going home.
+
+It was the only way he had left to keep his promise. *I won’t break another. I’ll come back.* He would keep the first half by never keeping the second.
+
+She did not thank him. She came and stood beside him at the edge of the pine wood, not touching, the width of a person between them, and looked south with him at the hills until the sun was gone.
+
+*Be safe,* he thought, toward them. He did not know if thoughts could walk that far. He stood there a long while, in case.

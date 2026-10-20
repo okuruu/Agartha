@@ -1,108 +1,97 @@
 # **Chapter 42**
 
-He was still on his knees when the enemy line began to break. A few paces away, the headless body of the enemy captain lay where it had fallen, its blood darkening the soil. And beside it knelt Esdel.
+They were in the stable yard when the bell began to ring.
 
-His blade lay across his thighs, dripping red.  
-Seven arrows jutted from his body, each one trembling slightly with the faint rhythm of his breath. His eyes, a quiet brown in any other light, now burned dimly with that cursed crimson glow, the pupils pinched into thin vertical slits like a fox's — the Karunākṣa still pulsing faintly behind them.
+It was the alarm bell on the gatehouse, great and bronze and green with age, and it had a voice like the end of the world. Every horse in the yard screamed and reared.
 
-He didn’t speak. He didn’t even move.  
-He was a silhouette against the dying sun — battered, alone, and somehow still alive.
+“He didn’t drink,” said Xueyao. She was already in the saddle, calm. “He didn’t sleep. He’s had it rung.”
 
-Then came the sound.  
- A single gasp.  
- A ripple through enemy ranks.
+“They’ll come to the great gate,” said Han Ruo grimly. “Where we have to go out.”
 
-The sight of their fallen captain — the man who’d driven them forward — broke something in the enemy line. Panic began as a whisper, then grew like fire through dry fields.
+Esdel was on his horse. He did not remember getting there. His hands were steady on the reins and his heart was beating even and unhurried — borrowed. It did not seem to know that anything was wrong.
 
-From the back ranks, Captain Erven of the 3rd Logistic Company — calm as ever, armor smeared with soot and earth — saw the moment of weakness. His jaw tightened.
+They lifted the beam and hauled the great doors open, and the storm roared in through the gap, and beyond it in the street there were lanterns. Thirty of them, coming up from the river. The street guard. Men in the wine-colored livery of the Count’s household. And at the front, on a tall grey horse, with a sword loose in his right hand and his white mourning coat blazing in the torchlight, rode Count Aldric Reng.
 
-“Now,” he breathed.  
-He lifted his sword, chipped and old but steady.  
-“Now’s our chance. For the wounded!”
+He was not leaning on his cane. He had never needed it. The cane had been a costume, Esdel understood, in a single cold instant. Like the grief.
 
-And the roar that followed was thunder.
+“General,” the Count called, pleasant and warm and faintly regretful. “Where are you going at this hour? And where is my ward?”
 
-They charged — what was left of seventy weary souls, half-broken, half-starved, but still alive — into twice their number, who had already begun to doubt. Steel struck. Spears met shields. The air filled with the heat of men who refused to die quietly.
+Xueyao did not answer. She looked at her soldiers: thirteen old men and a boy in the gateway of her father’s house.
 
-When the sun sank completely, the field was no longer a place of war, but of ghosts.
+Han Ruo looked at the street, and at the arch above him with the Lián name carved in the stone. Something moved in his old face, a quiet, settling certainty.
 
-The survivors gathered under the black canopy of the forest, where only embers dared to breathe. The cries had faded, replaced by the still hum of night. The wounded lay in uneven lines, their faces half-lit by dying firelight, and the rest — too tired to rest — stared at nothing.
+“Thirty years I served your father,” he said. “I was there the day you were born. They put you in my arms because I was standing closest. Screamed like a gull. Bit my thumb.” He smiled through his grey beard. “That man took the Lord’s chair. Took the Lady. Took the boy, or tried. I wasn’t here. I was at the front, with you.” He turned his horse until it stood in the center of the gateway. “I’m here now.”
 
-Esdel sat apart, his back against a tree, the world swaying faintly around him. His breath came slow, uneven, dragging through his chest like sand through glass. He pressed his hands to the dirt, grounding himself, feeling the earth pulse faintly beneath his palms.
+Three of the old soldiers moved up on either side of him without being asked.
 
-The Karunākṣa was still open.
+“Go out the side lane, past the old wine store, into the Street of Lanterns. Go now, girl. Before he thinks of it himself.”
 
-He could see everything — the curve of every ember as it fell, the minute tremor of a moth’s wing, the faint mist of breath escaping a sleeping soldier’s lips. Every second unfolded painfully, drawn out, raw.
+“*Han Ruo.*”
 
-*Too much.*
+It was the only time Esdel ever heard her voice break.
 
-“...Enough,” he rasped.
+“You were always going to keep your promises,” said the old captain, his eyes very kind. “Even the inconvenient ones. Let an old man keep one of his.”
 
-And with that, he forced it shut.
+Then he raised his sword and shouted down the street in a voice that had once carried across the parade ground — “*For Lord Hengzhi!*” — and the four of them spurred straight at the Count.
 
-The world returned — violently.  
-Sound rushed back in, colors crashed together, the weight of reality slammed through his bones. He choked, retching onto the dirt. His body convulsed. The glow in his eyes flickered and died, and the slits in them opened back into ordinary round pupils.
+---
 
-The pain came like fire — searing, molten, merciless — splitting through his head until the world blurred. His skull felt overfilled, a vessel that had taken in a flood. He pressed his hand to his face, trembling, breathing through clenched teeth until it dulled.
+Esdel remembered the lane only in pieces. The General’s face in the flicker of torches, white and set and streaming. Pei Lun sobbing, his bow bouncing against his back. And behind them the clash of steel, the screaming of horses, and above it, once, very clear, an old man’s voice, laughing.
 
-When he finally lifted his gaze, the firelight caught something in his expression — not strength, not peace — but a quiet horror.
+In the Street of Lanterns, six of the Count’s men came out of an alley at a run. One dragged Pei Lun’s horse down, and Pei hit the cobbles hard.
 
-His wounds were gone. The arrows had fallen from him somewhere in the dark, and the holes they left had vanished as though they’d never existed. His skin was smooth, unmarred, too perfect.  
-And yet his blood still covered the ground.
+Esdel was off his horse before he knew he had moved. There was no thought, only the old cold certainty rising from somewhere beneath memory. And then, deliberately, slowly, he blinked.
 
-He stared at it.  
-At his hands.  
-At the trembling that wouldn’t stop.
+The rain slowed. He could see each drop hang and turn in the torchlight like a bead of glass. He could see all six of them at once: the held breaths, the pulses jumping in six throats, the weak knee, the wrist that would open too wide, the half-breath each man took before he committed.
 
-“Hey…”
+*The eye of mercy. Whatever mercy there was in it, they had to bring themselves.*
 
-He startled. The voice was soft, familiar.
+He did not kill them. Afterward he would hold on to that, in the dark, the way a drowning man holds on to a spar. His short sword came down flat on a wrist, behind an ear, on a knee, and the sixth man ran, and Esdel let him run.
 
-The soldier who had spoken of his pregnant wife earlier — a man with kind eyes and exhaustion carved deep into his face — crouched beside him.
+The world crashed back, and with it pain like needles through both eyes and a swollen ringing in his skull, as if it had been packed with too much of the world. His hand shook against his temple.
 
-“You shouldn’t be out here alone,” he said, voice low.
+“Your eyes,” said Xueyao, beside him.
 
-Esdel tried to smile, but it faltered.
+“I know.” The pupils, in the torchlight, were still pinched to slits like a fox’s. “It passes. I’ll be stupid for a day, and I’ll have a head like a split melon.” He looked at the men on the cobbles. He counted, to be sure. “They’ll live.”
 
-The soldier’s gaze fell to the dried blood streaking Esdel’s face, to the strange, unfocused look in his eyes. For a moment, he looked as if he might speak, then thought better of it. Instead, he placed a steadying hand on Esdel’s shoulder.
+She looked at him with a careful, wary, old look, like someone stepping around ground she knew was mined. And something else beneath it, which he had no name for.
 
-“You scared us,” he said with a tired chuckle. “Caught out past the ring like that — gods, I thought we’d lost you.”
+“Can you ride?”
 
-Esdel’s voice came hoarse, heavy.  
-“I didn’t think. I just moved.”
+“Yes.”
 
-“Yeah, well,” the man grinned faintly, “you moved fast enough to save all of us. That’s what counts.”
+Near the top of the street, torches came out of the alleys again. Two of the old soldiers turned their horses without a word, as Han Ruo had, and rode back into them, and did not come back.
 
-For a while, they just sat there.  
-The night stretched long, quiet but alive — leaves shifting like whispers, the fire sighing low.
+Far behind them, in the middle of a stroke, the great bronze bell stopped. The silence that followed was the loudest thing Esdel had ever heard.
 
-The soldier exhaled, staring into the embers. “Been in this war too long,” he murmured. “Every time I think I’ll make it home, something tries to take it away.”
+---
 
-He smiled softly, as if speaking to no one. “Still… thanks. I might actually see my kid because of you.”
+The north gate stood at the top of the Hundred Steps. They came up it in the last hour before dawn, ten riders, in the thinning rain. Esdel counted them over and over, as though the number might change.
 
-Esdel looked at him, at the small flicker of fragile hope in the man’s eyes, and felt something stir — faint, unfamiliar, painful.
+The gate was closed. Four men in the gatehouse, not twelve. A door opened at the foot of the tower, and two men walked down the slope with a lantern and stopped ten paces off. One was older, in plain black. The other was young and tall, and when he pushed back his hood the light fell on a pair of clear, startling blue eyes.
 
-“I think you will,” he said. “You’ll make it home.”
+“Your Highness,” said Xueyao.
 
-The soldier nodded, stretching as he rose. “You look like death itself, though. Try to rest, Hero.”
+Prince Ardbert looked at all of them: the split lip, the drawn sword, the place beside the General where a captain should have been riding. His face did not change. But his hands, at his sides, were shaking.
 
-He said it lightly, teasing, but Esdel flinched all the same.
+“I heard the bell,” he said. “And then I heard that the north watch had been cut to four men, for the new moon, to save the Crown’s money. I thought it a strange night to save money.” A faint, humorless curve of his lips. “At the Hall of Remedies I didn’t speak. My father looked at me, and I stopped. I have been stopping all my life when my father looks at me. There isn’t a better time. There’s only this one.”
 
-Hero.
+He turned. “Khalid. Open the gate.”
 
-He didn’t know the man that word belonged to.  
-He didn’t even know if he wanted to.
+Inside, a calm voice: *Crown’s orders. By the hand of His Highness. A courier party, delayed by the storm.* Then the groan of the windlass, and slowly the black iron teeth of the portcullis began to rise.
 
-When the soldier’s footsteps faded, Esdel was alone again.  
-The night pressed close — damp, silent, smelling of iron and ash.
+“He’ll know you let me through,” said Xueyao.
 
-He touched his face. The blood was already drying. The pounding in his skull was fading, slowly, like a storm moving off over the hills. He looked at his reflection in the flickering emberlight — eyes still faintly glimmering, not with rage, nor divine power, but something softer.
+“Yes. I expect he’ll be very disappointed in me.” Something moved in his face that was almost a smile. “I find I don’t mind as much as I thought I would.”
 
-Something *human.*
+“Why?”
 
-He tilted his head back, staring at the sky where the stars returned, scattered and imperfect.
+“At my seventeenth birthday three hundred people looked at me and thought about my father’s crown. And one girl looked at me as if I were a person. I suppose I wanted to give it back. Once.”
 
-And for the first time since those cursed eyes had opened,  
-Esdel smiled — faintly, almost uncertainly — but real.
+She touched his shoulder with two fingers, the way a soldier touches another soldier in passing.
 
-A mercy that burned, and yet… did not destroy.
+“I remember how you looked at people too,” she said.
+
+Then she rode through the gate, and the others after her, Esdel last. As he passed, the Prince looked up at him, a brief and curious look, the look of a man who had once seen him behind a table in a cold hall and never wondered who he was. Esdel inclined his head. The Prince inclined his back.
+
+Behind him, he heard the portcullis begin to come down. Through the closing gap he saw Ardbert still standing alone at the top of the Hundred Steps, watching them go, and far below him, at the foot of the slope, a line of torches coming up.

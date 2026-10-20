@@ -1,133 +1,45 @@
 # **Chapter 18**
 
-The receipts lived in a cedar box beneath the counter.
+The next day was long, filled with feverish cries and the clatter of makeshift tools. Lyora moved among the cots, her hands trembling but steady, her voice calm though her eyes showed exhaustion. Her healing was never enough, and she gave all she could. Esdel, across the tent, watched her do it, and saw that she had stopped looking at him at all — not coldly, but the way a person avoids looking at a lamp when they have been staring at it too long.
 
-Arwen brought it out one morning and set it in front of him with a small thump, and dust rose off the lid in the window light.
+As night fell, one tent went silent. A young soldier, barely twenty, had stopped breathing. Lyora placed her fingers at his neck, waiting for a pulse that would not come. She whispered a prayer and drew the blanket over his face.
 
-“If you’re going to keep asking me why,” she said, “you may as well ask the dead.”
+Before she could move, another soldier entered, bloodshot, half out of his armor. “Where’s my brother?”
 
-Inside were loose pages — dozens of them, yellowed, soft as cloth at the folds. Some in Arwen’s younger hand, firm and upright. Some in another hand, quick and slanting, that crowded the margins and ran off the edges of the page, as if whoever wrote it had always been in a hurry to get somewhere. Cough syrups. Poultices. A salve for chapped udders. A draught for grief, which was only lemon balm and honey and a note in the margin: *and sit with them.*
+“He’s resting now. He’s gone to a place without pain.”
 
-“Nobody’s read these in years,” Arwen said.
+“Gone? No. You can fix people. I saw you heal wounds that should’ve killed them!” His voice cracked. “BRING HIM BACK!”
 
-“Then they’ve been waiting,” he said, and she snorted and left him to it.
+He lunged. His hands closed around her neck, grief twisted into rage. Her breath vanished. Her hands clawed weakly at his wrists. Old men on guard duty seized his arms and were tossed aside like twigs by his magic-fueled strength.
 
-He copied them into his notebook, one by one, in his small, strange hand. In the early hours before the shop opened, and in the slow hour after, and in every gap between. When a receipt disagreed with what Arwen did now, he marked it, and later he asked her, and she would tell him — *that one burned the tongue; that one Lyora’s mother swore by, and I never did*. The first time she said it, she stopped, and looked at the slanting hand for a moment, and then went back to her mortar. He did not ask about that one again. He wrote her answers down beside the old ones, so the pages talked to each other.
+Then a shadow moved faster than thought.
 
-It was quiet work. He liked it more than he could have explained.
+Esdel’s fist struck the soldier’s ribs, followed by a sharp twist of motion — fluid, practiced, terrifyingly instinctual. The man collapsed, unconscious before he hit the ground.
 
----
+Silence, the kind that follows near-death.
 
-The young widow from the mill lane came in three times that week.
+“Are you hurt?” His hand trembled as he knelt before her and brushed the hair from her face.
 
-The first time for a headache powder. The second for something to help her sleep. The third time she did not seem sure what she had come for, and stood at the counter turning a honey cake in its cloth, asking about the bamboo channels, and whether it was true he could read the slope of a field just by looking.
+“I-I’m fine.”
 
-She had a soft laugh. She laughed at everything he said, a little sooner than it was funny.
+But she wasn’t. Her fingers shook uncontrollably. Her eyes darted as if still expecting another hand for her throat. Over her shoulder, she looked at him, and her eyes were full — not of tears, but of something he knew was one breath from becoming tears. He had not thought. He had only *moved.* That frightened him more than the violence.
 
-Esdel noticed. He noticed it the way he noticed a fever — early, before it had quite decided what it was.
+*You’ve done this before.*
 
-He answered her questions kindly and briefly. When she held out the honey cake, he took it with both hands and thanked her for it warmly.
+Around them, murmurs: “He moved like a soldier.” “Did you see him? He didn’t even hesitate.” They stung worse than accusation because they were true.
 
-“The whole shop will be glad of it,” he said. “Arwen has a weakness for honey she thinks nobody knows about.” He broke the cake into three right there on the counter, one piece for Arwen, one for Lyora, one for himself, and set them apart on the cloth. “There. Now you’ve fed the whole house.”
+Arwen knelt beside her granddaughter. “Child, can you breathe?” “I’m fine,” Lyora managed. “No, you’re not. But you will be.” Arwen looked up at Esdel. “You acted swiftly. And without thought.”
 
-For a moment she only looked at the three pieces.
+“That’s what frightens me,” said Esdel.
 
-Then she smiled — a little rueful, a little rosy, but not hurt — and something in her shoulders settled, as if she had set down a basket she hadn’t known was heavy.
+Arwen’s gaze held no accusation, only knowledge. She helped Lyora to her feet and out, and Esdel stayed with the unconscious man until the watch came. “You fear what you are,” Arwen said, setting a lantern beside him. “Then let that fear guide you. Not destroy you.”
 
-“Well,” she said. “Tell your grandmother it was my mother’s receipt.”
+At supper there was no laughter. Arwen glanced across the table. “That move you did. You’ve fought before.”
 
-“She’s not my grandmother,” he said. “But she’ll want to copy it, and so will I.”
+“I just reacted. My body did.”
 
-The widow laughed again — properly this time, at the right moment — and went out into the morning with her head up.
+No one found that comforting. Lyora sat unable to meet his eyes, her hands clenched in her lap, her throat bruised. The word she had said to him last night lay somewhere on the table between them, and neither reached for it.
 
-Behind him, Arwen had come to the storeroom doorway, a bundle of drying sage in her arms. She did not say anything for a while.
+She rose before the others, and carried her bowl to the basin, and he heard the clink of it set down far too carefully. In the lamplit window glass he watched her reflection lift a hand to the red marks on her throat, touch them, and fold forward, one arm across her stomach, the way you bend over a stitch. She made no sound at all. It was over in four breaths. She straightened, smoothed her apron, and said, in a perfectly ordinary voice, “I’ll bank the fire.”
 
-“Kindly done,” she said at last.
-
-“It was a very good cake.”
-
-“No,” said Arwen. “Of course you don’t.”
-
-She took her piece of cake, and ate it, and went back to the sage.
-
----
-
-It was a warm afternoon when Esdel met him — the farmer Lyora had spoken of in the forest. His name was Eldric, a man with broad shoulders, sun-bronzed skin, and a voice that carried the comfort of summer wind. There was something effortlessly alive about him — the kind of warmth that made even strangers feel like old friends.
-
-Eldric spotted Esdel near the edge of the riverbank, where he was examining the new wooden channels that redirected the water flow into the village fields.
-
-“So you’re the one who fixed this!” Eldric called out, striding over with a grin. “The engineers couldn’t stop talking about your handiwork. Said you saved us a week’s worth of work!”
-
-Esdel turned, surprised. “Ah… it was nothing. Just followed some logical steps, that’s all.”
-
-“Nothing?” Eldric laughed heartily and clapped him on the back. “If this is your idea of *nothing*, then you’re making the rest of us look bad.”
-
-Esdel smiled faintly, uncertain how to respond. Eldric’s easy manner was disarming — so open, so free of weight. They fell into step together as the farmer insisted on showing him around the fields.
-
-The plains stretched wide and golden beneath the sun, the air shimmering with the scent of wheat and wild mint. Villagers waved as they passed; Eldric greeted each one by name, sometimes stopping to lend a hand — tying a bundle of hay, helping a child carry a pail, or offering a cheerful word that drew laughter every time.
-
-Esdel found himself smiling, too — a small, reluctant thing that crept up before he noticed. He wasn’t used to such lightness. Eldric spoke of rain and harvests and the stubborn mule that refused to pull his cart; his laughter rolled like thunder across the fields. It was simple, genuine, untouched by shadow.
-
-For a few hours, Esdel forgot the emptiness that usually lingered behind his calm.
-
-By the time they walked back toward the village path, a quiet camaraderie had settled between them — the kind that required no words. Esdel almost felt at ease. Almost.
-
-Then she appeared.
-
-Lyora was coming down the lane, her long dark brown hair catching the sun, a basket of herbs cradled in her arms. The faint breeze stirred her dress, scattering the scent of mint and sage in her wake. She froze when she saw them — Esdel and Eldric — walking side by side, laughter still lingering in the air between them.
-
-“Ah, hey!” Eldric called, waving. “We were just talking about you! She said there was a new apprentice — she never said it was *you*, the bamboo man!”
-
-Her steps faltered. “Oh… really?” Her voice was soft — too soft — her eyes flicking to Esdel for the briefest moment before dropping to the ground.
-
-“Yeah! He’s got all sorts of strange knowledge,” Eldric went on, oblivious. “You’d like it — he talks about invisible rules that make water flow faster!”
-
-Esdel gave a nervous chuckle. “It’s not that special. Just… something I happened to remember.”
-
-Lyora’s lips curved faintly, but her eyes didn’t match. “I see. You’ve been busy.”
-
-“I guess so,” he said, the words landing heavy between them.
-
-For a moment, no one spoke. The sun hung low, the light sharp against their faces. Eldric looked between them, brow creasing slightly.
-
-“What’s going on? Did I say something strange?”
-
-Lyora quickly shook her head, forcing a small smile. “It’s nothing,” she said softly, adjusting the basket in her arms. “I should get going. The herbs won’t dry themselves.”
-
-She passed by them, her steps measured, graceful — but Esdel could hear it, the faint quiver in her breath as she brushed past. He turned slightly, watching her walk away, her figure shrinking in the distance, swallowed by the golden light. Something inside him twisted — a hollow, tightening ache that felt both familiar and foreign.
-
-Eldric chuckled to himself, oblivious to the tension. “She’s always like that — never rests, that one. I used to help her pick those herbs when we were kids. Could never get her to stop working.”
-
-Esdel said nothing.
-
-“You two must see each other all the time, huh?” Eldric continued. “She talks about the shop sometimes — says things have been easier lately.”
-
-Esdel forced a polite nod. “She’s kind. To everyone.”
-
-“Aye,” Eldric said, smiling wistfully. “That’s what I’ve always admired about her.”
-
-That word — *admired* — lodged itself somewhere in Esdel’s chest. He didn’t know why it stung the way it did.
-
-By the time they parted ways, the air had cooled, and the faint hum of the village night had begun. Esdel walked home in silence, every step heavier than the last. The laughter from earlier had long faded, replaced by an uneasy stillness.
-
-When he reached the shop, the lamps inside had already dimmed. He was about to head up to his attic when he heard something — faint, muffled. A soft, choked sound that stopped him cold.
-
-He turned toward Lyora’s window. The thin curtain glowed faintly with lamplight, and through it, he saw her — shoulders trembling, face buried in her grandmother’s embrace. The old woman murmured gently, stroking her hair as she wept, quiet but unrestrained.
-
-Esdel stood there in the dark, frozen. He didn’t know what had hurt her — whether it was him, or something else entirely — but the sound carved straight through him. His chest tightened, breath caught somewhere between guilt and longing.
-
-He wanted to step closer. To knock. To ask. But what right did he have?
-
-He turned away instead, the faint light from her window flickering across his face as he climbed the attic stairs.
-
-His notebook lay open on the crate where he had left it that morning, the old receipts copied out in his small, strange hand. He did not light the candle. He knew without looking what the last line said. *And sit with them.*
-
-The scent of dried herbs lingered heavier than usual — a blend of sage and sorrow that clung to his skin. He lay down, staring at the ceiling beams above, tracing the cracks like veins. Sleep didn’t come easily. Every time he closed his eyes, he saw her — the trembling of her shoulders, the faint shimmer of tears catching the light.
-
-He pressed his hand against his chest, as if that could quiet the ache beneath it. But it only deepened.
-
-Outside, the crickets sang in the dark — soft, endless, indifferent.
-
-And as the night stretched thin around him, Esdel realized something he didn’t want to name:
-
-He would rather have borne every wound of his forgotten past than the pain of watching her break while he could do nothing but listen.
+He sat at the table with his spoon in his hand and understood that he was a man she had been nearly killed in front of, and that she could not even be afraid of him without loving him, and that this was a knife he had put into her himself, simply by existing.

@@ -1,125 +1,153 @@
 # **Chapter 14**
 
-The village thrived.
+The harvest was coming. You could smell it, dry grass and dust and the green edge of the wheat turning gold. Eldric’s father took his first steps on a crutch on a bright, windy morning, halfway across the yard and back, his wife walking beside him with her hands held out as though he were a child. The news went through the village by noon. It meant, the aunties at the well said, nodding to one another, that there would soon be time for other things.
 
-Each morning, sunlight poured over the rooftops like honey, glinting across the river where bamboo pipes whispered with flowing water. The air was thick with birdsong and the smell of earth after rain. Even the forest seemed to hum with quiet satisfaction, its leaves shimmering in the soft wind.
+Eldric found Esdel at the edge of the southern fields at dusk, checking the channel mouths. The light had gone amber and long. Swallows cut low over the stubble.
 
-For a while, it felt as though nothing in the world could go wrong.
+“My father walked today. All the way to the gate.” His face was bright with it. “Half this village carried him there. Your water, keeping the fields alive, so there’d be something left for him to come back to.” For a while they only stood. Then, without looking at him: “Can I ask you something? Honestly?”
 
-Esdel had become a fixture in the rhythm of village life — no longer a stranger, no longer a wanderer. His mornings still belonged to the shop: the broom, the drying racks, the mortar’s low grinding song, and Arwen’s voice asking him *why* before he could ask her. Only after that did the rest of the village have him. The Chief often sought his advice for planning harvest rotations or repairing the irrigation lines. Reyn relied on him to inspect water wheels, measure pressure, and balance flow between the upper fields and the village core.
+Esdel felt it coming the way one feels weather.
 
-And when he walked through the square, people called his name with easy familiarity.  
-“Morning, Esdel!”  
-“Watch your step — the kids left their kites again!”  
-“Chief says your idea saved us another day’s work!”
+“Is there something between you and Lyora?”
 
-He’d answer with a quiet smile, still surprised at how easily laughter seemed to follow him now.
+The channel water went on murmuring.
 
----
+“Because if there is, tell me. Just tell me. I’ll step back. I mean that. I’m not the kind of man who’d stand in the way — not of her, not of you. You’re my friend.” He laughed, embarrassed. “Ma’s got the go-between half-hired. But I’d rather know now, before I make a fool of myself in front of the whole valley.”
 
-The world had become small, predictable, safe — but in that simplicity, Esdel found something he never thought he’d crave: *peace.*
+It was the kindest question anyone had ever asked him. That was what made it unbearable.
 
-Much of it came from Lyora.
+He looked at the knot on the nearest joint, his knot, holding. He thought of the well. *Such a good match.* Of a farm that would stand, of a mother who never cried and had cried. He thought of a cliff above the sea, and a voice saying *fight,* and a woman in white on a horizon he could not reach — everything that pulled at him in the night, that he could not name, and could not promise would ever let him go.
 
-She was the constant thread that tied each day together — bringing him small meals while he worked, teasing him about his “unromantic logic,” or sitting beside him during long meetings with the Chief, chin resting on her hand as she listened.
+A man like that did not get to stand in the road between a woman and a farm and a future.
 
-“Do you ever stop thinking?” she asked one afternoon, watching him sketch plans for a pulley system on parchment.
+“No,” Esdel said. His voice was very steady. “There’s nothing I can offer her.”
 
-He looked up, brow slightly furrowed. “I don’t know how to stop.”
+It was true, he told himself. It was the truest thing he knew. It only sounded like a lie because something in his chest had gone silent, the way a forest goes silent before a storm.
 
-She laughed softly, tucking a strand of hair behind her ear. “Then it’s a good thing I’m here to remind you to breathe.”
+Relief broke over Eldric’s face, and a heartbeat after, something like guilt, as if he were ashamed to be so glad. “You’re a good friend,” he said roughly. “The best.”
 
-And she did. Constantly.
-
-When she visited the workshop, Reyn would give them both a knowing grin before conveniently finding excuses to leave — “I, uh, just remembered I left the measuring rod by the bridge.” He’d vanish, leaving them alone with the soft rustle of paper and the lazy hum of the river outside.
-
-Sometimes they would just sit in silence, content to listen to the rhythm of tools, the distant voices of villagers, and the song of wind moving through bamboo.
+Esdel smiled. It felt like holding a knife very carefully by the blade.
 
 ---
 
-But it was during the *evenings* that Esdel felt most human.
+Lyora had come up the hedgerow path with a jar of comfrey salve. She heard their voices before she saw them, and slowed. Then she heard her own name.
 
-He and Lyora would meet in the apothecary’s garden at dusk, where rows of herbs glowed faintly in the fading light. The air smelled of rosemary and wet soil; fireflies drifted lazily between the flowers.
+She stopped behind the hawthorn. The wind tore the words to pieces. She heard Eldric — *something between you and Lyora* — and after a long silence Esdel’s voice, low, very steady.
 
-They’d sit on the old stone bench beside the pond, talking about everything and nothing — her dreams of traveling beyond the forest, her fascination with how the stars always returned to the same places each night.
+*“No.”*
 
-Some evenings she tested him.
+The wind gusted.
 
-She would pinch a leaf from the garden without letting him see which bed it came from and hold it under his nose in the half-dark.
+*“…There’s nothing…”*
 
-“Lemon balm,” he said.
+She did not need the rest.
 
-Another.
+She turned around and walked back down the hedgerow path the way she had come, carefully, the jar held against her chest. She did not run. She kept her face perfectly still, the way one carries a full cup so that nothing spills. She left the salve on Eldric’s mother’s step and was gone before the door opened.
 
-“Yarrow. For bleeding. And fevers, if you’re out of willow.”
+At home she took down the mortar and a jar of dried hawthorn berries and began to grind. She ground them to powder, and kept grinding, faster, harder, until the pestle rang and her wrist ached and a lock of hair fell into her eyes. *There’s nothing.* Well. Of course there wasn’t. She had built it all out of cups of tea and glances across the worktable and one night of lamplight, and he had never said a word.
 
-Another — a long, grey-green, woolly leaf.
+A hand closed over hers. Arwen held her still on the pestle until the ringing stopped, and then took it from her fingers and folded her hands around a cup of warm tea. Neither of them said anything. After a while Arwen went back to her ledgers, and Lyora sat with the tea going cold between her hands, and the kitchen grew dark around her, and she did not light the lamp.
 
-“Mullein. For the chest. Strain it twice, or the little hairs catch in the throat.”
+And in the dark, without a sound, her face came apart. Tears ran off her chin into the cold tea. She did not wipe them. She sat very straight and let them fall, as though there were something in her that had to be emptied one drop at a time, because the whole of it at once would have been too much to carry.
 
-Lyora lowered her hand. “Who told you that?”
+Esdel came in late. He stopped in the doorway of the kitchen.
 
-“You did. Three weeks ago. You were annoyed with the shelf at the time, so you may not remember.”
+She had wiped her face by then, roughly, with her sleeve. She had lit the lamp. Her eyes were red.
 
-She narrowed her eyes and went hunting in the dark along the garden’s edge, and came back with something hidden in her fist. She opened it slowly, like a trick.
+“Your supper’s by the stairs,” she said.
 
-A jagged green leaf. He turned it to the last of the light. Frowned. Crushed a corner and smelled it.
+“Lyora—”
 
-“Bitter,” he said. “Deeply toothed. Milky at the break. It could be chicory, but the leaf is wrong for chicory. Some kind of wild lettuce, maybe — the kind you’d use to calm a cough, or to sleep —”
+“It’s getting cold.”
 
-“Esdel.”
-
-“— though the teeth point backward, which is odd, so I’d want to see the flower before —”
-
-“It’s a dandelion.”
-
-He stopped.
-
-“A *dandelion*,” she said. “Children make crowns out of them.”
-
-He looked at the leaf with deep betrayal. “It was a very convincing dandelion.”
-
-She laughed so suddenly she had to cover her mouth, and the sound went out over the pond and startled a frog into the water.
-
-“Why is it bitter, though?” he asked, when she could breathe again.
-
-“Because it is.”
-
-“That isn’t an answer.”
-
-“It’s Grandmother’s answer.”
-
-Later, by candlelight in the attic, he wrote it down anyway. *Dandelion. Leaves bitter. Because it is.* He looked at the line for a while, and found himself smiling at the page.
-
-Sometimes, her grandmother would glance at them from the clinic window, smiling quietly before drawing the curtain closed.
-
-As the sky turned violet and the first stars began to bloom, Lyora would tilt her head back, eyes reflecting the fading light.  
-“Do you ever think about what came before you came here?” she asked once.
-
-Esdel hesitated. “Sometimes.”
-
-“And?”
-
-He looked down at his hands, at the faint scars that still lined his skin. “It feels like trying to remember a dream after waking. The pieces are there… but the meaning isn’t.”
-
-Lyora smiled gently, her voice barely above a whisper. “Then maybe it’s better this way. Maybe you were meant to start over.”
-
-He wanted to believe that. He wanted to believe this quiet life was his — not borrowed, not fragile, not a reprieve from something darker.
-
-But some part of him — the part that still remembered the burning desert and the taste of blood — whispered that it couldn’t last. That peace, for him, was only ever *temporary.*
+He took it up the stairs. It was the first time in his life he had wished with his whole heart to be someone who could be forgiven, and the first time he understood that he would have to do without.
 
 ---
 
-That night, walking down to the river before bed beneath the sound of crickets and distant laughter, Esdel paused by the water.
+The storm came up out of the west in the middle of the afternoon, the way summer storms do — no warning but a stillness, then a darkening, then the whole sky tearing open at once. Esdel was at the bridge when it broke. By the time he had lashed down the planks and run back through the streaming lanes, the gutters were rivers.
 
-The water reflected the moon perfectly — calm, silver, undisturbed. Yet when he stepped closer, something rippled beneath the surface. A tremor, almost like a breath.
+Arwen was standing at the window. She did not turn around. That was how he knew.
 
-He frowned, but when he blinked, it was gone. Only the soft sound of flowing water remained.
+“Where is she?”
 
-He shook his head, exhaling slowly. “Just tired,” he murmured.
+“The ridge. She went up for feverfew for Eldric’s father — the fever came back in the night. She said she’d be home before the clouds.” A pause. “The clouds came an hour ago.”
 
-But as the night deepened, and the scent of rain crept back into the wind, that quiet dread returned — faint but unmistakable.
+He had written the receipt down himself that morning: *feverfew, fresh if it can be had.* He had underlined *fresh.* He had meant to go up for it himself.
 
-The kind that comes when the world is *too* still.
+“I’ll find her.”
 
-The kind that knows warm days never last forever.
+---
+
+The ridge path in the storm was a streambed. Behind him in the village a bell began to ring and men gathered with lanterns. Someone shouted her name — Eldric, his voice carrying even through the rain. Esdel did not wait.
+
+He could not have said how he chose his way. The path split, and split again, and at every fork his feet simply went. It was not memory. It was something beneath memory, the same thing that had once walked him out of the desert when every direction looked the same. *Here,* it said. *She came this way.*
+
+A basket overturned, spilling white-faced feverfew into the mud. And beyond it, against the roots of a great beech, with her knees drawn up and her hair plastered dark to her face, shivering so hard he could see it from twenty paces—
+
+“Lyora.”
+
+She looked up. Rain came down between them in ropes.
+
+“I *twisted* it,” she said, in a small, furious, shaking voice. “On a *root.* Like a *child.*”
+
+He was beside her before she finished. Her right ankle was already swelling against the strap of her sandal. Not broken. “I *know* it’s not broken, I’m an *apothecary*—” “I know you are.”
+
+Her lips had gone blue. He put his coat around her, soaked and nearly useless, and she let him, which frightened him more than anything. Neither of them spoke of the week behind them. There was only the rain. And in the rain, he could not tell what was on her face, and she could not tell what was on his, and that was a mercy for them both.
+
+He turned his back and knelt. She hesitated. Then her arms came around his neck, and her weight settled against his back, light and cold and trembling, and he stood.
+
+He carried her down the mountain. Her cheek rested against his shoulder behind his ear. Every breath she took, he felt. After a while the shivering eased. Her hand, which had been clutching the front of his shirt, flattened slowly until her palm lay open against his chest.
+
+Over his heart.
+
+He knew what she would feel there: the heartbeat that never faltered, too even, too precise, the one he thought of as borrowed. He waited for her to flinch.
+
+She didn’t. After a while he heard her breathe out, slow and long and almost peaceful, as though what she felt beneath her hand were the steadiest thing left in a world that had come loose.
+
+And then he felt something wet seep through the cloth at his shoulder, warm in the cold, and another, and he knew, without turning, without a sound from her, that she was crying again against his back, and that she was doing it so he would not know.
+
+He walked more slowly. He did not say a word. He wished the mountain were longer.
+
+---
+
+Halfway down, a lantern came swinging up the path. Eldric, drenched, three men behind him. His whole body sagged with relief. “*Lyora* — thank the gods — are you hurt?” “My ankle. Only my ankle.”
+
+He held the lantern up. Its light fell over the three of them, gold and wet and trembling. “Here,” Eldric said kindly, reaching out. “Let me take her. You’ve carried her all this way.”
+
+Lyora’s fingers tightened on Esdel’s collar.
+
+It was a very small movement. A hand closing on a fold of wet cloth, the knuckles whitening for a moment, then easing. Esdel did not see it. It was behind his head.
+
+Eldric saw it.
+
+He saw her hand, and her face — eyes half-closed, cheek pressed to Esdel’s shoulder — and on it an expression he had never, in all the years of their childhood, seen her turn toward him. His outstretched hands stopped in the air. Not anger. Eldric did not have anger in him. It was the look of a man opening a letter he had waited for all his life, and finding it addressed to someone else.
+
+Then he smiled. It was a real smile. That was the worst of it, and the best.
+
+“Right,” he said softly. “You’ve got her. Stay close behind me. The stones are bad from here down. I’ll light the way.”
+
+And he did. All the way down the mountain, through the roaring rain, Eldric walked a few steps ahead with the lantern held high, turning back at every bad stone — *careful here, step left, there’s a hole* — lighting the path for the man she had chosen. He did not look at Lyora again.
+
+At the apothecary door he stood aside. “Get her warm. The feverfew can wait. Father will live. He’s too stubborn not to.” Then he went back out into the rain.
+
+---
+
+The fever came that night, as Arwen had known it would. Lyora burned and shivered in her bed downstairs while the storm wore itself out against the shutters. Arwen bound the ankle and brewed willow bark and sat with her until her old hands began to shake with tiredness, and Esdel said, “Rest. I’ll stay.”
+
+Arwen looked at him a long moment, and nodded, and went.
+
+He sat by the bed in the dark. He changed the cloth when it grew warm. He held the cup to her lips, and she drank without waking. Somewhere past the middle of the night she turned her head on the pillow, and tears slid sideways from her closed eyes into her hair, one after another, and she murmured something.
+
+He leaned close.
+
+“*…Esdel…*”
+
+Only that. His name, soft and slurred with fever, the way a person says a word they have said many times alone in the dark.
+
+He sat back very slowly. He did not move for a long time. Then he took the cloth and, very gently, because he had nothing else he was allowed to do, dried her temples, and the tracks the tears had left.
+
+When the window turned grey, her fever broke. He held his hand an inch above her forehead, not touching, and felt the heat had gone. He set the cup where she would see it and went out to the stairs.
+
+In the half-light Arwen sat in her chair by the cold hearth, wrapped in her shawl. She had not been asleep.
+
+She watched him climb. She said nothing at all.
