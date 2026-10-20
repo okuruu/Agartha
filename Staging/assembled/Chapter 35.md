@@ -1,0 +1,99 @@
+# **Chapter 35**
+
+There was an hour in the Lián house that belonged to no one but the Count.
+
+Esdel learned it on the third day. In the late afternoon, when the light went long and amber across the gardens, Lady Wei Anlan would be brought to the small pavilion beside the pond, and the Count would come. He sat beside her and talked softly about the weather, the garden, some small thing at court. And while he talked, he took a small bottle of dark glass from inside his coat and let fall into her tea, one by one, a few drops of something the color of amber.
+
+Esdel watched from the gallery with a basket of cuttings, as though he were only passing through. He watched her face change as she drank, slowly, the way a room changes when a curtain is drawn. The small crease between her brows smoothed out. Her eyes turned toward the Count and filled with a warm, sleepy gratitude, like a child who has been told a story. And every day, when she had finished, she took his hand in both of hers and held it against her cheek.
+
+“He never lets anyone else pour it,” Changli said, in Esdel’s narrow room, with the door shut. Then she took a small dark bottle from her sleeve and set it on the sill. “Trays are very crowded in this house. You have perhaps four days before anyone looks.”
+
+He built a laboratory from a kitchen brazier, a jar of lye soap, and a jug of vinegar. Pei Lun, passing, asked if he was making soup in his *bedroom*, and that evening came back with two mice in a covered basket. “Is it for the Lady? Right. Didn’t ask. Didn’t see.”
+
+It felt like remembering, the work. *Divide the sample. Never use it all. Keep a portion untouched.* He did not know where the rules came from. Near dawn, with the notes written in his small strange hand, he opened the basket and the mice looked back at him, with no idea at all of what was coming. He was sorry. He sat and let himself be sorry, because it seemed to him that someone ought to be. His hands, meanwhile, had found a bit of thread and were knotting it: three knots, small and tight; undoing them; tying them again.
+
+---
+
+It took three days.
+
+The dosed mouse slowed. It did not stagger. It simply stopped running, and its limbs hung loose and warm in his palm. *A paralytic.* The sour-green edge under the lye, the numbness on his tongue. He knew it. *Greyveil*, Halden had called it. *A kiss of it will quiet a man. A mouthful will quiet him forever.* And he had seen it once before that, in a shaded hollow above Edenridge, with a basket on his arm and a hand on his sleeve. *We don’t use that,* Lyora had said. *Not ever.* He had written in his notebook that night, beneath a small drawing of the leaf: *Ask Arwen why.*
+
+He never had.
+
+That was murder, done gently. It was not all of it. On the second day the dosed mouse followed his hand. So on the third he fed it its drop and gave the basket to Pei, and went out, and left the boy to sit with it through the long hours. Pei named it, and told it about his sisters, and let it sleep in his palm. At dusk, when both men held out their hands to the basket, the mouse went not to Esdel, who had fed it every drop, but to Pei.
+
+“That’s not right,” Pei said. “Is it?”
+
+“No,” said Esdel.
+
+He found, in the last night, a thin, clear gold oil that reacted to nothing, that caught the candle in a slow shifting glimmer as though something moved in it that was not the flame. Whatever it was, it had not grown in a valley. And he understood what the mice had told him. *The paralytic softens her. And the oil binds her to whoever is there while it works.* Not to the hand that poured it. To the face in front of her.
+
+He thought of Lady Anlan holding the Count’s hand against her cheek. He thought of the General beneath the peach tree, weeping without a sound.
+
+---
+
+She came to his room herself, with her arms folded. “Tell me.”
+
+He told her about the root. He told her it was poison, given slowly, and that given long enough it would kill.
+
+He did not tell her about the mouse.
+
+He had rehearsed the words. *There is something else. It binds her to him.* But she stood in the doorway holding herself together by the elbows, and he thought: if I tell her that her mother’s love was brewed in a bottle, what will she have left? And beneath that, quieter, a voice in a moonlit garden a world away. *Then don’t remember what hurts. Just remember what’s here.*
+
+“He is killing her,” she said.
+
+“Slowly. Yes.”
+
+At the door she paused, without turning. “Is that all of it?”
+
+His heart stopped, and began again.
+
+“That’s all I can prove,” he said.
+
+It was true. He told himself it was true. Changli, silent at the window, gave him a long, unreadable look: she had heard the half-second where the truth turned aside. He took the last page — the mice, the gold oil, the word *binds* — and folded it in half, and in half again, and put it inside his coat with the letters he did not send.
+
+---
+
+She did it in the garden, in daylight, in front of everyone.
+
+It was the Count’s spring reception beneath the peach tree: forty guests of rank, plum wine, a physician of the royal college in his black cap. When the maid came with the white tea things in the amber hour, Xueyao crossed the paved circle, and her steps rang on the stones, and the guests turned to watch her the way people watch a storm coming across a field.
+
+“Put that down,” she said. “It is greyveil root. You are poisoning my mother, Count Reng.”
+
+The Count looked at her with slow, wounded disbelief, and tears stood in his eyes, real, bright in the amber light. “*Xueyao.* When she woke screaming for your father, I held her until she slept. I will not bear *this*. Not in front of her.”
+
+He knelt at Lady Anlan’s side. She was staring at her daughter, not angry; that would have been easier. A child woken in a strange room. Her hands clutched the dove-grey silk of his coat as though he were the only solid thing in the world.
+
+“Xueyao,” she said, small and high and trembling. “Xueyao, how could you?”
+
+Over his wife’s shoulder, for one instant, the Count’s eyes met Xueyao’s. They were perfectly dry.
+
+By morning the capital had it, from people who had not been there and told it with relish. *The poor man wept. Three years at the front, with that creature. It does things to the mind.* On the bridge a clerk said it lightly, as if it were an old joke —
+
+“*The general has lost her mind.*”
+
+---
+
+The hearing was granted on the eleventh day, in the Hall of Remedies: a cold room of pale stone, seven black caps on a dais, and preserved things floating in yellow spirit. The Count did not come. Master Vale sat in his stead, small and grey, looking at the floor.
+
+Esdel told it well. He would think so afterward, lying awake. He did not speak of the gold oil; he had no proof these men would accept. Grand Physician Morrell held up his page of numbers. “Your hand is unusual. Where did you study?”
+
+“I didn’t. I learned in a village apothecary, and in the field tents.”
+
+“And before?”
+
+“I don’t remember. I woke in the desert a year ago. I knew my name. Nothing else.”
+
+He felt the floor of the room shift like rotten boards.
+
+“You have brought before this college,” said Morrell, “an accusation against a peer of the realm, on the word of a nameless field apothecary with no training, no family, and no past, who reasons from mice. And your mother has herself begged you to stop. A general may command soldiers. She may not command truth. This hearing is closed.”
+
+At the door, the Crown Prince began to speak, and the King stood behind him in grey and only looked at his son. Esdel watched the sentence die in Ardbert. He bowed to the dais, and did not look at Xueyao again.
+
+At the foot of the white steps she stopped, looking out over ten thousand roofs of green and blue tile.
+
+“Not the college. Not the judges. Not one of the men who ate at my father’s table every week for twenty years. No one stood beside me.”
+
+Esdel, one pace behind and to the left, said nothing. There was nothing to say. After a moment she turned her head, very slightly, and looked at him standing there. Something moved in her face, and was put away.
+
+Then she got into the carriage.

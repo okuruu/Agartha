@@ -1,0 +1,129 @@
+# **Chapter 15**
+
+The ankle healed slowly, the way ankles do, and Lyora hated every minute of it.
+
+Arwen forbade her the garden, the market, and the ridge. She was allowed a chair by the window, a stool for her foot, and as many jars to label as she could bear. On the third day Esdel came in from the workshop and found her putting the tinctures in order of the alphabet, and she looked up at him with such murderous boredom that he almost laughed.
+
+They had not spoken of the ridge, or the fields, or the hedgerow. They said *good morning* and *thank you* and *mind your foot,* and between those words the silence lay heavy and gentle, like rain held in a leaf that might at any moment tip.
+
+He no longer went out after supper. He did not seem to decide this. He simply stopped leaving. He sat at the worktable copying receipts by the lamp, and across the room Lyora pretended to read, and now and then, without looking up, corrected his spelling of *valerian.*
+
+On the fourth day Eldric came to the door in a clean shirt with a basket of the first good peaches of the summer, gold and blushing. “Father’s walking with a cane now. Stomping about like a lord. Is the invalid decent?”
+
+“She’s labeling,” said Esdel.
+
+“Gods help us.”
+
+“I can *hear* you,” called Lyora.
+
+Esdel stayed in the shop and did not listen. Only at the very end, as Eldric’s step came back toward the door, did her voice carry clear.
+
+“Thank you for the rack, Eldric. Truly.” A pause. “And tell the one who tied the bindings — they’re perfect.”
+
+Silence. Then Eldric laughed, softly, rueful, almost fond. The sound of a man hearing the answer to a question he had not quite asked.
+
+“I’ll tell him.”
+
+Esdel walked him to the gate. He had a packet ready: feverfew dried on the new rack, a twist of willow bark, the dose written in his small strange hand — *a pinch of each, steeped, morning and night, not with wine,* underlined twice, because Eldric’s father had opinions about wine.
+
+At the gate Eldric looked at the road, not at him. “You were wrong, you know. At the fields. *There’s nothing.* I’ve never once heard you say a thing you didn’t believe, Esdel, and you stood there and believed *that.* You went all still, like a heron.” He shifted the empty basket. “I think I knew before I asked. I wanted to be sure. I asked Ma to wait with the go-between. Not this harvest.” A crooked smile. “There’s time.”
+
+“Eldric—”
+
+“Don’t say sorry. I’d have to punch you, and then Lyora would have to bandage you, and I think we’ve all had enough of that this summer.” He looked at him finally, honest to the bone. “I’m not saying I’ve stopped. I don’t think it’s the sort of thing you stop. I’m only saying I won’t stand in the road. Look after her. And for the gods’ sake, eat your supper. She told me about that, too.”
+
+He went off down the shimmering lane whistling something tuneless, and did not look back.
+
+---
+
+That night it rained again, a soft steady summer rain that went on for hours without raising its voice.
+
+Esdel lay awake. He knew, without knowing how, that below him she was awake too. After a while he heard her door, and the small halting step of someone walking on one good foot and one careful one. Then the third stair, the one that always creaked. Then nothing.
+
+He got up.
+
+She was sitting on the second step with her bandaged ankle stretched along the floor, her back against the wall, a shawl around her shoulders. A single candle stood on the boards beside her, its flame leaning in the draft. She looked up and did not seem surprised.
+
+“You’ll wake Grandmother.”
+
+“You’re the one sitting on the loud step.”
+
+“I’m on the second step. The loud one is the third.”
+
+“You *stepped* on the third.”
+
+“I had to get *past* it.”
+
+He came down, skipping the third stair, and sat a few steps above her. Not close. Close enough that if she leaned back, her shoulder might have touched his shin. She didn’t.
+
+They listened to the rain. Then she spoke, not looking at him, the way people speak in the dark, as though the dark were a kind of permission.
+
+“I heard you. At the fields. With Eldric.”
+
+He went very still.
+
+“I was bringing salve for his father. I heard you say *no.* And *there’s nothing.* And then the wind took the rest.” Her fingers turned the edge of her shawl, over and over. “I’m not asking what you meant. I only wanted you to know I heard, because I’ve carried it for a week like a stone in my shoe, and I’m tired.” A small unhappy laugh. “I came home and ground a whole jar of hawthorn into dust. And then I burned the tea again. The next morning. I threw it out before you came down.”
+
+He hadn’t known.
+
+“Eldric,” she said, carefully, like something fragile being set down. “When I was small I would have given anything for him to look at me the way he does now. And now he does. He’s kind and good and he *asked someone* to build me a rack, and apologized for holding my hand, and he would never leave this valley as long as he lived.” Her voice thinned. “And all I feel is sorry. For him. And for the girl I was. She waited so long, and when it finally came, I let her down.”
+
+Esdel said nothing. He did not think she wanted him to.
+
+“The woman with the blue hands,” she said, and this time the laugh was embarrassed, almost real. “I hated her. For a whole afternoon, with my whole heart. She only asked you about a *wheel.* I’ve never been like that. I didn’t like who I was that day. I don’t like that you saw it.”
+
+“I didn’t,” he said. “Not until that night.”
+
+She looked up, startled, and quickly back at the candle. “Well. Good. Forget it, then.”
+
+He did not say that he would never forget it. He thought she knew.
+
+The candle burned lower. When she spoke again her voice had changed, quieter, further away, as if from the bottom of a well.
+
+“People leave this house, Esdel.”
+
+The words fell into the dark and stayed.
+
+“They stand in that doorway and they say *we’ll be back.* And they mean it. They always mean it.” She stopped. He waited, and no more came. She only sat with her arms around her knees, looking at the door at the far end of the dark shop, and he understood there was a whole story behind that sentence she could not tell tonight.
+
+So he did not ask.
+
+After a while she drew a breath and let it go, and when she spoke again it was lighter. “I knew the knots on the rack. The moment I touched them.” She glanced back, for a moment. “You tie them like you’re afraid the water will get away.”
+
+Something in his chest opened, slowly, like a hand unclenching.
+
+He thought of everything he could say. That the knots were the only way he knew to hold on to anything. That he had tied every one of them thinking of the height of her reach. That he had stood in a field and told a good man there was nothing, because he believed, in some cold and hollow place, that nothing was the most he had to give.
+
+He said none of it. He said, very low:
+
+“It wasn’t nothing.”
+
+That was all.
+
+She didn’t turn around. But he saw her shoulders ease, the way a held breath eases. He saw her close her eyes.
+
+And then she was quiet, the quiet of someone standing at the very lip of something, with one more word waiting behind her teeth. He felt her standing there. He felt the whole shape of the word in the air between the second step and the fifth.
+
+She did not say it. She didn’t need to. He heard it anyway, in the silence where it should have been, in the rain, in the candle leaning toward her in the draft. And he did not say it back, because she heard him too.
+
+Slowly, as though it cost her nothing at all, Lyora leaned back and to the side, and rested her head against his knee.
+
+He did not move. He did not dare. He kept his hands folded in his lap and his breath slow, so that nothing would disturb it.
+
+After a time he felt the cloth over his knee grow warm and damp. She was crying. Silently, completely, with her eyes closed and her breathing held very even, the way she had learned. She did not lift her head, and he did not look down, and neither of them pretended it was rain from the shutters. It was the only moment all summer when she did not hide it, and he held that moment as one holds a bird, with no pressure at all.
+
+He wished that the night would never end. He knew exactly what it would cost him when it did.
+
+They listened to the rain until the candle guttered, and after. They listened until the rain thinned to a drip and the drip to silence, and the first grey came up behind the shutters, and somewhere across the village a rooster began, far too early, to crow.
+
+---
+
+After that night nothing more was said. Nothing needed to be.
+
+But from then on, Lyora left a lamp burning at the foot of the stairs each night, turned low, just enough to see the steps by. She never mentioned it. It was simply there, every night, a small gold eye in the dark.
+
+Some days later the third stair stopped creaking. No one saw Esdel mend it. Lyora stood on it a long moment, rocking her weight on her newly healed foot, listening to the silence where the creak had been. Then she went down to put the kettle on.
+
+That morning there were two cups on the table. His was made the way she took hers — honey, a sprig of mint, not too hot. He drank it without a word. It was perfect.
+
+She had said everything but one thing, and he had heard that one most clearly of all.

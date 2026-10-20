@@ -1,0 +1,107 @@
+# **Chapter 8**
+
+The village thrived. Sunlight poured over the rooftops like honey, and bamboo pipes whispered along the river. His mornings still belonged to the shop — the broom, the mortar’s low grinding song, Arwen asking *why* before he could — and only after that did the rest of the village have him.
+
+Evenings belonged to the garden.
+
+He and Lyora sat on the old stone bench beside the pond while the herbs glowed faintly in the dusk. Some evenings she tested him. She would pinch a leaf without letting him see which bed it came from and hold it under his nose in the half-dark.
+
+“Lemon balm.” Another. “Yarrow. For bleeding. And fevers, if you’re out of willow.” Another, long and woolly. “Mullein. For the chest. Strain it twice, or the little hairs catch in the throat.”
+
+“Who told you that?”
+
+“You did. Three weeks ago. You were annoyed with the shelf at the time.”
+
+She went hunting along the garden’s edge and came back with something hidden in her fist, and opened it like a trick: a jagged green leaf. He turned it to the last of the light, crushed a corner, smelled it.
+
+“Bitter. Deeply toothed. Milky at the break. It could be chicory, but the leaf is wrong. Some kind of wild lettuce, maybe — though the teeth point backward, which is odd, so I’d want to see the flower —”
+
+“It’s a dandelion.”
+
+He stopped.
+
+“Children make crowns out of them.”
+
+He regarded the leaf with deep betrayal. “It was a very convincing dandelion.”
+
+She laughed so suddenly she had to cover her mouth, and a frog startled into the pond.
+
+“Why is it bitter, though?”
+
+“Because it is.”
+
+“That isn’t an answer.”
+
+“It’s Grandmother’s answer.”
+
+Later, by candlelight in the attic, he wrote it down anyway. *Dandelion. Leaves bitter. Because it is.* He looked at the line for a while, and found himself smiling at the page.
+
+“Do you ever think about what came before?” she asked once, tilting her head back to the first stars.
+
+“It feels like trying to remember a dream after waking. The pieces are there. The meaning isn’t.”
+
+“Then maybe you were meant to start over.”
+
+He wanted to believe that. But a part of him, the part that still remembered the burning desert, whispered that peace for him was only ever *temporary.*
+
+---
+
+At the midsummer feast, the sky burned gold behind the trees and lanterns trembled along the banks. Then a pan clattered at the cooking stalls, and someone yelped.
+
+He was moving before he had decided to. The baker’s helper, a lanky boy of fifteen, stood clutching his right hand to his chest, a skillet of oil smoking at his feet. “Butter,” said a woman, reaching for the crock. “Not butter,” Esdel said gently. “It keeps the heat in. My teacher would have my ears.” He pushed the boy’s hand under the water in the barrel and held it there when the boy tried to pull away. “It hurts more in the water. For a moment. Then less. Then much less.” He saw the boy’s eyes slide toward a girl with a ribbon in her hair, her hands pressed to her mouth. “Most people drop the pan,” he said, just loud enough. “You held on. Supper for half the stall, saved. Mostly saved.” The girl laughed, not at him, and the boy’s shoulders came down.
+
+When Lyora arrived with the salve, the worst was over. She let him be the one to smooth it on and wrap it, and she stood close enough that her sleeve touched his while he worked.
+
+Then a small hand tugged at his sleeve. A boy of seven or eight, wind-tousled. “Esdel, how did you make the water flow so well?”
+
+“Ah, easy enough. A bit of math and physics, to calculate the slope.”
+
+The boy blinked. “Physic?”
+
+The word dropped into the air like a stone into still water.
+
+Esdel picked up a stick and drew in the dirt. “See? This slope lets water flow downward because of gravity — the pull of weight toward the earth —” He stopped. The faces around him were polite, attentive, and completely lost.
+
+“Like asking the river nicely,” one farmer offered. There was laughter, gentle and well-meaning, and it missed the point entirely.
+
+He looked at the lines he had drawn. To him they were language. To them, scratches. He brushed them away, and the dust swallowed every mark.
+
+Behind him, the village sang and traded cups. He looked toward the river, and in its reflection saw something that unsettled him: his own eyes, distant and uncertain.
+
+For the first time since he woke in this place, Esdel felt separate. Not lonely. Not rejected. Only different.
+
+---
+
+The change was not sudden. It came like the shifting of wind. A pause in conversation as he walked by. A smile a heartbeat too late. Even Reyn studied him sometimes as if trying to understand something that did not fit.
+
+And yet they still came to the shop. At the counter, with a cough or a cut or a child who would not sleep, the pause went away. “Pain doesn’t care what’s strange,” Arwen said, not looking up from her ledger. “It only cares what helps.”
+
+So he tried to help. He stayed up with a candle stub, copying what he had learned, and when his eyes tired of receipts he drew the slate from beneath his bed and filled it with sums that answered to nothing. It quieted something. For a while.
+
+On the third night he could not sleep at all. He sat at the window, looking at the hand that had once been gone. No seam. No shadow. *What am I?*
+
+A gentle knock.
+
+Lyora stood there, hair loose, a robe over her nightclothes, with a cup of chamomile and wild mint. “You haven’t been resting.”
+
+She came in on bare feet. Her glance passed over the slate, the chalk columns marching down it, and moved on without a question. She sat beside him at the window and they said nothing at all. The moon painted their faces pale. Her hand lay on the sill near his, not quite touching.
+
+“Whatever it is you’re searching for,” she said softly, “I hope you find it, Esdel.”
+
+He turned. She was watching the moon, and her eyes were shimmering like quiet water.
+
+He understood, in the way one understands a thing without the words, that she meant the opposite as well. That a part of her hoped he never would; that every finding is a leaving. He saw the tear gather and hold on her lower lashes and not fall, because she did not blink, because she was too careful. He wanted to lift his hand and catch it. He wanted it so badly that his fingers curled against the sill.
+
+He did not move. He took a slow sip of tea. It was bitter, soothing, real.
+
+“Thank you,” he said.
+
+“Drink it while it’s hot.” Her voice was almost steady. She rose, and went to the door, and stopped there with her back to him.
+
+“Good night, Esdel.”
+
+“Good night.”
+
+He heard her go down the stairs. He heard her stop on the third step, which creaked, and stand there a long moment. He heard a breath drawn in and held, and let out, shaking. Then the step creaked again and she went on.
+
+He sat with the cup warm between his hands until it went cold, and the wind passed through the bamboo pipes, carrying a low, mournful hum across the sleeping village.

@@ -1,0 +1,103 @@
+# **Chapter 32**
+
+The road south from North Ridge ran through country that had forgotten the war.
+
+On the first morning, it did not feel that way. The column rode out beneath a sky the color of old iron, past burned fields and the black ribs of farmhouses, past a ditch where crows lifted from something no one looked at twice. The fifteen soldiers of House Lián rode in two lines, silent, their armor wrapped in dark cloth against the dust. The General rode at their head. Her attendant rode beside her. The apothecary rode at the back, with the pack mule and the medicine chests, where the dust was thickest.
+
+No one spoke to him. He did not expect them to.
+
+By the third day, there were orchards.
+
+They came over a low rise at noon, and the land below simply changed — as though someone had drawn a line across the country and said *here, the war stops.* Plum trees stood in white rows on the slopes, and children wading in a clear stream stopped and stared at the riders with round, unafraid eyes.
+
+Esdel watched the blossoms drift across the road, and something in his chest turned over, slow and painful, like a key in a stiff lock.
+
+It was spring again. Somewhere far to the south and west, beyond the orchards and the forest and the low hills, the river would be running high with snowmelt. And a year ago, almost to the day, a caravan had carried him in out of the sand.
+
+He looked down at his hands on the reins. They were tying something without him. A bit of spare cord, a knot, another, the old pattern his fingers made whenever he stopped watching them. He made them stop.
+
+He did not let himself think any further than that. He thought it anyway: *there is a lamp on the second step. I cannot see it, and I can see it perfectly.*
+
+---
+
+On the third evening they made camp by the stream, and he unpacked the chests and waited, the way he always did. The youngest soldier came first, a boy of nineteen with a gap in his teeth, who announced with great dignity that his boots were trying to kill him. His name was Pei Lun. The last to come was the captain, Han Ruo, grey-bearded and broad as a door, with a wrist swollen from an old break. “Lord Hengzhi’s stables,” he said, when Esdel asked. “Thirty years ago. He paid the physician himself. For a stableboy. You don’t forget that kind of man.” When Esdel was done, he flexed the wrist. “You’ll do,” he said. After that, someone saved Esdel a place at the fire.
+
+Late that night, when the soldiers were snoring, he sat apart beneath a poplar with a writing board across his knees and a stub of charcoal, and wrote by the dying fire — slowly, his head bent close to the page. He wrote a line. Stopped. Looked at it a long time. Then he folded it in half, and in half again, and slid it into his coat, where there was a thin sheaf of others, all folded the same way. None sealed. None addressed.
+
+Something glinted at his throat as he bent: a fine silver chain, and a small charm in the shape of a flower. It had gone warm against his skin, as it always did when he thought of her. He touched it once, the way a man touches a wound that has closed but not stopped aching.
+
+He did not see the General standing at the edge of the firelight. She had come out to check the horse lines, and she stayed only long enough to understand: letters that would never be sent, a charm that was not his. Someone was waiting for this man.
+
+She went back to her tent without a sound.
+
+---
+
+On the fourth night the rain came, and they sheltered in a ruined waystation at the crossing of two roads. It was four walls and half a roof and a hearth big enough to roast an ox. Han Ruo built a fire so large that Pei Lun declared it visible from the capital.
+
+Esdel took the far corner, near the broken window, and was sorting the medicine chest by firelight when a shadow fell across his work.
+
+The General stood over him with two cups in her hands.
+
+“Tea,” she said. “Changli made it. She says I’m to stop frightening the apothecary.”
+
+“You don’t frighten me, General.”
+
+“No,” she agreed, and sat down on the broken bench beneath the window as though it were a throne. “I noticed that. It’s very rude of you.”
+
+For a while they only drank, and listened to the rain on what remained of the roof. Then she said, without looking at him, “I asked you a question once. On the night of the Titan. Who are you? I’m taking you into my mother’s house, Apothecary. I would like to know what I am bringing through the door.”
+
+He looked at the fire. It was a fair question. It was, he thought, the only question anyone had ever really asked him.
+
+So he told her. He did not know why, except that she had asked three times, and had never once pretended it did not matter.
+
+“I don’t know,” he said. “That isn’t an evasion. It’s the truth.” He told her about the desert, the blank before it, the name that came out of his mouth to a stranger. He told her about the creature that took his arm, and the village where he woke with it whole. “I cut myself, once, to see. It healed overnight. At the front, seven arrows. They healed in an hour.” He had not said any of it aloud before. Not to Halden, not to Benn, not to—
+
+He stopped the thought there.
+
+“And the eyes,” Xueyao said.
+
+“And the eyes. When I think I’m going to die, the world stops. I see every breath. Every intention, before it moves. They go red, and the pupils pinch to a slit, like a fox’s. And afterward it feels as though someone has pushed needles through my skull, and I can’t find my words for a day. Once, for three.”
+
+She was quiet for a long time. When she spoke, her face had changed, something careful and old beneath the cool mask, like a soldier stepping around ground she knew was mined.
+
+“*Karunākṣa*,” she said. “Do you know what the word means?”
+
+He shook his head.
+
+“The dragon tongue. *Karuṇā* is mercy. *Akṣa* is the eye. The eye of mercy.” A faint, humorless curve of her lips. “A pretty name for a terrible thing. The stories say the House of Kālākṣa could look at a living thing and see how long its heart had left. That they were healers, once.” She turned her cup. “Stories grow in the telling. Especially about the dead. What my dragon showed me was simpler. Men and women who saw the blade before the hand that held it knew it would move. Not a healer’s eye, Apothecary. A soldier’s. Whatever mercy there was in it, they had to bring themselves.”
+
+“What happened to them?”
+
+“The dragons remember them. When I was fourteen, the first time mine spoke to me, it showed me a field of them, with red eyes. It hated them. I have never felt anything hate the way it hated them.” Her fingers tightened on the cup. “My dragon can feel what I feel, across any distance. If it ever sees you the way I have seen you, with those eyes open, I do not know what it will do.”
+
+“Then I’ll try to keep them closed,” he said.
+
+Something moved in her face. It might, in another woman, have been the beginning of a smile.
+
+She rose, and picked up both cups. At the edge of his cloth she paused.
+
+“The letters,” she said, not looking back. “The ones you don’t send.”
+
+He went very still.
+
+“You should send them,” said the General of the Northern Front, “before you’re somewhere they can’t reach.”
+
+She walked back across the ruined inn, and her soldiers made room for her without looking up. He sat in the corner for a long time afterward, with the rain coming through the broken window, and the thin sheaf of paper warm against his chest, over the silver flower.
+
+*Somewhere they can’t reach.*
+
+He was already there. That was what he could not tell her. The letters did not go anywhere because there was nowhere left for them to go.
+
+---
+
+On the fifth day, in the late afternoon, the road crested a long hill, and the capital lay below them.
+
+It filled the whole valley. White walls, and within them more walls; roofs of blue and green tile climbing in terraces toward the palace on its hill, where gold caught the slanting light and threw it back at the sky. The river ran through the heart of it, broad and brown, toward a harbor where masts stood like a winter forest.
+
+Something in him looked at those walls and did not feel wonder. It felt something colder. Recognition, perhaps. Or dread.
+
+At the head of the column the General had stopped her horse. She sat very straight, looking down at one terrace in particular, in the eastern quarter near the river, where a long wall enclosed pale roofs and something that might, at this distance, have been a peach tree in flower.
+
+She did not move for a long time.
+
+Then she lifted her hand, and they went down.

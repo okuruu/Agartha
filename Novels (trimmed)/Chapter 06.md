@@ -1,0 +1,121 @@
+# **Chapter 6**
+
+The days took on an order, and the order began at the shop.
+
+He rose before the light. By the time the roosters had finished arguing, he was downstairs with the shutters open and the kettle on, and the room smelled of whatever Arwen had set out the night before: crushed fennel, or the dusty sweetness of chamomile, or the bitter green of something he did not know yet and would ask about.
+
+Grind. Sort. Dry. Sweep.
+
+One morning Lyora pushed a small book across the worktable, cheap, bound with string, the paper rough enough to catch a fingernail.
+
+“You ask Grandmother so many things she’s started answering in her sleep. Write them down. Give her a rest.”
+
+So he wrote. Receipts, mostly. His hand was small and close and strange, the letters leaning in ways that were not quite like Arwen’s or Lyora’s or anyone’s. Lyora, reading upside down, said it looked as if a spider had walked through the ink with great care.
+
+“The spider is doing its best,” he said, and kept writing.
+
+Only when the floor was swept and the racks turned did he go out into the village, and the village began to keep him. He fixed stalls, mended tools, hauled water. They called him *the man who never complains.* He found the title strangely fitting, though it carried a loneliness he couldn’t name. He made them laugh without seeming to try — he told a runaway goat, very gravely, that it was making poor choices, and its owner laughed so hard she had to sit down on the fence.
+
+Each evening he came back to the apothecary. Arwen gave him tea without a word. Lyora set plates on the low table, and they ate, sometimes in conversation, sometimes not. She spoke of small things — the golden fish the children tried to catch with bread, the lights she kept dreaming of in the forest, humming like voices. He listened. When she laughed, something stirred in him, faint and unfamiliar, and it frightened him more than any wound had.
+
+---
+
+At the end of the month came the Devotional Gathering, the one night the villagers kept sacred.
+
+At dusk the whole village stood along the riverbank with slender wooden lanterns shaped like flowers. Esdel hung back at the edge of the crowd. Lyora found him and held out a lantern.
+
+“You’re supposed to light one. For gratitude. Or hope. Or something that still hurts.”
+
+“I don’t know what to wish for.”
+
+“You don’t need to wish.” She knelt to help him with the flint. “Just let it go.”
+
+His flame caught weakly. He shielded it, and nearly dropped the whole lantern in the river, and she laughed, and steadied his hands with hers.
+
+“You’re trying too hard.”
+
+They set them on the water together. His went out into the dark among the dozens of others, and the river looked for a moment like the sky.
+
+Hers she held a little longer.
+
+She did not speak. The small flame lit the underside of her face, and he saw her mouth press tight, and her lashes lower, and one bright thread slide down her cheek and drop from her jaw into the water beside the lantern. Then she let it go, and it turned slowly out into the current, and she stood and brushed her knees and said, “Smoke. It stings.”
+
+The lanterns were oil, and the wind was blowing away from her.
+
+“Mm,” said Esdel.
+
+He watched her lantern until it was only a point of gold, and then not even that. He did not know whom she had lit it for. He knew only that he would have given a great deal, standing there, to be the kind of man who had the right to ask.
+
+---
+
+The rain came without warning a few days after, hard and silver, while they were coming back from gathering along the field edges. They ran laughing for the overhang of an old storehouse and stood close, breathing hard, her hair clinging to her cheeks.
+
+Everything in their baskets was soaked. Lyora went through it quickly, the way another woman might count her children after a fright.
+
+“Nettles are fine. Nettles don’t care about anything. These—” a sodden fistful of chamomile — “are lost. Flowers you gather dry, after the dew’s burned off. Leaves you can take damp if you get them hanging fast. Roots you want after rain, the ground lets go of them easier.”
+
+“Flowers dry. Leaves quick. Roots after rain.”
+
+“You’re going to write that down.”
+
+“In the spider hand.”
+
+“In the spider hand,” she agreed, and something in her face eased.
+
+They listened to the storm. Then, softer: “When I was little, I thought the ocean must sound like this. Like rain that never ends. My parents told me stories about it. They said it stretched farther than the eye could see.”
+
+Esdel listened to the way she said *my parents,* and to what she did not say after.
+
+“You’ve never seen it?”
+
+“No. Edenridge is all I’ve ever known. But I’d like to, one day. To stand where the land ends and let the world breathe around me.”
+
+“Then it’ll still be there when you go,” he said gently. “The ocean isn’t going anywhere. I think it would wait for you.”
+
+She turned her head and looked at him, and her eyes were very bright, and she was not laughing now. Rain ran off the eaves between them in a silver curtain. He saw her swallow.
+
+“You should smile like that more often,” she said, low. “It suits you.”
+
+He had not known he was smiling. Neither of them looked away, and neither of them moved, and the rain went on and on, and it was the loveliest and most frightening minute he had lived since he woke.
+
+That night he dreamed of the desert and a pale figure in white, walking against the storm, her face a blur. When he reached for her, the sand bled red beneath his feet. He woke with his hand pressed to his chest.
+
+“It was just a dream,” he whispered.
+
+Outside, the last drops slid from the rooftops like tears.
+
+---
+
+By the next moon he had become part of Edenridge’s quiet pulse.
+
+The shop came first. It always did. Before anyone was awake he had the lamp lit over the worktable, and the first sound of the day was the pestle. Only then did he take up the hammer and mend the western fences, and the villagers, passing, said *good hands.* He had forgotten what it felt like to be praised — not as a stranger or a survivor, but as a man.
+
+Three days after, the same farmer came back up the field with his palm split open on a rusted nail. Esdel sat him in the shade and knelt before him, and his voice dropped, low and even, the way Arwen’s did with frightened people.
+
+“Look at me, not at that. It’s long, but it isn’t deep. You’ll keep the hand. This will sting; I’ll tell you before it does.”
+
+He told him. It stung. The farmer swore at the sky and Esdel agreed with every word.
+
+“Fence bit me,” the farmer said, trying to laugh.
+
+“I’ll have a word with it. It’s been getting ideas.”
+
+Evenings, Lyora tended the herbs by the garden wall, her hands dusted with soil. “You’ve been quiet.” “I’ve been busy.” “You’re always busy.” He looked at his scarred, steady hands. “I think I just like feeling real.”
+
+“You are real, Esdel. Everyone here knows it.” She did not look up from the bed she was weeding. “You belong here.”
+
+He wanted to believe her. Truly.
+
+When she bent lower over the herbs, he saw that her hands had stopped moving, and that a drop had fallen onto the dark soil and vanished. He understood, dimly, that the word *belong* had touched something in her too — something that had already learned what it costs to love a person who is only passing through.
+
+He said nothing. He picked up the second trowel and began on the next row beside her.
+
+They weeded in silence until the first stars came out above Edenridge. And he realized, kneeling there in the dusk beside a woman who was pretending not to cry, that he was no longer drifting.
+
+He belonged.
+
+Or at least he was starting to.
+
+Far beyond the forest, where the river met the dry edge of the desert, the wind shifted. If one listened past the cicadas, there was a faint sound.
+
+A whisper, calling his name.
