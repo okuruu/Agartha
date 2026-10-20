@@ -20,7 +20,7 @@ Xueyao remembered him: a pair of tired brown eyes by the roadside the night the 
 
 ---
 
-Esdel did not know any of this. He was at the back of the fever tent, with a boy of nineteen asleep at last under his hands, and the lamp burning down.
+Esdel did not know any of this. He was at the back of the fever tent, with a boy of seventeen asleep at last under his hands, and the lamp burning down.
 
 He had counted the nights without meaning to. It was spring again, and he had lost the seasons in between, in mud and snow and the work. The Ninth Division did not ask where he had come from. He did not tell them.
 

@@ -52,7 +52,7 @@ He had fed villages for three months and slept on straw. The people cheered his 
 
 Lián Xueyao. She was at the front now, and he did not know what to do with the thought either.
 
-Khalid watched him a moment. “We are nearing the gates, Your Highness.”
+His old servant Khalid watched him a moment. “We are nearing the gates, Your Highness.”
 
 “Yes,” said Ardbert. “Let’s return.”
 
@@ -90,7 +90,7 @@ She looked at it. She put the back of her wrist to her face, hard, as if she cou
 
 Arwen was standing in the doorway.
 
-She had been there some time. She wore her shawl over her nightdress and her silver braid hung over one shoulder, and she did not say *child*. She did not say anything. Her soft green eyes went to the drawer, then to the wet bead on the wood of the table, and then they came back to her granddaughter’s face and stayed there, without pity, only with the long patience of a woman who had cried in this same room for a daughter and a son-in-law, and had learned what could be said to it, which was nothing.
+She had been there some time. She wore her shawl over her nightdress and her silver braid hung over one shoulder, and she did not say *child*. She did not say anything. Her soft green eyes went to the drawer, then to the wet bead on the wood of the table, and then they came back to her granddaughter’s face and stayed there, without pity, only with the long patience of a woman who had cried in this same room for the two who never came back from the war, and had learned what could be said to it, which was nothing.
 
 Lyora did not turn away. She was too tired to pretend.
 

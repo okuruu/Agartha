@@ -124,7 +124,7 @@ Lyora looked at the kettle. It was dry. The leaves had cooked to the bottom.
 
 Arwen put a hand over her mouth and was seized by a fit of coughing that did not sound at all like coughing.
 
-“It’s fine,” said Esdel. “I like it strong.”
+“It’s fine,” said Esdel. “It’s very… strong.”
 
 “It isn’t *strong,* it’s—” She snatched the cup, cheeks flaming, and emptied it out the window. “I’ll make more.” She did not look at him while she did it. And when she turned her face toward the window to rinse the cup, he saw, for just a breath, that her eyes were wet with something much worse than embarrassment.
 

@@ -2,7 +2,7 @@
 
 The road south from North Ridge ran through country that had forgotten the war.
 
-On the first morning, it did not feel that way. The column rode out beneath a sky the color of old iron, past burned fields and the black ribs of farmhouses, past a ditch where crows lifted from something no one looked at twice. The fifteen soldiers of House Lián rode in two lines, silent, their armor wrapped in dark cloth against the dust. The General rode at their head. Her attendant rode beside her. The apothecary rode at the back, with the pack mule and the medicine chests, where the dust was thickest.
+On the first morning, it did not feel that way. The column rode out beneath a sky the color of old iron, past burned fields and the black ribs of farmhouses, past a ditch where crows lifted from something no one looked at twice. The fifteen soldiers of House Lián rode in two lines, silent, their armor wrapped in dark cloth against the dust.
 
 No one spoke to him. He did not expect them to.
 
@@ -48,7 +48,7 @@ For a while they only drank, and listened to the rain on what remained of the ro
 
 He looked at the fire. It was a fair question. It was, he thought, the only question anyone had ever really asked him.
 
-So he told her. He did not know why, except that she had asked three times, and had never once pretended it did not matter.
+So he told her. He did not know why, except that she had asked twice, and had never once pretended it did not matter.
 
 “I don’t know,” he said. “That isn’t an evasion. It’s the truth.” He told her about the desert, the blank before it, the name that came out of his mouth to a stranger. He told her about the creature that took his arm, and the village where he woke with it whole. “I cut myself, once, to see. It healed overnight. At the front, seven arrows. They healed in an hour.” He had not said any of it aloud before. Not to Halden, not to Benn, not to—
 

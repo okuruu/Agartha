@@ -52,7 +52,7 @@ The decree reached the Eastern Post on a wet morning, nailed to the post of the 
 
 Halden read it standing in the mud in his shirtsleeves with a mug of coffee going cold in his hand, the way he read a wound: from the top, all the way to the bottom. He got to the last name, and stopped.
 
-“*Formerly of the Third Logistic Company and the medical division of the North Ridge post.*” His voice was flat. “A month he was here. And it’s North Ridge on his traitor’s warrant.” He took a long breath through his nose. “*Idiot.*”
+“*Formerly of the Third Logistic Company and the medical division of the North Ridge post.*” His voice was flat. “Two months he was here. And it’s North Ridge on his traitor’s warrant.” He took a long breath through his nose. “*Idiot.*”
 
 He did not say it the way he said it to Benn forty times a day. He said it like a man saying a word he has been saving for exactly the right occasion, and has found it, and wishes he had not.
 

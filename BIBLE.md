@@ -2,7 +2,7 @@
 
 > **For the writer (and for Claude):** This is the one place to check before writing or revising.
 > Read the **Quick Rules** first. Then use the **Chapter Index** to find where a fact is set up, and open only those chapter files.
-> The canonical text is in `Novels/Chapter NN.md` (98 chapters). `Archive/Novel (original, pre-split).md` is the untouched original, kept for reference only.
+> The canonical text is in `Novels/Chapter NN.md` (**48 chapters**, after the Oct 2026 trim; see §11). `Archive/Novels (98-chapter, pre-trim)/` is the previous 98-chapter canon and `Archive/Novel (original, pre-split).md` the untouched original. **Chapter references like (Ch37) in §2, §3, §6, §9-10 use the OLD 98-chapter numbers; convert with §11.**
 
 ---
 
@@ -10,7 +10,9 @@
 
 | Path | What it is |
 |---|---|
-| `Novels/Chapter 01.md` … `Chapter 98.md` | **The novel. This is canon.** One chapter per file. |
+| `Novels/Chapter 01.md` … `Chapter 48.md` | **The novel. This is canon.** One chapter per file. |
+| `Archive/Novels (98-chapter, pre-trim)/` | The long version before the Oct 2026 trim. Not canon; source for restoring any cut scene. |
+| `Staging/` | Working files from the trim: per-block drafts and `_NOTES.md` (old-to-new mapping, dropped facts). |
 | `Ideas/` | Arc plans and brainstorms that are **still open**. Not canon until written into `Novels/`. |
 | `Ideas/Done/` | Plans that are **finished and already written**, marked `[DONE]`. Historical record only. **Never reuse them**; the chapters are the source of truth. |
 | `BIBLE.md` | This file: style guide, canon facts, chapter index, continuity rules. |
@@ -207,129 +209,69 @@ Write the next chapter or scene of my novel set in the village of **Edenridge**,
 
 ---
 
-## 4. Chapter Index
+## 4. Chapter Index (48 chapters, current numbering)
 
-Each line gives the plot, then **[continuity facts to check]**.
+Each line gives the plot, then what changed in the trim. Old chapter numbers are in [brackets]. **All "(ChNN)" references in §2, §3, §6 and §9–10 are OLD numbering**; use the conversion table in §11.
 
-### Part I: The Desert (Ch1–4)
-- **Ch1**: Wakes in the desert without memory. A cave with a too-still pool; he drinks and feels something wake inside. The cave vanishes. A shifting shadow-beast severs his arm above the elbow. A voice: *"You are not the first to wake… and you will not be the last."*
-- **Ch2**: The stump has sealed, with pulsing thumb-sized dark spots. Ruins hold a mural of a man **standing with** the beast. A woman in white appears in lightning. *"Find me…"*
-- **Ch3**: Vanishing footprints, whispers ("find her"), flashes of fire and a woman crying his name. The woman in white again, her back turned. *"You were never meant to forget."*
-- **Ch4**: A caravan finds him at the desert's edge and carries him to Edenridge's apothecary. At night, light pulses under his skin.
+### Part I: The Desert (Ch1–4) [1–4], unchanged
+Wakes without memory, the cave and pool, the beast severs his arm, the mural, the woman in white, the caravan.
 
-### Part II: Edenridge (Ch5–38)
-- **Ch5**: Wakes after 3 days with his arm whole (marks from elbow to wrist). Meets Arwen and Lyora and names himself Esdel. *"You were never meant to heal."*
-- **Ch6**: Recovery and chores. Thyme-vs-basil banter. Arwen declares him recovered: "The door will remain open." *"Breathe while you can."*
-- **Ch7**: He becomes "the man who never complains." Lyora dreams of humming lights in the forest. The Devotional Gathering: river lanterns.
-- **Ch8**: Rain under the old storehouse. Lyora has never seen the ocean; her parents told her stories of it. "Smile like that. It suits you." A woman-in-white dream. The wind smells of sand.
-- **Ch9**: Mends the western fences. The river shrine. "Morning, friend." "He belonged. Or at least… he was starting to."
-- **Ch10**: Reyn recruits him. Bamboo irrigation with no magic. His reflection wavers, eyes too bright. *"You were never meant to stay."* [early summer; the enchanter left 3 winters ago]
-- **Ch11**: A week later: the Chief's gathering and village gratitude.
-- **Ch12**: Festival of Flow (once a decade), three weeks after Ch11's honoring; the formal honoring was Ch11's, not repeated. "You've changed how *we* live too."
-- **Ch13**: Marks faded to pale traces. Reyn's workshop and water wheel. Reyn: "the way you look at her."
-- **Ch14**: Evenings on the stone bench by the pond. A tremor in the river.
-- **Ch15**: Midsummer feast. A boy asks how the water flows: "Physic?" Esdel realizes he's different.
-- **Ch16**: The village draws back slightly. Lyora brings night tea: "Whatever it is you're searching for… I hope you find it."
-- **Ch17**: Herb-gathering in the forest. Lyora confesses her childhood crush on a farmer.
-- **Ch18**: Esdel meets Eldric. Lyora strained. Esdel sees her weeping in Arwen's arms.
-- **Ch19**: Lyora polite and distant. Esdel's heartbeat feels "borrowed."
-- **Ch20**: He cuts his arm with a stone to test healing. It stays open overnight. Lyora finds it: "You did this to yourself."
-- **Ch21**: The wound is gone by morning. Marin explains the festival. **Festival night 1**: Lyora in pale blue; he stays apart. "I'd wish I could still be who she thinks I am."
-- **Ch22**: **Festival night 2**: lanterns and "physics"; Eldric pulls Lyora away by the hand. Fireworks with Reyn.
-- **Ch23**: Same night. Silver and blue ribbons tangle and part. A child's "strength" ribbon on Esdel's wrist.
-- **Ch24**: Same night, **present-tense dream**: a young man in silver armor veined with blue light, a cliff over the sea, a roar, "**Fight.**", and a push. He wakes screaming and weeps; Arwen and Lyora embrace him. "I thought… I'd lose you, too."
+### Part II: Edenridge (Ch5–21)
+- **Ch5** [5–6]: Wakes with his arm whole (marks elbow to wrist). Arwen, Lyora ("Five. I counted."). **New:** Lyora's three-night vigil; her first cover excuse ("Chamomile dust"); he answers "Mm" and lets her keep it. The jars, "Hm", "The door will remain open."
+- **Ch6** [7–9]: The shop routine, the spider-hand notebook, "the man who never complains." Devotional Gathering: Lyora's lantern "for something that still hurts," a tear, "Smoke." Rain under the storehouse, the ocean. Fence-cut farmer. Weeding beside her while she cries.
+- **Ch7** [10–13]: Reyn, "Apprentice," bamboo channels, the Chief, "thank Arwen," Festival of Flow ("You've changed how *we* live too"), first willow-bark dose, Reyn: "afraid the wind might take her."
+- **Ch8** [14–16]: Pond-bench herb tests, midsummer "Physic?", the village draws back, night tea: "I hope you find it." Her tear; he hears her breath shake on the stair.
+- **Ch9** [17–19]: Forest lesson, the **grey plant** ("Not ever"), her crush, the cedar box ("and sit with them"), the mill-lane widow, Eldric, Esdel sees her weep in Arwen's arms; next morning's polite distance; she weeps in the yard ("It's the sun." It was overcast); he brings a cup and weeds beside her.
+- **Ch10** [20–21]: He cuts his arm; "You did this to yourself"; she weeps onto the bandage ("Kettle steam"). Wound gone next day. Marin explains the festival.
+- **Ch11** [21–23]: Festival night 1 (his wish), night 2 (Eldric takes her hand, "Have fun"); he finds her alone at the great tree, silently weeping; threads tangle and part.
+- **Ch12** [24]: Present-tense dream (silver-armored man, "Fight"); they weep together.
+- **Ch13** [25–26]: The well, busy-ness, the rack, Reyn: "the door you mean to walk out of," Lyora finds the knots, the untouched supper, the market (dye-merchant), burnt tea, rosemary lesson, both awake.
+- **Ch14** [27–28]: Eldric's question: "No. There's nothing I can offer her." Lyora overhears; the pestle, Arwen; storm; ridge; carried down; Eldric lights the way; fever, "Esdel."
+- **Ch15** [29]: The stairs: "People leave this house." "It wasn't nothing." Her head on his knee; she weeps there. The lamp, the mended stair, two cups.
+- **Ch16** [30–32]: Salty buns, "best apprentice," sugar-for-salt story, kitchen night (tomato soup; her simple wedding; she rinses one cup and presses a hand to her mouth: "Onions."), lovebirds, "beautiful when you panic," wounded soldiers arrive.
+- **Ch17** [33–34]: A soldier recognizes him (siege, banner). "You don't owe the past anything." Walk home; "Please don't leave… For making me love you this much." He sits on the second step listening to her cry and doesn't knock.
+- **Ch18** [35]: Soldier strangles Lyora; Esdel's reflex; "He moved like a soldier"; she folds over a stitch of grief, seen in the window glass.
+- **Ch19** [36]: Garden. The woman in white; "Then don't remember her." One tear. **"I'll stay."**
+- **Ch20** [37]: Kitchen. Her parents' story. Torches; the captain (Erven, 3rd Logistic Company) chooses Lyora; Esdel takes her place. The stairs: "You promised." Her breakdown; "I broke one promise to you tonight. I won't break another. I'll come back."
+- **Ch21** [38]: Dawn farewell, the necklace, "Come back to me." She does not cry. The lamp lit in daylight.
 
-#### *The Unspoken Summer* (Ch25–29): the Esdel / Lyora / Eldric triangle
-- **Ch25**: *The Well, and the Rack.* Tender, careful days after the dream. At the well, the aunties say Eldric's mother will send the go-between after harvest. Esdel withdraws into work. Eldric asks him to help build Lyora a drying rack and opens up about his father and his fear of never leaving the fields. Reyn: "You're building the door you mean to walk out of." Lyora recognizes Esdel's knots and says nothing. His supper stays uneaten.
-- **Ch26**: *A Word in the Market.* A dye-merchant (a stranger) asks about her wheel, laughs, and squeezes his arm. Lyora sees it, goes cold, and **burns the tea**. Arwen's rosemary lesson: "Cut too much… you only have a stick." Esdel realizes she was jealous, and it hurts because he has decided to step back.
-- **Ch27**: *Eldric's Question.* Eldric's father walks on a crutch. At dusk Eldric asks honestly; Esdel: "**No. There's nothing I can offer her.**" Lyora overhears only "No… There's nothing…" and leaves. She grinds hawthorn to dust until Arwen takes the pestle and gives her tea.
-- **Ch28**: *Rain on the Ridge.* A summer storm. Lyora twists her ankle on the ridge gathering feverfew for Eldric's father. Esdel finds her by instinct and carries her down on his back (her palm over his heart). Eldric offers to take her; **her fingers tighten on Esdel's collar**; Eldric steps aside and lights their way home. Fever night: she murmurs "Esdel." He stays until dawn. Arwen sees.
-- **Ch29**: *The Stairs.* Eldric brings peaches (his father walks with a cane now). Lyora: "Tell the one who tied the bindings they're perfect." At the gate Eldric says "You were wrong… I've never once heard you say a thing you didn't believe," and that he told his mother "Not this harvest." Night rain on the stairs: **Lyora speaks her feelings** (the overheard words, Eldric and her younger self, her shame over the jealousy, "People leave this house," the knots). Esdel says only "**It wasn't nothing.**" No one says "love." Her head rests against his knee until dawn. After this: the lamp, the fixed step, the two cups.
+### Part III: The War (Ch22–27) [39–50]
+- **Ch22** [39]: The march (70 of 500), the bearded soldier's wife; Lyora at home, "You promised," "Be safe."
+- **Ch23** [40–42]: Ambush; he can't enhance his body; seven arrows; the Karunākṣa awakens (name introduced here); kills the enemy captain; healed; "Hero."
+- **Ch24** [43]: Eastern Post, Halden, hygiene. Lyora's first tears since the farewell, late ("the steam").
+- **Ch25** [44–46]: Poisoned water, the cave, crimson-eyed man, smiling dead, coffee night.
+- **Ch26** [47–48]: Transfer to North Ridge, the blue vial, Titan vs Dragon, Veil Form (brief).
+- **Ch27** [48–50]: Xueyao meets him: "Who are you?" Lyora at the lamp: "Please don't leave."
 
-- **Ch30**: A week later. Comedy day: Comedy day: salty buns, "friction coefficient," Arwen's stories (the sugar-potion, the cat-glue incident).
-- **Ch31**: Night kitchen talk: tomato soup, cats, Lyora's wish for a simple wedding.
-- **Ch32**: The "lovebirds" teasing, "You're beautiful when you panic." At sunset, wounded soldiers collapse on the southern path.
-- **Ch33**: A tent in the square. A soldier recognizes Esdel from a siege. Lyora: "You don't owe the past anything."
-- **Ch34**: Arwen relieves Esdel at the tent near midnight; Lyora has waited for him. Walking home, picking up from the tent talk. Quietly, dry-eyed: "Please don't leave… For making me love you this much." She cries behind her closed door; he sits on the second step all night listening and doesn't knock.
-- **Ch35**: Next day. A young soldier dies; his brother strangles Lyora; Esdel drops him on instinct. "He moved like a soldier." Arwen: "Let that fear guide you."
-- **Ch36**: The garden at night. He tells her of the woman in white; one tear: "Then don't remember her." **He promises to stay.** It lasts "less than an hour."
-- **Ch37**: The kitchen at night. Lyora's parents' story. "Grandmother… and you." Hands held. Torches: the captain chooses **Lyora** and she says yes; **Esdel steps forward and goes in her place**, breaking "I'll stay." On the stairs: "*You promised*," her complete breakdown, his wordless holding, their eyes meeting. **"I broke one promise to you tonight. I won't break another. I'll come back. I promise."**
-- **Ch38**: Dawn farewell. Lyora, cried out, doesn't cry. She fastens her mother's necklace on him: "Come back to me." "I'll be waiting." Reyn gives him bamboo splints. He looks back from the first rise; she hasn't moved. She lights the lamp in daylight.
+### Part IV: The Fall of House Lián (Ch28–31) [51–66]
+- **Ch28** [51–55]: Garron's embezzlement, the sentence of ten, Aldric–Rowan pact; Edenridge winter: Lyora weeps over an unsent letter, Arwen sees.
+- **Ch29** [56–62]: The Jade Willow frame, Hengzhi executed, Garron executed, nine spared, 8/10 to Rowan.
+- **Ch30** [63–64]: Aldric's tonic, courtship, marriage to Anlan. Aldric's letter to the Supreme Commander.
+- **Ch31** [65–66]: Xueyao learns the truth; four petitions; leave granted; Esdel as auxiliary; Changli's test (he refuses with a true reason); two beats of ache; they ride south.
 
-### Part III: The War (Ch39–50)
-- **Ch39**: The march: 70 left of 500. The bearded soldier's pregnant wife. *Scene break:* Lyora waiting in Edenridge.
-- **Ch40**: Day 3, forest ambush. "Enhance your bodies": Esdel can't. He's shut outside the shield circle and fights on instinct.
-- **Ch41**: Seven arrows. Time freezes: the **Karunākṣa** awakens. He kills the enemy captain.
-- **Ch42**: Captain Erven counter-charges. Esdel forces the eyes shut in agony. All his wounds are healed. "Try to rest, Hero."
-- **Ch43**: The Eastern Post medical tent. Halden scorns him, then respects him. Hygiene cuts deaths.
-- **Ch44**: A water-borne illness. Benn brings brown, metallic water. The cave at the source: four soldiers dead and the crimson-eyed man waiting.
-- **Ch45**: A fight in the dark. Esdel deduces the man can't see in darkness and escapes. Rorik's men find fused human-and-animal rot and the dead soldiers **smiling**, with black eyes and charred skin.
-- **Ch46**: Halden rages at Benn. A week of healing. Coffee night with Halden and Benn: "When will this war end?"
-- **Ch47**: The cave is sealed. The "BOO" prank. Esdel is **transferred to North Ridge**. Halden's blue vial. Escort Loryn. The Titan vs. the Imperial Dragon; Esdel is thrown. *Scene break:* Loryn's POV after the fall.
-- **Ch48**: *Flashback:* weeks of self-experiment and the Veil Form. The Dragon burns the Titan from within; a rider stands on its head. *Scene break:* Xueyao lands, the dragon-pact memory, and she meets Esdel at the roadside.
-- **Ch49**: "The mark of the Karunākṣa." House of Kālākṣa. "Who are you?"
-- **Ch50**: A maid interrupts. Xueyao's bath: "Why don't the kings fight each other?" Esdel sleeps under a tree holding the necklace.
+### Part V: The Return (Ch32–40) [67–86]
+- **Ch32** [67–68]: Road south, the waystation, Esdel tells Xueyao everything; Karunākṣa explained.
+- **Ch33** [69]: The Lián gate, Aldric, Anlan lets go, Yueming under the peach tree.
+- **Ch34** [70]: Edenridge, one year: the lamp, Arwen's oil, letters in the drawer, "Still?" "Still.", the soldier: "alive and working."
+- **Ch35** [71–75]: Mice and the binding oil; accusation; hearing.
+- **Ch36** [76–78]: "Edenridge. What a pretty name."; letters burned; counter-draught; Anlan wakes ("Keep him safe… *Him*.").
+- **Ch37** [79–81]: Six days; her murder; guardianship; the tomb.
+- **Ch38** [82]: Edenridge: the go-between, Arwen's trembling hands, Eldric waits; Lyora's cry on the stair.
+- **Ch39** [83–84]: The proposal; the peach tree; "Lyora."
+- **Ch40** [85–86]: The plan; the one-word scrap; Rowan thins the north-gate watch (a paragraph).
 
-### Part IV: The Fall of House Lián (Ch51–64)
-*This thread starts **earlier** than Part III and runs alongside it (see §5).*
-- **Ch51**: House Reng: Garron's embezzlement. The King means to execute ten Reng.
-- **Ch52**: The throne hall: sentence of ten; Aldric's poised acceptance. That night, the King and the Prime Minister: "The ripples will do the rest."
-- **Ch53**: Ardbert's carriage and his memory of House Lián and Xueyao.
-- **Ch54**: Ardbert reports the famine relief. The balcony with Khalid.
-- **Ch55**: Aldric offers Rowan 8/10 of the Lián assets for rehabilitation.
-- **Ch56**: The Lián garden at dawn. The family waits for Xueyao and plans a private dinner (steamed fish with ginger, osmanthus wine).
-- **Ch57**: Later that morning: orchids. A **Wei (Nanyue)** messenger announces a gift vessel; inspection at dawn.
-- **Ch58**: The *Jade Willow*. Zhao reveals the crates. Hengzhi is arrested.
-- **Ch59**: Rowan's account to the King (Aldric "wounded"). The King signs the **arrest and tribunal order**.
-- **Ch60**: **Two months later.** Aldric's loyalty performance with cane and scar.
-- **Ch61**: The corridor: Aldric and Rowan's silent reckoning.
-- **Ch62**: The King seals the **death decree** for Hengzhi and **Garron alone** (instead of ten). The Lián holdings go 8 parts to Rowan, 2 to Aldric. "Nine of your kin will live."
-- **Ch63**: After the execution. Aldric visits Anlan and gives her the rosewood box of amber tonic.
-- **Ch64**: Weeks become months. Dependence, camellias, a proposal. **Anlan marries Aldric.**
-
-### Part V: Convergence (Ch65–66)
-- **Ch65**: Xueyao, three years at the front, learns the truth and the tonic's nature from a dead vassal's message. Three leave requests refused (Rowan's hand). Changli proposes Esdel, and Xueyao remembers him.
-- **Ch66**: A **fourth petition is granted** without explanation. Three months' leave, 15 Lián soldiers, and Esdel as medical auxiliary, judged "expendable." Changli's seduction test: he is unmoved. They leave at dawn for the capital (5 days).
-
-### Part VI: The Return (Ch67–74)
-- **Ch67**: *The Road South.* Five days from North Ridge; spring orchards. Pei Lun's blisters; Han Ruo's wrist ("He paid the physician himself, for a stableboy"). Xueyao watches Esdel write letters he never sends and sees the silver flower.
-- **Ch68**: *The Merciful Eye.* A ruined waystation in the rain. Esdel tells Xueyao everything (the desert, the arm, the healing). She explains *Karunākṣa* and the Kālākṣa, and warns that her dragon can feel what she feels. "Send them before you're somewhere they can't reach." The capital from the hill.
-- **Ch69**: *Serpent over the Gate.* The Reng banner over the old Lián characters. Aldric's perfect courtesy. Anlan lets go of Xueyao to turn toward Aldric "like a flower to the light." At night beneath the peach tree, **Xueyao holds Yueming for the first time** and weeps without a sound.
-- **Ch70**: *Interlude, One Year.* Edenridge in spring. The lamp burned all winter; Arwen gave up her own oil. Lyora's unsent letters are in the drawer. Eldric: "Still?" "Still." A passing soldier of the Third Logistic says the apothecary was alive, transferred north.
-- **Ch71**: *The Amber Hour.* Aldric pours the drops himself every dusk. Changli steals a bottle. Esdel builds a laboratory in his room: heat, solvents, lye, flame. Pei brings two mice.
-- **Ch72**: *What the Mice Knew.* **Greyveil** (a paralytic that weakens will and heart) plus an **unnamed gold oil** that binds the drinker to *whoever is with them while it works*, not to the pourer (the mouse Esdel fed goes to Pei, who sat with it all day). He tells Xueyao only about the poison. Changli sees him hesitate. The note goes into his coat.
-- **Ch73**: *A Banquet for the Victor.* The Hall of Clear Waters. Ardbert and Xueyao talk honestly for the first time. Aldric pats Rowan's arm "like a dog." In the carriage, Xueyao works out that Aldric got her leave granted.
-- **Ch74**: *The Accusation.* At the spring reception under the peach tree: "You are poisoning my mother." Aldric's wounded show; **Anlan: "Xueyao, how could you?"** By morning the capital says: "*The general has lost her mind.*"
-
-### Part VII: The Unraveling (Ch75–86)
-- **Ch75**: *A Hearing Without Truth.* The Hall of Remedies. Morrell dismisses "a nameless field apothecary who reasons from mice." Ardbert starts to speak, and the King's look stops him. "No one stood beside me."
-- **Ch76**: *A Pretty Name.* Aldric visits Esdel's room, offers a post and gold, then: "*Edenridge. What a pretty name… I imagine someone is waiting.*" Esdel burns every letter. He keeps the necklace.
-- **Ch77**: *The Counter-Draught.* In the old stillroom (Han Ruo's key, Pei on watch) Esdel strips the greyveil and leaves the binding oil in. Changli swaps the bottles, halving each time. Anlan has tremors, then a fever, and cries out a name that isn't Aldric's.
-- **Ch78**: *Yaoyao.* A lucid dawn at Hengzhi's orchids: "He trimmed too much." Anlan remembers everything. "I married him… I can't remember *why*." Esdel stays silent about the binding. **"Keep him safe. Not the house. Not the name. *Him.*"**
-- **Ch79**: *The Guardian Question.* The rumor. **The dragon is bound to the Lián blood, so it would pass to Yueming.** The King and the Prime Minister over the old map. Rowan confronts Aldric in the pavilion; Aldric laughs with the "fever-brightness."
-- **Ch80**: *In Her Sleep.* Six good days; Xueyao laughs for the first time. Anlan to Esdel: "*Kind men should learn to lie better.*" A door at midnight. **Anlan dies of a greyveil overdose poured into Esdel's cup.** The cure made her a threat. Xueyao: "You gave her six days. Don't you dare ever be sorry for that."
-- **Ch81**: *Grief as Art.* Vale signs it as heart failure. A white funeral with six hundred mourners. **The King makes Aldric Yueming's guardian.** Xueyao's nails draw blood. At the tomb: "She made me promise." "I know. I heard."
-- **Ch82**: *Interlude, The Go-Between.* Early summer in Edenridge. Hessa asks Lyora to "think on it." Arwen's trembling hands. On the embankment, Eldric: "Then I'll wait a little too… I'd rather see how the story ends." Arwen couldn't light the lamp, and Lyora cries on the stair for the first time in a year.
-- **Ch83**: *The Proposal.* In the east pavilion Aldric proposes to his stepdaughter; the King "has no objection." He says the rest honestly: half-divine heirs, a throne, "*there is always your brother.*" "No." "I've seen your patience. I buried it on the hill above the river."
-- **Ch84**: *Under the Peach Tree.* Midnight. The dragon is awake and asking what she wants. "I have fed it men… I can feed it him." Esdel: "Your mother didn't ask you for vengeance." She weeps, and the dragon lies down. "Come with me." He tells her about the village and says **"Lyora"** aloud for the first time in a year.
-- **Ch85**: *Knots.* The plan in the stillroom: drugged soup (measured four times, "the kitchen girl is twelve"), the nursery, **Changli to take Yueming downriver**, and the north gate. Esdel writes a letter, tears it up, and **keeps one scrap with a single word** behind the silver flower.
-- **Ch86**: *Interlude, The Duke's Arithmetic.* Rowan's three names. "If he holds the dragon, he does not need me." He cuts the north-gate watch from twelve to four on the new moon.
-
-### Part VIII: The Flight (Ch87–98)
-- **Ch87**: *The Storm-Dark Night.* The house sleeps. The nursery: "Be stupid, and happy, and kind." Changli: seventeen years, the koi pond, "I never told anyone." **"Raise him far from this city. Let him live free of our name."**
-- **Ch88**: *The River Road.* A turnip barge in the storm, and the lantern gone in three breaths. Changli will give him Hengzhi's name in secret. "I'll never see him again… If I don't know, no one can make me tell." Aldric wakes in the dark.
-- **Ch89**: *The Gate.* The alarm bell. Aldric on a grey horse, with no cane. **Han Ruo and three others hold the gate** ("*For Lord Hengzhi!*"), and the bell stops. In the Street of Lanterns, Esdel's Veil Form: five men down, none killed. Two more old soldiers stay behind.
-- **Ch90**: *Blue Eyes at the North Gate.* Ten riders. **Ardbert and Khalid open the gate** ("Crown's orders"). "I remember how you looked at people too." Torches coming up the Hundred Steps.
-- **Ch91**: *The Blue Vial.* The Greenwater ford. Gao and two veterans hold it. A spear in Esdel's side, **Halden's vial, and the full Karunākṣa**: he reads every man's fear and next move in his body, and sees that **only Aldric is unafraid**, calm under a face of fierce joy. He spares Aldric's life and cuts his sword hand; the grey horse goes into the river and Aldric's men go in after him. Two veterans die.
-- **Ch92**: *The Decree.* The Hall of Clear Waters. Xueyao is declared a traitor (5,000 crowns). Fifteen Lián soldiers and "**the apothecary Esdel… late of the village of Edenridge**" (1,000 each). The King tells Ardbert it "never happened" and writes "*For now*" on the dragon map.
-- **Ch93**: *Nowhere to Return.* A shepherd's hut, three days of fever, the wound closed. "I didn't want to be the kind of man who would." Eight left. A trader: "*Edenridge. Pretty name.*" Esdel understands he can never go back. Xueyao releases him; **he stays so the hunt never turns south.**
-- **Ch94**: *Interlude, The Backwater Genius.* Halden: "*Idiot.*" At North Ridge **the dragon keens for days, looking south, and doesn't rise**; the front loses a mile and three hundred men. Loryn, wounded, hears the name.
-- **Ch95**: *Interlude, The Crier.* The herald under the great tree. Esdel's name, and the silence. **Reyn: "We only knew an apothecary. And he was a good man."** Two men in grey at the inn. **Lyora's night of doubt:** the lamp burns down to a blue bead. At dawn she understands the snare, that he'll stay away *for her*, and turns the lamp up brighter than ever.
-- **Ch96**: *White on the Ridge.* The borderlands. At dawn Xueyao cuts her hair and wears white. For a breath she is **the woman in white**, and then only Xueyao. "Who are you?" "**Esdel.** For now, I think it's enough." She calls him by his name for the first time.
-- **Ch97**: *What the Kingdom Says.* Legends: she wanders in white; **the dragon sleeps and won't wake for anyone** (the court magicians failed). The King's white pin on Edenridge. Aldric refuses the limner a likeness of Esdel ("*a man with no face… every road… runs home*"). Aldric's ruined hand and the empty cot, speaking to something. Rowan adds "*Vale*." Ardbert at the north gate at night.
-- **Ch98**: *The Knot.* A border market. **Three knots on a plain brown cord**, carried by a peddler whose sister never got a letter. Autumn in Edenridge: "Thought you might have a use for this. For tying herbs." (Esdel told the peddler: "I won't ask you to lie for me.") Lyora's thumb finds the first knot. She ties the cord to the lamp. *Waiting.*
+### Part VI: The Flight (Ch41–48) [87–98]
+- **Ch41** [87–88]: Storm night, nursery, the barge (Changli and Suyin take Yueming).
+- **Ch42** [89–90]: Han Ruo and three hold the gate; Street of Lanterns (2 die); Ardbert opens the north gate.
+- **Ch43** [91]: The Greenwater ford: spear, vial, full Karunākṣa, Aldric unafraid, his hand cut; two veterans die.
+- **Ch44** [92, 94, 97]: The decree; "For now"; Halden's "Idiot"; the dragon keens; Aldric withholds Esdel's face.
+- **Ch45** [93]: The hut; "Edenridge. Pretty name."; he stays so the hunt runs away; he burns a note.
+- **Ch46** [95]: The herald; Reyn's "was"; the grey men; Lyora's night of doubt; the lamp burns to a blue bead; Arwen takes her hand; the lamp turned up.
+- **Ch47** [96–98]: Xueyao in white; "Esdel. For now, I think it's enough."; legends; the peddler ("I won't ask you to lie for me").
+- **Ch48** [98]: The cord reaches Lyora; three knots; tied to the lamp; she weeps silently. *Waiting.*
 
 ---
+
 
 ## 5. Timeline
 
@@ -527,3 +469,52 @@ The following were corrected while splitting `Novel.md` into `Novels/`. The orig
 - Written from `Next Arc.md` §12–23 (items 1–11 were already Ch51–66). Plan: `Ideas/Done/[DONE] Arc Plan - The Maiden's Exile.md`. Both files are **DONE** and archived; don't reuse them.
 - 32 chapters in three parts: *The Return* (Ch67–74), *The Unraveling* (Ch75–86), *The Flight* (Ch87–98). Four Edenridge interludes keep Lyora's thread alive (Ch70, 82, 95, 98).
 - Design rules: nobody is a cartoon (Aldric charming, Rowan calculating, the King tired and deliberate, Ardbert kind but bound); Esdel stays faithful to Lyora; Xueyao never summons the dragon; the big mysteries stay open (see §6); the ending is quiet and bittersweet, as the brief asks.
+
+
+---
+
+## 11. The October 2026 trim (98 → 48 chapters, ~156k → ~65k words)
+
+**Goal:** cut the long story hard and deepen Esdel and Lyora. Make it hurt for both; Lyora cries quietly many times while Esdel sees or hears it; their closeness is itself the wound.
+
+**Old → new chapter conversion** (use it for every "(ChNN)" in §2, §3, §6, §9–10):
+
+| Old | New | Old | New |
+|---|---|---|---|
+| 1–4 | 1–4 | 44–46 | 25 |
+| 5–6 | 5 | 47–48 | 26 |
+| 7–9 | 6 | 48–50 | 27 |
+| 10–13 | 7 | 51–55 | 28 |
+| 14–16 | 8 | 56–62 | 29 |
+| 17–19 | 9 | 63–64 | 30 |
+| 20–21 | 10 | 65–66 | 31 |
+| 21–23 | 11 | 67–68 | 32 |
+| 24 | 12 | 69 | 33 |
+| 25–26 | 13 | 70 | 34 |
+| 27–28 | 14 | 71–75 | 35 |
+| 29 | 15 | 76–78 | 36 |
+| 30–32 | 16 | 79–81 | 37 |
+| 33–34 | 17 | 82 | 38 |
+| 35 | 18 | 83–84 | 39 |
+| 36 | 19 | 85–86 | 40 |
+| 37 | 20 | 87–88 | 41 |
+| 38 | 21 | 89–90 | 42 |
+| 39 | 22 | 91 | 43 |
+| 40–42 | 23 | 92, 94, 97 | 44 |
+| 43 | 24 | 93 | 45 |
+| | | 95 | 46 |
+| | | 96–98 | 47–48 |
+
+**New canon**
+- **Lyora's cover excuses:** when she cries and Esdel is near, she says it's dust, steam, smoke, "the sun," or onions. He never contradicts her and never lies; he answers "Mm" and lets her keep it. (Chamomile dust Ch5, smoke Ch6, the sun Ch9, kettle steam Ch10, onions Ch16.)
+- **Lyora cries often, quietly**, usually where Esdel sees or hears: Ch5, 6, 7, 8, 9, 10, 11, 12, 14, 15, 16, 17, 18, 20. She did **not** cry at the farewell (Ch21) or for several weeks after; her first tears come late (Ch24, "the steam"). Later: at the lamp (Ch27), winter (Ch28), the year (Ch34, 38), the herald (Ch46), the cord (Ch48). This replaces the old "did not cry for weeks" bullet in §2.
+- Esdel's **three-knot habit**: his hands tie knots in thread when he isn't watching (Ch32, 35, 37); this seeds the cord (Ch48).
+- Esdel's refusal of Changli gives a true reason: he made a promise (Ch31).
+- Aldric's letter to the Supreme Commander is the real reason the fourth leave was granted; Xueyao doesn't know (Ch30–31).
+- Loryn survives (one line, Ch26).
+- "Karunākṣa" is first named in Ch23; the sight "rises out of the same deep well that gave him his name."
+- Anlan's "alive and working" soldier is in Ch34; Arwen's lamp-oil sacrifice in Ch34.
+- Decree bounty: 5,000 crowns for Xueyao (living); 1,000 for each accomplice (living or dead).
+- Ch1–24 never name greyveil; Ch35 and 37 cover Halden's teaching of it with "Halden had said."
+
+**Cut (restore from the archive only deliberately):** Garrick, Darius, Captain Rorik, the ghost-story prank; the banquet and most of the hearing; Aldric's "fever-brightness" pavilion scene; Rowan's arithmetic scene; the King's white pin on Edenridge; Ardbert at the north gate at night; Aldric's nursery "they always come back to the blood"; most of the Titan battle and Xueyao's bath; Hengzhi's bones "fed to the dogs."

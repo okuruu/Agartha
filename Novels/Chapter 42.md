@@ -22,7 +22,7 @@ Han Ruo looked at the street, and at the arch above him with the Lián name carv
 
 “Thirty years I served your father,” he said. “I was there the day you were born. They put you in my arms because I was standing closest. Screamed like a gull. Bit my thumb.” He smiled through his grey beard. “That man took the Lord’s chair. Took the Lady. Took the boy, or tried. I wasn’t here. I was at the front, with you.” He turned his horse until it stood in the center of the gateway. “I’m here now.”
 
-Three of the old soldiers moved up on either side of him without being asked.
+Three of the old soldiers moved up beside him without being asked.
 
 “Go out the side lane, past the old wine store, into the Street of Lanterns. Go now, girl. Before he thinks of it himself.”
 

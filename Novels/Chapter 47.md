@@ -62,7 +62,7 @@ By the end of the summer the Kingdom was telling stories about her. They were in
 
 At the edge of the borderlands, where the brown hills came down to a river and a ford and a scatter of stone houses, there was a market once a month. There was no magistrate and no door to nail a decree to. Someone had once hung a copy on a thornbush by the water, but the goats had eaten half of it and the rain had washed the rest to pulp.
 
-Esdel went down to it alone in the grey of the morning with his hood up. They needed salt, and flour, and cloth for bandages, and he was the only one whose face had not been drawn on a wanted bill. The decree had named him. It had not described him. He had wondered about that, once, on the road. Half the capital had looked at his face: the masters of the college, the Lián household, the Count across a small table. Someone could have drawn it. He had turned the question over for a night, the way he turned over anything that did not add up, and then he had been too tired, and too grateful, to turn it any more.
+Esdel went down to it alone in the grey of the morning with his hood up. They needed salt, and flour, and cloth for bandages, and he was the only one whose face had not been drawn on a wanted bill. The decree had named him. It had not described him. He had wondered about that, once, on the road. Half the capital had looked at his face: the masters of the college, the Lián household, the Count at his door. Someone could have drawn it. He had turned the question over for a night, the way he turned over anything that did not add up, and then he had been too tired, and too grateful, to turn it any more.
 
 “One hour,” Xueyao had said. “If you’re not back in an hour, we come down.”
 

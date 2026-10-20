@@ -88,9 +88,9 @@ Lyora stood in the dark kitchen with the flint in her hand for a long time.
 
 Then she lit the lamp. She turned it low. She set it on the second step, where it belonged. And she sat down beside it, in its small gold light — the way she had sat once, a year ago, in the rain — and put her arms around her knees, and rested her head on them.
 
-She had not cried on this stair since the night he went. She had been so careful. She had cried in the shop, and at the table, with her face turned to the wall, and through the thin wall into a pillow. But not here. Here was where she had said everything, and he had held her, and she had thought she had nothing left.
+She had not cried on this stair since the first autumn. She had been so careful. She had cried in the shop, and at the table, with her face turned to the wall, and through the thin wall into a pillow. But not here. Here was where she had said everything, and he had held her, and she had thought she had nothing left.
 
-She had been wrong. It came up from somewhere beneath the ribs, with no sound at all. Her shoulders shook. She pressed the back of her wrist against her mouth, and the lamp flame wavered, blurred, doubled, and she sat on the second step with her forehead on her knees and let herself, for the first time in a year, cry on that step.
+She had been wrong. It came up from somewhere beneath the ribs, with no sound at all. Her shoulders shook. She pressed the back of her wrist against her mouth, and the lamp flame wavered, blurred, doubled, and she sat on the second step with her forehead on her knees and let herself, for the first time since autumn, cry on that step.
 
 Above her, in the dark at the top of the stairs, Arwen’s door stood open a hand’s width. It had been open all along.
 

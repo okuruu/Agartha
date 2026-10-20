@@ -114,7 +114,7 @@ He was silent so long that she began to walk on.
 
 “Lyora,” he said.
 
-It was the first time he had said it aloud in a year. It was like setting down something he had carried so long his arms had forgotten the weight. It hung in the warm night air beneath the peach tree like a lantern on dark water, and then the wind took it. His eyes burned. He did not move to wipe them.
+It was the first time he had said it to another soul in a year. It was like setting down something he had carried so long his arms had forgotten the weight. It hung in the warm night air beneath the peach tree like a lantern on dark water, and then the wind took it. His eyes burned. He did not move to wipe them.
 
 Xueyao stood still. “Lyora,” she repeated softly, as though testing the sound of it. As though putting it somewhere safe.
 

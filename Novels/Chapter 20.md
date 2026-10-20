@@ -92,7 +92,7 @@ The captain turned.
 
 “And you are?”
 
-“Her apprentice.” His voice did not shake. He was distantly surprised by that. “I know every jar on her shelves. I can set a bone and stitch a wound and dress a burn and measure a fever draught. And I can march thirty miles a day.”
+“Arwen’s apprentice.” His voice did not shake. He was distantly surprised by that. “I know every jar on her shelves. I can set a bone and stitch a wound and dress a burn and measure a fever draught. And I can march thirty miles a day.”
 
 The captain’s eyes went back to Lyora. “So can she, I expect, if she has to.”
 
@@ -104,7 +104,7 @@ He did not raise his voice. He spoke to the captain the way he spoke to a fright
 
 The captain’s jaw moved. “A daughter.”
 
-“Then you’ll understand this better than I can say it.” Esdel glanced, once, toward the apothecary at the top of the lane. “Some years ago, soldiers came to this village at night, with torches, the way you have. They needed a healer. Her father went with them. Her mother went after him. They stood in that doorway up there and said they would be back before the snow.” A pause. “They meant it. You mean it too. I can see you do.”
+“Then you’ll understand this better than I can say it.” Esdel glanced, once, toward the apothecary at the top of the lane. “Some years ago, soldiers came to this village at night, with torches, the way you have. They needed a healer. Her father went with them. Her mother went with him. They stood in that doorway up there and said they would be back before the snow.” A pause. “They meant it. You mean it too. I can see you do.”
 
 The captain said nothing.
 

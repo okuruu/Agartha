@@ -52,7 +52,7 @@ She did not step back at once. She stood there with her fingertips resting on th
 
 “I’ll guard it,” he said. It came out lower than he meant. “And I’ll guard myself.”
 
-She nodded. Once.
+She nodded. Once. Her lips parted, as if there were something else, and he watched her close them again.
 
 Then she looked up. Their eyes met again, the way they had met on the floor at the foot of the stairs — and he saw that she was holding herself together with nothing but her will, the way a hand holds a cracked cup, and that if he said one more word, one kind word, it would break.
 

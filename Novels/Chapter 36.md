@@ -24,7 +24,7 @@ The lamp hissed on the table.
 
 ---
 
-Esdel sat on the bed while the lamp burned down. He had never said her name. Not here, not at the front, not to Halden, not to the General. He had kept it inside him the whole year like a coal carried in a clay pot, and never once let anyone see the light of it.
+Esdel sat on the bed while the lamp burned down. He had never said her name to anyone. Not here, not at the front, not to Halden, not to the General. He had kept it inside him the whole year like a coal carried in a clay pot, and never once let anyone see the light of it.
 
 And it did not matter. The Count did not need her name. He had a village, and a map, and a patient mind. A letter to the right man. A rider on the south road. He thought of the ivy on the walls, and the lamp at the foot of the stairs, and Lyora on the second step in the dark with her face in her knees, saying *people leave this house*.
 

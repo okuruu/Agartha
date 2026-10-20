@@ -6,7 +6,7 @@ The dawn came pale and thin, hesitant to touch the ground after a night soaked i
 
 Captain Erven’s voice was quiet but firm. No one argued. Esdel walked near the rear, his vision wavering now and then in a brief, sharp darkness. The ache behind his eyes whispered of the Karunākṣa, and of the price his overworked mind was still paying. He said nothing. He simply walked.
 
-By afternoon the forest thinned into open land, and the warfront. Tents stretched across the horizon, canvas sagging beneath the dew. Somewhere a man cried out; somewhere else laughter broke briefly and was swallowed by the wind.
+By afternoon the forest thinned into open land, and there lay the warfront. Tents stretched across the horizon, canvas sagging beneath the dew. Somewhere a man cried out; somewhere else laughter broke briefly and was swallowed by the wind.
 
 Esdel followed the sound of groans to the largest medical tent. The air changed at once — thick with herbs, rot, and something like despair.
 

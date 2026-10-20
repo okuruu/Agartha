@@ -56,7 +56,7 @@ Changli dropped the bundle and put her arms around both of them, hard, the way y
 
 The river gate was a small iron door in the garden wall, and beyond it a stone stair, and a landing, and the river running high and brown with the storm. A farmer’s barge waited there, low and ugly, a lantern swinging from a pole. Esdel stayed at the top of the stair, in the shelter of the wall.
 
-He could not hear what was said. He saw Xueyao lean in under the canvas and put her hand, once, on her brother’s wrapped head. He saw Changli say something, and Xueyao shake her head. Then the rope was thrown off, and the river took the barge the way a hand takes a leaf.
+He could not hear what was said. He saw Xueyao lean in under the canvas, where Suyin sat with her bow across her knees, and put her hand, once, on her brother’s wrapped head. He saw Changli say something, and Xueyao shake her head. Then the rope was thrown off, and the river took the barge the way a hand takes a leaf.
 
 He had thought there would be time. That the lantern would grow small slowly, the way people watch a ship leave a harbor. It was not like that. In the space of three breaths it was a single yellow point swinging on the black water. Around the first bend. Between the moored boats. Gone.
 
@@ -74,7 +74,7 @@ She turned her head and looked at him, the rain running off his hair.
 
 “You know what that’s like.”
 
-It was not a question. He thought of a lamp on a stair. A girl in a doorway at dawn with her apron damp with dew. A necklace put into his hand. He thought of the letters he had burned, and the scrap of paper tucked behind the silver flower at his throat with one word on it, which he would never send.
+It was not a question. He thought of a lamp on a stair. A girl in a doorway at dawn with her apron damp with dew. A necklace fastened at his nape by cold, fumbling fingers. He thought of the letters he had burned, and the scrap of paper tucked behind the silver flower at his throat with one word on it, which he would never send.
 
 “Yes,” he said.
 

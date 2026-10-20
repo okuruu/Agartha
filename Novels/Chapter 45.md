@@ -68,7 +68,7 @@ Only hills, green and grey and gold, rolling away one behind another until they 
 
 *Late of the village of Edenridge.*
 
-Under the peach tree it had been one man watching. Now it was the whole Kingdom, and it was written down. He understood it all at once, the way he understood the slope of a field. The Count had not needed a spy or a map. He had only needed to put one word into a decree. Now every soldier and bounty-hunter and magistrate’s man knew that the traitor’s apothecary, worth a thousand crowns, living or dead, had come from a village called Edenridge.
+In a narrow room it had been one man watching. Now it was the whole Kingdom, and it was written down. He understood it all at once, the way he understood the slope of a field. The Count had not needed a spy or a map. He had only needed to put one word into a decree. Now every soldier and bounty-hunter and magistrate’s man knew that the traitor’s apothecary, worth a thousand crowns, living or dead, had come from a village called Edenridge.
 
 And if the traitor’s apothecary were ever to go home—
 

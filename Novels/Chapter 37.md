@@ -54,7 +54,7 @@ He understood it all, kneeling in the grey dawn, the way he understood the angle
 
 A woman like that could not be allowed to wake.
 
-*You didn’t choose it,* Xueyao had said in the garden. But Esdel had chosen. He had drawn her up out of the fog, and made her clear, and sharp, and dangerous, with his own hands, and loved the work. And the cure had made her a threat. And the threat had been removed.
+*It wasn’t you,* Xueyao had said in the garden. But Esdel had chosen. He had drawn her up out of the fog, and made her clear, and sharp, and dangerous, with his own hands, and loved the work. And the cure had made her a threat. And the threat had been removed.
 
 Changli wept in the corner with her face in her hands. Han Ruo wept in the doorway, silently, his great shoulders shaking. Xueyao stood at the foot of the bed looking at the loose hair on the pillow, dark and silver, which she had brushed out last night while her mother scolded her for pulling, and made no sound at all.
 

@@ -106,7 +106,7 @@ He did not go up to the attic.
 
 He sat down on the second step, in the dark, his back against the wall. The lamp she left for him every night was not lit yet. She had not had time.
 
-Through the door he heard her. Not loud. She was never loud. A small, careful, stifled sound, again and again, like someone breathing through a cloth: a woman crying into her pillow so her grandmother, asleep upstairs, would not wake, and so that the man on the stairs would not hear.
+Through the door he heard her. Not loud. She was never loud. A small, careful, stifled sound, again and again, like someone breathing through a cloth: a woman crying into her pillow so her grandmother, coming home late from the tents, would not hear, and so that the man on the stairs would not hear.
 
 He heard.
 

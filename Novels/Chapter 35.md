@@ -16,7 +16,7 @@ It felt like remembering, the work. *Divide the sample. Never use it all. Keep a
 
 It took three days.
 
-The dosed mouse slowed. It did not stagger. It simply stopped running, and its limbs hung loose and warm in his palm. *A paralytic.* The sour-green edge under the lye, the numbness on his tongue. He knew it. *Greyveil*, Halden had called it. *A kiss of it will quiet a man. A mouthful will quiet him forever.* And he had seen it once before that, in a shaded hollow above Edenridge, with a basket on his arm and a hand on his sleeve. *We don’t use that,* Lyora had said. *Not ever.* He had written in his notebook that night, beneath a small drawing of the leaf: *Ask Arwen why.*
+The dosed mouse slowed. It did not stagger. It simply stopped running, and its limbs hung loose and warm in his palm. *A paralytic.* The sour-green edge under the lye, the numbness on his tongue. He knew it. *Greyveil*, Halden had called it. *A kiss of it will quiet a man. A mouthful will quiet him forever.* And he had seen it once before that, in a shaded hollow above Edenridge, with a basket on his arm and a hand on his sleeve. *We don’t use that,* Lyora had said. *Not ever.* He had written in his notebook that night, beneath a small drawing of the leaf: *Not ever.* He had meant to ask Arwen why.
 
 He never had.
 
@@ -38,7 +38,7 @@ He told her about the root. He told her it was poison, given slowly, and that gi
 
 He did not tell her about the mouse.
 
-He had rehearsed the words. *There is something else. It binds her to him.* But she stood in the doorway holding herself together by the elbows, and he thought: if I tell her that her mother’s love was brewed in a bottle, what will she have left? And beneath that, quieter, a voice in a moonlit garden a world away. *Then don’t remember what hurts. Just remember what’s here.*
+He had rehearsed the words. *There is something else. It binds her to him.* But she stood in the doorway holding herself together by the elbows, and he thought: if I tell her that her mother’s love was brewed in a bottle, what will she have left? And beneath that, quieter, a girl’s voice in a moonlit garden a world away, saying that some things were kinder left unremembered.
 
 “He is killing her,” she said.
 
@@ -74,7 +74,7 @@ By morning the capital had it, from people who had not been there and told it wi
 
 ---
 
-The hearing was granted on the eleventh day, in the Hall of Remedies: a cold room of pale stone, seven black caps on a dais, and preserved things floating in yellow spirit. The Count did not come. Master Vale sat in his stead, small and grey, looking at the floor.
+The hearing was granted on the eleventh day, in the Hall of Remedies: a cold room of pale stone, seven black caps on a dais, and preserved things floating in yellow spirit. The Count did not come. Master Vale, his physician, sat in his stead, small and grey, looking at the floor.
 
 Esdel told it well. He would think so afterward, lying awake. He did not speak of the gold oil; he had no proof these men would accept. Grand Physician Morrell held up his page of numbers. “Your hand is unusual. Where did you study?”
 

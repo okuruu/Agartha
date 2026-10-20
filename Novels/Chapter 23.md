@@ -50,7 +50,7 @@ Then the pain turned white-hot. His vision split open, and the color bled away u
 
 Time fractured. Soldiers froze mid-swing. Arrows hung like shards of glass. The smoke curled in still spirals.
 
-He could *see.* Every held breath, every tremor beneath armor, every intention waiting to become movement. His eyes drank in more than any mind should have been able to hold, and somehow his head kept pace.
+He could *see.* Every held breath, every tremor beneath armor, every intention waiting to become movement. His eyes drank in more than any mind should have been able to hold, and somehow his head kept pace. A word rose out of the same deep well that had once given him his name: *Karunākṣa.*
 
 Amid the frozen fragments one figure stood apart. A stance stronger, steadier. The enemy captain.
 
@@ -64,7 +64,7 @@ Then the world caught up. Blood burst outward, bright and sudden. The man collap
 
 Esdel dropped to his knees, gasping. Behind his eyes his skull throbbed as though it had been stretched too wide and was only now snapping back. All around him the enemy reeled at their fallen leader, and the line began to break.
 
-From the back ranks, Captain Erven of the 3rd Logistic Company saw the moment of weakness. “Now,” he breathed. “For the wounded!”
+From the back ranks, the captain, Erven of the 3rd Logistic Company, saw the moment of weakness. “Now,” he breathed. “For the wounded!”
 
 What was left of seventy weary souls charged into twice their number, who had already begun to doubt.
 

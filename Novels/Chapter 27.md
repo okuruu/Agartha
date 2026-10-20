@@ -14,7 +14,7 @@ As she walked away, the cheering dulled and dissolved into nothing, and the sile
 
 She had been fourteen when it first spoke to her that way. Everyone celebrated her gift, never knowing the screams that echoed in her dreams when the dragon fed on the prisoners brought to its altar.
 
-Her teeth clenched, and the memory shattered like glass. Later, in a private chamber turned honey-gold by lanterns, she let the warm water swallow her, and said to the dark, “It doesn’t end, does it?” She thought of the unanswered letter from home, her father under guard, *treason* written beside his name. “Why don’t the kings fight each other? One death instead of thousands.” She laughed, hollow and soft, and pressed the thought away. “Enough. Such foolishness.”
+Her teeth clenched, and the memory shattered like glass. Later, in a private chamber turned honey-gold by lanterns, she let the warm water swallow her, and said to the dark, “It doesn’t end, does it?” She thought of the letter from home that had not come in four months, and of her father’s silence. “Why don’t the kings fight each other? One death instead of thousands.” She laughed, hollow and soft, and pressed the thought away. “Enough. Such foolishness.”
 
 But that was after. First, on a dirt path that led away from the main camp, she saw him.
 
@@ -42,7 +42,7 @@ Esdel went still.
 
 The name struck him like a blow. “You know what they are?”
 
-Something shifted in her expression, not surprise, but memory. “I met them once. Long ago. The bearers of those eyes.” She looked toward the embers on the horizon. “They were powerful. Too powerful. Their sight saw truth the dragons themselves feared. And so… they were gone. Every last one.”
+Something shifted in her expression, not surprise, but memory. “I saw them once. Long ago, in a memory that was not mine. The bearers of those eyes.” She looked toward the embers on the horizon. “They were powerful. Too powerful. Their sight saw truth the dragons themselves feared. And so… they were gone. Every last one.”
 
 “Then how do I—”
 
